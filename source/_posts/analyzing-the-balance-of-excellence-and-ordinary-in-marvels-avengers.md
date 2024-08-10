@@ -1,7 +1,7 @@
 ---
 title: Analyzing the Balance of Excellence and Ordinary in Marvel's Avengers
-date: 2024-08-02 16:41:16
-updated: 2024-08-05 12:59:12
+date: 2024-08-09T00:56:20.198Z
+updated: 2024-08-10T00:56:20.198Z
 categories:
   - BestProducts
 description: This Article Describes Analyzing the Balance of Excellence and Ordinary in Marvel's Avengers
@@ -15,6 +15,14 @@ thumbnail: https://www.lifewire.com/thmb/BcvjnUPZvLPEBrROXbohEGyEbWc=/400x300/fi
 
 ## Marvel’s Avengers
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Marvel's Avengers](https://www.lifewire.com/thmb/6tMg1TMhEdrz8AwK12Y9nHTADdQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Marvels-Avengers-Game-1-56461f27b96b46f09afebe5fb2856089.jpg)
 
 Lifewire / Andy Zahn
@@ -71,6 +79,9 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup: Straightforward, aside from some account sign in nonsense**
 
  After a bulky 50 GB download, the game launched without issue, first from[Steam](https://www.lifewire.com/what-is-steam-4177380) to a separate launcher where I could adjust graphics and other settings. Next, I was prompted to sign up with a Square Enix account. This step isn't necessary but does unlock some exclusive content. The process of signing up and linking my account was a bit clunky and cumbersome, but I finally bulled through to the main menu.
@@ -99,6 +110,9 @@ Lifewire / Andy Zahn
 
  There is some variation in abilities, but it’s disappointing that there’s not more to make the different heroes unique. This wouldn’t be so noticeable if the experience weren’t intended to be so long. If you just play the main campaign it’s not that bad, but the longer you spend with it the more it begins to feel a bit humdrum.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Marvel's Avengers](https://www.lifewire.com/thmb/G2_Nr801kYuHDprTf-WW0H710pc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Marvels-Avengers-Game-5-d35733fe387046748269587329fc4c5c.jpg)
 
  Lifewire / Andy Zahn
@@ -109,18 +123,27 @@ Lifewire / Andy Zahn
 
  Customization is split between skills, gear, and cosmetics. Skills are earned by gaining experience and buying new combat abilities. Gear is found in-game and can be crafted and upgraded. Unfortunately, it doesn’t alter your character's appearance and only provides incremental stat improvements, so it ends up feeling pretty meaningless. The only thing that changes your character's appearance is cosmetics, which can be earned by lengthy grinding in-game, but are available for purchase via a microtransaction marketplace.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Marvel's Avengers](https://www.lifewire.com/thmb/qOCpss1qt_evo0lE6ASI-iEcgE4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Marvels-Avengers-Game-4-f72fa3ece4a24aecb6dfabf7c1ed786d.jpg)
 
  Lifewire / Andy Zahn
 
  The big problem here is that by divorcing cosmetics from gear to enable and encourage non-gameplay affecting microtransactions, Avengers takes away the fun of customizing your gear. It makes the game feel cheap and manipulative.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ## **Collectibles: Weighed down by knick-knacks**
 
  There’s a lot of stuff to collect throughout Avengers, but way too much of it is junk. Comic books give characters stat boosts, there’re tidbits of lore to pick up if you feel like reading, and then there’s the endless stream of armor and components that you use to boost your character’s power.
 
  The problem is that the deluge of nearly identical bits of armor quickly make opening treasure chests and finding hidden loot a chore. There’s never anything really good and it interrupts the action, but you feel like you’re missing out if you just ignore them, and they’re necessary to face higher level enemies. This means that you’re stuck time and again waiting for your character's chest opening animation to cycle through.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![Marvel's Avengers](https://www.lifewire.com/thmb/1b-tnL1lzsDoFyr0NtwNmgg9YWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Marvels-Avengers-Game-6-44776b5f2a5c4f139599edba51104a76.jpg)
 
  Lifewire / Andy Zahn
@@ -129,6 +152,9 @@ Lifewire / Andy Zahn
 
  There’s even more tedium when you factor in the variety of different vendors, each peddling a pile of the same boring gear that is purchased with the broken down components of gear you don’t want.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Multiplayer: Co-op friendly**
 
  Marvel’s Avengers can either be played solo or with up to three other players for multiplayer missions. In such missions you can invite friends, or fill empty player slots with random players or AI-controlled characters. At the time of writing, the number of active players has plummeted, so unless you’re able to rope in some friends, you’ll likely be playing the whole game in single-player mode.
@@ -149,10 +175,16 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Good value, but with hidden costs**
 
  Marvel’s Avengers launched at $60 but is widely available for $50 or less at the time of this writing due to its decline in popularity. If you’re really itching to play an Avengers game and can put up with its flaws it’s not a bad value. Unfortunately, microtransactions may encourage you to spend more money.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Marvel’s Avengers vs. Destiny 2**
 
  The comparison between Marvel’s Avengers and[Destiny 2](https://www.lifewire.com/destiny-2-4158011) are inescapable, given the clear attempt to turn Avengers into a “live service” game like Destiny. However, while Destiny 2 was built from the ground up to be this kind of game, in Avengers it feels like it was tacked on partway through development and it clashes violently with the core of the game. If you want a multiplayer-focused, “live service” style game go for Destiny 2\. Avengers is good if you want a superhero story game with co-op.
@@ -165,6 +197,9 @@ Lifewire / Andy Zahn
 
  Marvel’s Avengers has a decent story, fun gameplay, and is by far the most complete video game experience related to this cinematic universe. However, to enjoy that you have to look past all the problems weighing it down, which is a tough ask.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * Apex Legends

@@ -1,7 +1,7 @@
 ---
 title: "Navigating the Wilderness in Skyrim on Switch: An In-Depth Look at Bethesda’s Classic RPG"
-date: 2024-08-03 23:57:27
-updated: 2024-08-05 10:11:42
+date: 2024-08-09T00:55:33.808Z
+updated: 2024-08-10T00:55:33.808Z
 categories:
   - BestProducts
 description: "This Article Describes Navigating the Wilderness in Skyrim on Switch: An In-Depth Look at Bethesda’s Classic RPG"
@@ -36,6 +36,9 @@ Lifewire / Jordan Oloman
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Netgear Powerline PL1200
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/rYExgRawgStvNWLyEyCyiiEqyOI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_HeroSquare-d40232740fc34cdbb9b7197a7bda177d.jpg)
@@ -62,10 +65,16 @@ Lifewire / Jordan Oloman
 
  The Netgear Powerline 1200 Kit serves as a chunky plug-in adapter that offers impressive speeds over wired Ethernet, at the cost of your power sockets. We put it to the test to see if it’s worth the price.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/pTY-hBlPDWY0Ns6j4BVyAl75U-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_04-cd509045b4a3477fab85fdf3c69cacb4.jpg)
 
  Lifewire / Jordan Oloman
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Sharp edges and frustration**
 
  The Netgear Powerline 1200 kit doesn’t really care about your living room or bedroom aesthetic. It’s a monolithic, white glossy plastic box that juts out of the wall. If you’re looking for something inoffensive and reserved, the Netgear offering doesn’t deliver. The edges are sharp and the adapter is quite large in order to house all of the technology and the Ethernet sockets necessary to complete the network.
@@ -94,6 +103,10 @@ Lifewire / Jordan Oloman
 
  The only unfortunate thing to note is that the Ethernet cables supplied in the box are tiny, and will not stretch very far. We’d go so far as to say that you should purchase longer Ethernet cables in advance. It seems short-sighted to offer the promise of an expanded network without the cables that are long enough to enable it. We ended up swapping them out with some we had laying around the house.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LvSmrJJnFItVzQEAPCzBexfSn2M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_03-8fb5af44f82449b49fc780fd23bcb2af.jpg)
 
  Lifewire / Jordan Oloman
@@ -110,10 +123,16 @@ Lifewire / Jordan Oloman
 
  You can create a secure and powerful network that boasts a dramatic upgrade in efficacy, all for a low price point, with a setup process that is actually plug and play.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## **Price: Affordable for what you get**
 
  Out of the adapters we tested, the Netgear Powerline 1200 was one of the cheaper ones on Amazon, ranging between $70-$85\. You can see why when you study the design and the many aesthetic flaws that come with this product. Besides the fact it is bulky and doesn’t play nice with other plugs, it’s a reliable means to improve your home network through the wonders of Powerline. It’s still quite a hard sell at this price compared to other products that hover around the same and offer more ports and socket functionality, but it’s still a worthwhile purchase if you just want to plug and play.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Netgear Powerline 1200 vs. TP-Link AV2000 Powerline Adapter**
 
  Comparing the Netgear Powerline 1200 kit to the TP-Link Powerline AV2000, there are some noticeable pros and cons. The TP-Link kit performs better speed-wise, has serviceable cables, lets you use the socket and doesn’t obstruct other plugs. However, the setup process isn’t as simple and we found some easily-fixed, but frustrating issues with connectivity.

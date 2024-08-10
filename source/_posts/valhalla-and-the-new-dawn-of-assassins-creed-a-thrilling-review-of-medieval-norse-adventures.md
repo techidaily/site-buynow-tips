@@ -1,7 +1,7 @@
 ---
 title: "'Valhalla' And the New Dawn of 'Assassin's Creed': A Thrilling Review of Medieval Norse Adventures"
-date: 2024-08-05 18:25:59
-updated: 2024-08-07 11:17:27
+date: 2024-08-09T00:55:46.668Z
+updated: 2024-08-10T00:55:46.668Z
 categories:
   - BestProducts
 description: "This Article Describes 'Valhalla' And the New Dawn of 'Assassin's Creed': A Thrilling Review of Medieval Norse Adventures"
@@ -38,6 +38,9 @@ Lifewire / Kelsey Simon
 
 ## Days Gone
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ![Days Gone](https://www.lifewire.com/thmb/OhLBxtaDQ5jb89rJmIMnan1soS4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Days-Gone-Zombie-Game-PS4-1-ecafdc83e8e0460cbc31b8b0e4976faa.jpg)
 
 Lifewire / Kelsey Simon
@@ -61,6 +64,9 @@ Lifewire / Kelsey Simon
 
  Days Gone is another action-adventure survival game in the zombie genre. It does a lot of things that other similar titles do―crafting, stealth, and gathering resources―but with an added emphasis on your character’s vehicle.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Days Gone](https://www.lifewire.com/thmb/ryi3-WPMYdCrQ8y_6kRDMiMzxZ0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-6-0cbb39a028324cf9a576db1941bce0a4.jpg)
 
  Lifewire / Kelsey Simon
@@ -69,10 +75,16 @@ Lifewire / Kelsey Simon
 
  If you purchased the game on disc, when you first pop it into your PlayStation 4 you’ll have to update. The update is fairly large, so be prepared to wait. The game finally launches, you'll be prompted to select between easy, normal, or hard difficulty, and then treated to a scene-setting introductory cutscene.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ![Days Gone](https://www.lifewire.com/thmb/HE8j4XoxbKMWIQagUtGCXFf6bKo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-2-3b29272bf1b2423781e104041dc00457.jpg)
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Plot: A man who lost his wife**
 
  The first cutscene you’re shown involves three characters: the protagonist Deacon, his loyal friend Boozer, and Sarah, Deacon’s wife. Sarah has been stabbed, and with chaos breaking out as a deadly virus spreads through the city, the trio is desperate to find help. When a helicopter lands nearby, they load Sarah onboard, but there's only room for two passengers. When Boozer refuses to board, Deacon stays behind to make sure he gets out of the city alive. You don’t actually see any zombies in this beginning sequence, or even much of the world. It's about establishing the relationships between these people and the desperate circumstances unfolding around them.
@@ -85,6 +97,9 @@ As in most zombie fiction, the real monster is man.
 
  You'll have issues with a cult group called Rippers, and bandits who survive by preying on anyone who's not well armed or capable enough to defend what's theirs. Unfortunately, Boozer gets badly hurt in one of these encounters, and while you’re trying to find him the help he needs, you get a lead that perhaps Sarah, who you assumed was dead, is still alive. The rest of the game involves exploring this open-world, helping the people you meet, and trying to find Sarah, all while keeping your friend Boozer alive.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Days Gone](https://www.lifewire.com/thmb/XWR-CgFF865KBE1ipv7cwdi-P3w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-5-b1914ac9859b409d9460fea24fc7f251.jpg)
 
  Lifewire / Kelsey Simon
@@ -113,14 +128,23 @@ As in most zombie fiction, the real monster is man.
 
  Character animations also look great. Deacon moves in a way that feels natural and real, whether he’s slitting someone's throat or sneaking around an enemy camp. The bike is smooth visually and looks good drifting around corners. Even the zombies have their own sort of animalistic movements that give them a creepy, predatory feel.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ![Days Gone](https://www.lifewire.com/thmb/gE-LorHWCGsO4NUFW801LGts5t4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-4-a82aed08ab7a4b29bce78268b729563b.jpg)
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: Still expensive as a newer release**
 
  On the official PlayStation Store, the game goes for $40, but you can regularly find it on sale on Amazon or other online retailers (as of this writing, it's down to $20). At a discount, Days Gone is an easy purchase, a big, entertaining, open-world zombie romp that rarely if ever stagnates until the credits roll.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Days Gone vs. The Last of Us Remastered**
 
  There are a fair amount of other zombie survival games out there. On the PlayStation 4, another popular title is The Last of Us Remastered. The Last of Us doesn't have the expansive open world that Days Gone does, but the crafting system is far better, and the plot is stronger.

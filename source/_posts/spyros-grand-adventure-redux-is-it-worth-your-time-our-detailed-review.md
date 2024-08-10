@@ -1,7 +1,7 @@
 ---
 title: Spyro's Grand Adventure Redux - Is It Worth Your Time? Our Detailed Review
-date: 2024-08-05 11:28:19
-updated: 2024-08-07 12:31:38
+date: 2024-08-09T00:56:17.010Z
+updated: 2024-08-10T00:56:17.010Z
 categories:
   - BestProducts
 description: This Article Describes Spyro's Grand Adventure Redux - Is It Worth Your Time? Our Detailed Review
@@ -39,6 +39,9 @@ Lifewire / Andrew Hayward
 
 ## Activision Spyro Reignited Trilogy
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Spyro Reignited Trilogy](https://www.lifewire.com/thmb/gIxr7TBQJFRJXZlybz9ZXsvP7no=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Spyro-Reignited-Trilogy-Playstation-4-Game-1-c26ee668326743c2959657c3b99be25e.jpg)
 
 Lifewire / Andrew Hayward
@@ -68,6 +71,9 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ## **Plot: Brave battles ahead**
 
  The original Spyro the Dragon finds the young dragon placed in a perilous situation when the evil Gnasty Gnorc uses his magic to crystalize every other dragon in the kingdom. You’ll travel across the five worlds of the Dragon Kingdom to rescue every dragon by freeing them with your fire breath—and then deal with Gnasty Gnorc once and for all.
@@ -76,10 +82,16 @@ Lifewire / Andrew Hayward
 
  In Spyro 2: Ripto’s Rage, the hero sets off in search of a vacation spot following his tiring original quest, but instead is pulled through a portal into the realm of Avalar. There, he’s recruited by Elora the Faun, Hunter the Cheetah, and the Professor to help defeat the villainous Ripto. Meanwhile, Spyro: Year of the Dragon finds him back in his homeland, but then 150 dragon eggs are stolen by a sorceress from the Forgotten Worlds. Spyro must then collect all of the eggs from that unfamiliar locale, all while working alongside a fresh cast of additional playable characters.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Spyro Reignited Trilogy](https://www.lifewire.com/thmb/SoFUBfHCW2Wax9Y_hdtY9LGp7ZQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Spyro-Reignited-Trilogy-Playstation-4-Game-5-3de0ab6701954a6895a617e2f1068f78.jpg)
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## **Gameplay: Blazing, approachable action**
 
  Much of Spyro Reignited Trilogy’s gameplay is established in the first entry, which really sets the tone for the entire trilogy. All three games find players controlling Spyro himself, as you run around the worlds, jump over hazards and between platforms, breathe fire to attack or stun enemies, and charge forward to pummel foes and break through defenses.
@@ -120,12 +132,18 @@ Lifewire / Andrew Hayward
 
  The ESRB rates Spyro Reignited Trilogy as “Everything 10+” for “Cartoon Violence” and “Comic Mischief,” citing his attacks and also enemy Gnorc soldiers that briefly lift up the back flaps of their uniforms to “moon” Spyro before pointing and laughing. That might sound crude, but in the moment, it’s barely noticeable. We wouldn’t hesitate to give this game to kids under 10.
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Three-for-one**
 
  Spyro Reignited Trilogy is a great value, packing in three completely remastered adventures at an MSRP of $40\. They certainly don’t look like old games, even if some newer platform-action games (like Super Mario Odyssey on Nintendo Switch) offer more variety and greater gameplay depth.
 
  However, the sheer volume of gameplay here makes Spyro Reignited Trilogy an excellent pick for families and old-school fans of the series. And since the PlayStation 4 and Xbox One versions have been out for a while now, we’ve seen them selling for less than $30 as of this writing. The newer Switch and PC ports are still right around the MSRP.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Spyro Reignited Trilogy vs. Crash Bandicoot N. Sane Trilogy**
 
  The Spyro Reignited Trilogy essentially follows the mold of Activision’s recent[Crash Bandicoot N. Sane Trilogy](https://store.steampowered.com/app/731490/Crash%5FBandicoot%5FN%5FSane%5FTrilogy/) , as both packages take a trio of beloved ‘90s PlayStation games and give them a significant visual upgrade—all while keeping the core experience intact. Both are similarly effective in presenting the classic game in a more palatable, modern way or, essentially, the version that fans might imagine in their heads, rather than the real old-school games with clunky, 20-year-old graphics.
@@ -138,6 +156,9 @@ Lifewire / Andrew Hayward
 
  Spyro Reignited Trilogy might not be the most riveting platform-action experience for modern genre fans, but this remastered package is a great option for younger kids thanks to its simple gameplay and cartoonish tone. It’s also a welcome upgrade for fans of the decades-old original games, maintaining the spirit of the classics while making them much easier to enjoy today.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Spyro Reignited Trilogy

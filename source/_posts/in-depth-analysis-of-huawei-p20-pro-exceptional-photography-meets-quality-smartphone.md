@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis of Huawei P20 Pro: Exceptional Photography Meets Quality Smartphone"
-date: 2024-08-05 12:37:12
-updated: 2024-08-07 10:31:10
+date: 2024-08-09T00:55:31.326Z
+updated: 2024-08-10T00:55:31.326Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis of Huawei P20 Pro: Exceptional Photography Meets Quality Smartphone"
@@ -13,8 +13,14 @@ thumbnail: https://thmb.techidaily.com/6b74a794374950c8c7d33f01e283b8595a0e02efb
 
 4.9
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Microsoft Surface Ergonomic Keyboard
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Microsoft Surface Ergonomic Keyboard](https://www.lifewire.com/thmb/vIxt4B-k5bknAa1sNqaFwB1GroY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_4LW4147386_HeroSquare-3ef573df092942b58b61bf36ce218fb3.jpg)
 
 Lifewire / Emily Isaacs
@@ -41,6 +47,9 @@ Lifewire / Emily Isaacs
 
 ## Microsoft Surface Ergonomic Keyboard
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Microsoft Surface Ergonomic Keyboard](https://www.lifewire.com/thmb/OTYRC4PtfZO9h5RTG8oHiroYrDg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_4LW4147386_HeroSquare-3ef573df092942b58b61bf36ce218fb3.jpg)
 
 Lifewire / Emily Isaacs
@@ -68,6 +77,9 @@ Lifewire / Emily Isaacs
 
  The Surface is a sleek ergonomic keyboard and a welcome addition to the Microsoft family. Like many ergonomic keyboards, it’s designed to help your wrists sit at an instinctive, comfortable angle that encourages natural movement to prevent[repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) . The keys have a slight divot in the center so fingers naturally conform to their shape, making the keys comfortable and easy to type on.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Microsoft Surface Ergonomic Keyboard](https://www.lifewire.com/thmb/XepNCNj18GnNs8V1INrxR7tnMGo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_4LW4147386_04-1edde9a5b2264b4abb528945ffae167f.jpg)
 
  Lifewire / Emily Isaacs
@@ -80,6 +92,9 @@ Lifewire / Emily Isaacs
 
  Unlike some ergonomic keyboards that can hog space, forcing users to overreach for mice which can lead to shoulder injuries in place of wrist injuries, the Surface is wide enough that your hands sit comfortably but small enough that it’s easy to reach for your mouse when you want it. It’s the Goldilocks of keyboards with a fit that feels just right.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ## **Setup Process: Easy for PCs**
 
  The Microsoft Surface Ergonomic Keyboard arrives in a mid-size box containing the Surface itself as well as a small white box tucked underneath it. This contains a product information pamphlet and quick start setup guide.
@@ -90,6 +105,9 @@ Lifewire / Emily Isaacs
 
  Lifewire / Emily Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Features: Well-conceived function keys**
 
  The Surface has function keys for pausing multimedia, skipping forward or backward in multimedia, increasing or decreasing volume, muting volume, increasing brightness or decreasing brightness, and several others. It really feels like Microsoft thought of every way their users interact with keyboards and tried to meet their needs.
@@ -128,6 +146,9 @@ Lifewire / Emily Isaacs
 
  The Microsoft Surface Ergonomic Keyboard is a quality, wireless ergonomic keyboard that’s well worth the investment if you spend a significant portion of your time typing on your computer. It’s a splurge to be sure, but it’s worth the price for the quality you receive.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Surface Ergonomic Keyboard

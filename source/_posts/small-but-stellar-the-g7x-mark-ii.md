@@ -1,7 +1,7 @@
 ---
 title: Small but Stellar – The G7X Mark II
-date: 2024-08-05 20:59:27
-updated: 2024-08-07 12:55:38
+date: 2024-08-09T00:55:57.455Z
+updated: 2024-08-10T00:55:57.455Z
 categories:
   - BestProducts
 description: This Article Describes Small but Stellar – The G7X Mark II
@@ -13,6 +13,9 @@ thumbnail: https://www.lifewire.com/thmb/hS4Af5QIYHHBqfIv4_-LrO3kyt4=/400x300/fi
 
 4.6
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Amazon Fire TV Cube
 
 ![Fire TV Cube (2nd Generation)](https://www.lifewire.com/thmb/K_gugGZBSXUKggkCqocQEu_IF2U=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FireCubeTV_HeroSquare-484d7d80c4354681968a1ff7d19b9676.jpg)
@@ -39,6 +42,9 @@ Lifewire/Emily Ramirez
 
 4.6
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Amazon Fire TV Cube
 
 ![Fire TV Cube (2nd Generation)](https://www.lifewire.com/thmb/WzC13ETTqm-8PU2bc8-jh9O3G7c=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FireCubeTV_HeroSquare-484d7d80c4354681968a1ff7d19b9676.jpg)
@@ -64,10 +70,16 @@ Lifewire/Emily Ramirez
 
  Updated for 2019, the Amazon Fire TV Cube brings powerful hardware that can stream thousands of channels and apps in full[4K HDR](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) with Dolby Vision encoding. The glowing cube also takes voice commands, basically making it an Echo speaker, but is Alexa’s brainpower and its beefy hexacore processor enough to justify its relatively hefty price tag? I spent 15 hours putting it to the test, read on to see how I liked it.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Fire TV Cube (2nd Generation)](https://www.lifewire.com/thmb/XdJMKZTDX0bcXYVWQa5F4sXhnt0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FireCubeTV_HeroHoriz-bb386a84025b49d2a22d3d34c6974007.jpg)
 
  Lifewire/Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ## **Design: Futuristic design powered by Alexa**
 
  The Fire TV Cube is a cute, futuristic-looking block that will stand out on your home console despite its 4-inch sides. On the outside, it’s virtually unchanged from the first-generation model. Across the top, there’s a blue LED bar that lights up whenever the Cube takes action. The sides of the cube have a glossy black finish that’s a fingerprint magnet. There’s volume and menu buttons on the top, as well, but we don’t foresee a lot of use for them considering that the Cube comes with a remote. In the back, there’s an[HDMI connector](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) , a power adapter port, and a micro USB port.
@@ -82,6 +94,9 @@ Lifewire/Emily Ramirez
 
  My biggest pet peeve with the Cube’s design and features is its accessory bundle. For $120, Amazon could have afforded to throw in an HDMI cable—the $30 Roku Express has one, for instance. If you end up purchasing a Cube, remember to also get an[HDMI cable](https://www.lifewire.com/hdmi-cables-and-connectors-what-you-need-to-know-4685377) . I’ve found Blue Rigger strikes a great balance between affordability and quality, if you need a recommendation.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Setup Process: Some difficulty in getting ready**
 
  Compared to the[Fire TV Stick](https://www.lifewire.com/amazon-fire-tv-stick-4k-review-4691492) , the Cube is a little harder to set up— it doesn’t automatically boot like the Stick, and you need to take into consideration its IR receivers. It must have a clear line of sight to your remote, so place it somewhere you can see it. Additionally, if you want to take advantage of its 4K capabilities, you’ll likely want to use the included Ethernet adapter (and you’ll need to acquire an[Ethernet cable](https://www.lifewire.com/what-is-an-ethernet-cable-817548) ).
@@ -100,6 +115,10 @@ Lifewire/Emily Ramirez
 
 Lifewire/Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## **Software: Heavily biased toward Amazon services**
 
  Software is simultaneously Fire TV’s strongest and weakest point. On the one hand, the quantity of content available on the Fire TV platform is astounding—there’s over 5,000 apps to choose from, as well as a meager library of simple games to play. If you’re looking for something, you will find it.
@@ -118,6 +137,9 @@ Lifewire/Emily Ramirez
 
 Lifewire/Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: On the expensive side**
 
  The Fire TV Cube costs $120, which is frankly a little expensive compared to the Fire TV Stick 4K or an Amazon Echo. However, if you want an Echo that’s also a media player, the Cube is your best option. It comes with excellent performance, control for IoT devices, built-in speaker and mic, and svelte looks. While it’s not the best value streaming device, it’s certainly a versatile and well-featured one.

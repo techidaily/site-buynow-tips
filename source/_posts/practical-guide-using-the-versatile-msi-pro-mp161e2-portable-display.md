@@ -1,7 +1,7 @@
 ---
 title: "Practical Guide: Using the Versatile MSI Pro MP161E2 Portable Display"
-date: 2024-08-03 14:56:51
-updated: 2024-08-06 10:32:33
+date: 2024-08-09T00:56:23.656Z
+updated: 2024-08-10T00:56:23.656Z
 categories:
   - BestProducts
 description: "This Article Describes Practical Guide: Using the Versatile MSI Pro MP161E2 Portable Display"
@@ -39,6 +39,9 @@ Lifewire / Rebecca Isaacs
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ## HAVIT 5 Fan Laptop Cooler
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/Oc__n9cXABeKwLweBvavtYWeE9M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_HeroSquare-e793f085fe42447396899e6edb8c57b0.jpg)
@@ -71,6 +74,9 @@ _Our reviewer already owned this product._
 
  On top of the pad itself, it comes with a braided USB cord for protection. It could plug into one of two ports, of which I used the spare to add USB charging for USB compatible items like my[Amazon Kindle](https://www.lifewire.com/amazon-kindle-2019-review-4688850) and[Java Bluetooth headset](https://www.lifewire.com/jabra-talk-45-review-5070286) .
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/J6RTKS-ZdzNqPyF_Tm9lloOF1iM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_04-5a7071fefb884ba19eb68638fdbf1b2b.jpg)
 
 Lifewire / Rebecca Isaacs
@@ -87,12 +93,18 @@ Lifewire / Rebecca Isaacs
 
  Before getting this cooling pad, my Eluktronics laptop sounded like an airplane was taking off and landing at my desk space. I wish I could say that this changed after implementing the pad into my gaming rig, or even with my MSI laptop. Unfortunately, my laptops’ fans still sound like I’m on the tarmac instead of being at home.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/l2nDOOm1dGSmniJBqJPn708DnK8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_03-71babed64c14425184604e4825680aac.jpg)
 
 Lifewire / Rebecca Isaacs
 
  That’s not to say that this laptop cooling pad doesn’t help cool it down. Since my Eluktronics is getting some much-needed TLC in the shop, I tested the MSI’s internal temps while running[Tropico Six](https://www.lifewire.com/tropico-6-review-5077604) on my laptop. Without the laptop cooling pad, I was running around 187 degrees Fahrenheit. With the cooling pad, it adjusted to around 169 degrees. It’s not much, but it’s enough to make a difference.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ## Baffles: Adjustable for gaming and typing
 
  If you feel the laptop needs more circulation, the good news is that HAVIT also anticipated these needs, too. Anti-slip baffles offer a sturdy position on any desk, even if you push up the height to a more angled position.
@@ -111,10 +123,16 @@ Lifewire / Rebecca Isaacs
 
  I picked up my HAVIT 5 while it was on sale for around $30 back in 2019, but the usual price is around $50\. That seems a little steep, especially for fans that don’t necessarily pack the punch for gaming that most laptops require. If you keep an eye on Amazon, you can usually get this one for around $30, as it seems to go on sale fairly often.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/lItC7F6Ja8RbBfTaNXh5l9ufFqY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_05-07577b69f7d04de5a7904e798681ba02-6b3615a38d584594b89077eaf51228b2.jpg)
 
 Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## HAVIT 5 vs. Kootak Laptop Cooling Pad
 
  It makes sense to compare the Kootak Laptop Cooling Pad to the HAVIT. Both have five cooling fans, both fit laptops up to 17 inches, and both offer anti-slip baffles to ensure your laptop is safe if you want to adjust the height for more air circulation or wrist angle preferences. The key differences are design and adjustability.
@@ -133,6 +151,9 @@ Lifewire / Rebecca Isaacs
 * [Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/urban-armor-gear-macbook-pro-case-review-4689954)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  5 Fan Laptop Cooler

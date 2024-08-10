@@ -1,7 +1,7 @@
 ---
 title: Lamicall's S Series Tablet Rests - A Review Focused on Functional Design
-date: 2024-08-03 19:12:55
-updated: 2024-08-05 11:16:54
+date: 2024-08-09T00:56:18.645Z
+updated: 2024-08-10T00:56:18.645Z
 categories:
   - BestProducts
 description: This Article Describes Lamicall's S Series Tablet Rests - A Review Focused on Functional Design
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/yC6On-qzCLHr0FNrslUOZ9Rzvys=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ## Godfall
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Godfall](https://www.lifewire.com/thmb/n7w43dN9-ygwWWDulxhPK9JDT80=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Godfall-PC-Game-1-d3b0021c9f1f4c90a844bf0e8f8fcb25.jpg)
 
 Rebecca Isaacs / Lifewire
@@ -70,6 +76,9 @@ Rebecca Isaacs / Lifewire
 
 Rebecca Isaacs / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Plot: What’s that?
 
  “It was all a lie,” the narrator says, signaling the beginning of the game. What follows is an elaborate cut scene depicting everything I’d want in an adventure game: betrayal, battle, and of course, a desire for bloodthirsty vengeance.
@@ -80,6 +89,9 @@ Rebecca Isaacs / Lifewire
 
  If the devil is in the details, then Counterplay sold its soul to ensure that every leaf had ridges and grooves.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ## Graphics: Gorgeous
 
  For a bland plot, Godfall really brings its A-game with the graphics. Some of the scenes as I ran across streams and trails brought out vivid hues and beautiful environments. If the devil is in the details, then Counterplay Games sold its soul to ensure that every leaf had ridges and grooves. In that aspect, the game shines, and I felt transported into the world as I ran around destroying my enemies with a greatsword.
@@ -96,6 +108,9 @@ Rebecca Isaacs / Lifewire
 
  Each of the armor sets, based on various animals, comes with different perks, which makes for unique gameplay if you prefer poison or shock to fire damage. It can take some time to craft, modify, and upgrade both the Valorplates and weapons. More importantly, it takes time to gather the materials, so as you continue the game, you’ll have repeat quests and maps.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![Godfall](https://www.lifewire.com/thmb/lkXYe9qqH3ccZewQudKpzPWU4Xc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-2-fc516034a42a462ba1b4ab03bcc76269.jpg)
 
 Rebecca Isaacs / Lifewire
@@ -112,10 +127,16 @@ Rebecca Isaacs / Lifewire
 
  Not all the gameplay features are gripe worthy though. With up close combat, dying is inevitable, and Godfall makes sure to address the risk of constant death in three ways: a practice arena in between missions, where you can test out your latest combos; easy, fast leveling; and no death penalty. While some players will most likely balk at no death penalty, casual gamers will enjoy not having to worry about the loss of experience or equipment durability.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Godfall](https://www.lifewire.com/thmb/xztzESfeykd-1UUo9xAOFt8EPNE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-7-4a134c4dc6304645aaeb4ff4a0badefa.jpg)
 
 Rebecca Isaacs / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Platform: PS5 or PC
 
  Godfall is pretty straightforward with its platforms: PlayStation 5, or Windows PCs. It does not work on Macs, so take that into consideration before you make your purchase. In terms of gameplay, neither platform really weighs better than the other, though PC gamers with ultrawide screens may have some issues getting the correct resolution set.
@@ -124,6 +145,10 @@ Rebecca Isaacs / Lifewire
 
 Rebecca Isaacs / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ## Price: Overpriced for the amount of content available
 
  If Godfall was priced around $30, I would have been more sympathetic to its cause. However, the base game itself will cost around $60 before any kind of sale. If you want to upgrade to a higher edition, such as Deluxe or its top edition, Ascended, that will run you up to $90\. That much money for a game that seems half-finished and still requires 50GB of SSD memory is, quite frankly, way too much for anyone to pay. This is also not including the option of pre-order and Ascended content, each of which will cost another $10.

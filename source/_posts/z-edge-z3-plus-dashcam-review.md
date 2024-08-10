@@ -1,7 +1,7 @@
 ---
 title: Z-Edge Z3 Plus Dashcam Review
-date: 2024-08-02 23:51:45
-updated: 2024-08-05 12:12:51
+date: 2024-08-09T00:55:40.011Z
+updated: 2024-08-10T00:55:40.011Z
 categories:
   - BestProducts
 description: This Article Describes Z-Edge Z3 Plus Dashcam Review
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/nwdyQkyUc07O9lkxDbJdCLPcR-g=/400x300/fi
 
 ## DDpai Dash Cam mini3
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![DDpai mini3](https://www.lifewire.com/thmb/m-JiQKEOfEZO6ef5cqKE0iCn6mQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4062264_HeroSquare-49298d637a2d4aeb9ef1213bafb0ebf7.jpg)
 
 Lifewire / Danny Chadwick
@@ -65,6 +68,9 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: 21st Century Dashcam**
 
  The first thing you notice about the mini3 is that the camera housing is smooth and cylindrical. Other dash cams are very square and bulky, so right out of the box, you know this is a different kind of camera. It’s very sleek and feels like it belongs in the 21st century.
@@ -101,6 +107,9 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## **Mobile App: What sets it apart**
 
  What really sets the mini3 apart from other dashcams is its mobile app. The user manual instructs you to download the DDPai app before you use the camera for the first time. Once it’s on your phone and paired with your camera, the app’s “Camera” tab contains all the tools you need to watch the live feed, control the camera, review footage, and adjust settings—all the things that make a car cam useful.
@@ -125,10 +134,17 @@ Lifewire / Danny Chadwick
 
  Once it was installed and ready to go, we drove this dashcam through the cities, suburbs, mountains, forests, and red rocks of Utah. Because the camera is so well-hidden behind the rearview mirror, we often forgot it was there. But when we passed a particularly scenic lake or rock formation, it was natural to just reach down and push the remote button to snap a picture.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## **Price: Surprising low for what you get**
 
  As of the time of this writing, you can pick up the DDPAI mini3 for about $130\. For what you get out of this camera, we think this is a great value. Similarly-priced models we tested don’t nearly match the quality and utility you get from the mini3.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ## **Competition** :**DDPAI** **mini3 vs. Z-Edge Z3 Plus**
 
  We also tested the mini3 alongside the Z-Edge Z3 Plus, which is a similarly-priced dashcam with more of a focus on security.
@@ -151,6 +167,9 @@ Lifewire / Danny Chadwick
 * [Rexing V1 DashCam](https://www.lifewire.com/rexing-v1-dashcam-review-4770571)
 * [Anker Roav DashCam C1](https://www.lifewire.com/anker-roav-dashcam-c1-review-4773139)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Dash Cam mini3

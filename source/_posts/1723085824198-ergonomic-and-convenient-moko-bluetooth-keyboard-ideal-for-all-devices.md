@@ -1,7 +1,7 @@
 ---
 title: Ergonomic & Convenient MoKo Bluetooth Keyboard – Ideal for All Devices
-date: 2024-08-06 13:20:59
-updated: 2024-08-08 10:33:40
+date: 2024-08-09T00:56:03.761Z
+updated: 2024-08-10T00:56:03.761Z
 categories:
   - BestProducts
 description: This Article Describes Ergonomic & Convenient MoKo Bluetooth Keyboard – Ideal for All Devices
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/4f70f650b6f9e154154b14a23a923935cddb729dc
 
 4.6
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## MoKo Universal Foldable Keyboard
 
  What We Like
@@ -59,6 +62,9 @@ thumbnail: https://thmb.techidaily.com/4f70f650b6f9e154154b14a23a923935cddb729dc
 
  Thanks to its compact, foldable design, it’s easy to throw in a purse, backpack, or pocket and take along on any adventure, making it an excellent Bluetooth keyboard for frequent travelers. With a general retail price of about $26, we found it to be well worth the investment during a week’s worth of testing.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![MoKo Universal Foldable Bluetooth Keyboard](https://www.lifewire.com/thmb/gc10rUCSYdVdK9mjhhhyWwNX5Ns=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Moko_ErgoKeyboards_2LW4147386_02-6aa51e84e0c246f0987efcf9b7a55ffa.jpg)
 
  Lifewire / Emily Isaacs
@@ -87,14 +93,23 @@ thumbnail: https://thmb.techidaily.com/4f70f650b6f9e154154b14a23a923935cddb729dc
 
  The MoKo is small—hardly larger than your hand when folded down to its collapsed size.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ## Battery: Plenty of Juice for Work
 
  The battery life of the MoKo is easy to fall in love with. The MoKo’s charge time is just under two hours and it can support up to 40 hours of uninterrupted work or 30 days of standby time. One added bonus of the keyboard being rechargeable was that we weren’t dependent upon having batteries when the keyboard inevitably ran out of charge. It also has the added benefit of entering a battery-saving mode after sitting idle for 30 minutes, so if you walk away and forget about it, it won’t continue to run out its charge. Reconnecting is easy, too. Simply press any key and, within 30 seconds or less, it’s ready for use.
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Price: Highly Affordable
 
  Travel-size ergonomic keyboards generally retail for anywhere from $20-$50\. The MoKo retails for around $27 on Amazon. With its low price point, compact build, excellent portability, and great battery life, it’s well worth the price for commuters and frequent flyers who have limited space.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ![MoKo Universal Foldable Bluetooth Keyboard](https://www.lifewire.com/thmb/_ZZ5LMz0jlm5vldVU2UTdDoXbeA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Moko_ErgoKeyboards_2LW4147386_05-fc37bb4154314025a1a1bfae6c6f5e24.jpg)
 
  Lifewire / Emily Isaacs
@@ -113,6 +128,9 @@ thumbnail: https://thmb.techidaily.com/4f70f650b6f9e154154b14a23a923935cddb729dc
 
  The MoKo Universal Foldable Bluetooth Keyboard is an ultra-thin, split keyboard that packs plenty of bang for your buck. Its U-shaped ergonomic design is comfortable, and with a battery life of up to 40 hours of continuous use or 30 days of standby time make it a great choice for commuters or frequent travelers.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Universal Foldable Keyboard

@@ -1,7 +1,7 @@
 ---
 title: The Smallest Zoom Big Impact with Canon’s SX420
-date: 2024-08-03 13:31:19
-updated: 2024-08-05 11:30:14
+date: 2024-08-09T00:56:22.417Z
+updated: 2024-08-10T00:56:22.417Z
 categories:
   - BestProducts
 description: This Article Describes The Smallest Zoom Big Impact with Canon’s SX420
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/TvnGZ9KN25bX_FaYRN98ChIW4lE=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ## CumulusPRO Commercial Couture Anti-Fatigue Standing Desk Mat
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![CumulusPRO Standing Desk Mat](https://www.lifewire.com/thmb/8_oCDeNqZk6lsiRV1cDBkPIYIy4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cumulus-Pro-Comfort-Mat-1-369ebfd4ce0e4e30853a3649a0c6badb.jpg)
 
 Lifewire / Rebecca Isaacs
@@ -59,6 +65,9 @@ Lifewire / Rebecca Isaacs
 
  Standing desks are no longer a luxury. With a variety of affordable options, it only makes sense there are more standing desk mats too, including ones like the CumulusPRO. Over the course of a week, we used it for a total of 20 hours. In our testing, we checked for comfort, durability, and whether the mat could be used in multiple different settings like an office, bedroom, study, or even a kitchen. We found it to be a basic and flexible standing mat that’s likely to be a good option for most people.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![CumulusPRO Standing Desk Mat](https://www.lifewire.com/thmb/SuOtLk1ZBrl0nHIY-pQnGHEI74A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cumulus-Pro-Comfort-Mat-2-c0910221e3d340f49299d56b0509acd3.jpg)
 
  Lifewire / Rebecca Isaacs
@@ -71,6 +80,9 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ## **Comfort: A pleasant surprise**
 
  At first, we thought that we would tire easily on this mat. After all, it doesn’t come with the bells and whistles of some of the more expensive mat models out there. However, we were pleasantly surprised in that two hours of standing we weren’t fatigued. One of the reasons is because the mate is very cushy. Even though it’s thin, the moment we stepped onto it, our feet sunk into it. We also felt that the mat cradled our feet when we used it, which was a nice sensation.
@@ -85,6 +97,9 @@ In terms of versatility, the CumulusPRO mat is king.
 
  Another nice feature of the CumulusPRO is that we could wear heels and not damage it. While this may seem trivial, compared to other mats we tested, this was amazing for the ladies who like to wear heeled shoes.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: Pretty steep for a mat**
 
  At around $80 on Amazon, the CumulusPRO is expensive for a mat that doesn’t come with extra surface features. However, taking into context its versatility around the office and the home, the price is actually a solid investment. If you decide you don’t want it in your office, but say, in the kitchen, it can easily be transplanted into other areas of the house or workplace.
@@ -103,6 +118,9 @@ In terms of versatility, the CumulusPRO mat is king.
 
  For a basic mat, the CumulusPRO is a solid choice. We especially liked how it hides dirt and can be used for those who prefer to wear high heels. Considering it’s a basic standing mat, its versatility is definitely worth the investment.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Commercial Couture Anti-Fatigue Standing Desk Mat

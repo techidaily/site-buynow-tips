@@ -1,7 +1,7 @@
 ---
 title: "Budget-Friendly Brilliance with the Arcshell AR-5: Comprehensive Review"
-date: 2024-08-04 12:58:26
-updated: 2024-08-07 10:10:46
+date: 2024-08-09T00:55:43.739Z
+updated: 2024-08-10T00:55:43.739Z
 categories:
   - BestProducts
 description: "This Article Describes Budget-Friendly Brilliance with the Arcshell AR-5: Comprehensive Review"
@@ -13,8 +13,14 @@ thumbnail: https://thmb.techidaily.com/0b4edc9260dee73e74c6f70d4608ea90c51d96ccb
 
 3.1
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ## HP Notebook 15
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ![HP Notebook 15](https://www.lifewire.com/thmb/b3ZgX_8zTO6E2dB2hwJdBO31F24=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_5LW4043278-HP-Notebook-15-4-867220d9429742748f0e51dab6ab0946.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -71,6 +77,9 @@ Lifewire / Jeremy Laukkonen
 
  We put an HP Notebook 15 to the test around the office and at home to see how it handles daily tasks beyond basic benchmark numbers. We looked at things like speaker quality, its ability to handle productivity tasks and gaming, in-use battery life, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ![HP Notebook 15](https://www.lifewire.com/thmb/ByP4cHLIz7Vshzf3Ac-DIXvvdQs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW4043278-HP-Notebook-15-2-32edd74fefa149f3addd156e886ab4c2.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -85,12 +94,18 @@ Lifewire / Jeremy Laukkonen
 
  The laptop is less than an inch thick at the rear, and it slopes down to an even thinner profile at the front. It does weigh in at over four and a half pounds, which cuts down on portability somewhat, but the short battery life means you won’t be carrying this one with you everywhere anyway.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Generally straightforward, but bloatware can extend the initial setup**
 
  The HP Notebook 15 is a[Windows 10](https://www.lifewire.com/windows-10-2626217) laptop, and the setup process isn’t anything out of the ordinary for a laptop like this. We timed the initial setup, and it took less than 15 minutes from plugging it in and turning it on to hitting the desktop for the first time. HP does ask for some information (including your email address) during the signup process, but most OEMs have a similar process for setting up support and warranty information.
 
  It does come with a[Microsoft 365](https://www.lifewire.com/how-to-install-office-365-4589808) trial and about ten utilities and apps from HP that most users won’t want or need. Removing all of the bloatware extends the initial setup time significantly, especially since this isn’t the fastest laptop to begin with, but uninstalling what you don’t need does free up some space and help the laptop run a little faster.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Display: Unremarkable, and not HD**
 
  The display is one of the biggest shortcomings of the HP Notebook 15\. It’s usable, and it won’t get in the way if you’re just using the laptop for basic productivity tasks. But it’s definitely one of the places that HP cut corners to hit the budget price point. The maximum resolution is only 1366 x 768, which is on the low side for a 15.6” display.
@@ -101,6 +116,9 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ## **Performance: Outperformed by Intel HP Notebooks with similar specs**
 
  The HP Notebook 15 suffers in the performance department due to its AMD A6-9225 and 4GB of[RAM](https://www.lifewire.com/what-is-random-access-memory-ram-2618159) . It’s perfectly capable of performing basic productivity tasks like word processing, web browsing, email, and even spreadsheets, but comparable models with even slightly better processors and additional RAM beat it in every important benchmark.
@@ -125,12 +143,18 @@ Lifewire / Jeremy Laukkonen
 
  Once you get down to work, the HP Notebook 15’s keyboard is great. The keys feel nice and snappy, not mushy, and the positioning is decent. We didn’t have any trouble typing or using the touchpad, and it’s nice to have a full, island-style keyboard with a dedicated numeric keypad.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Audio: Solid sound for a budget laptop**
 
  The dual speakers are located between the keyboard and the screen and fire upward, ensuring that they won’t ever be muffled by your hands or the surface the laptop is sitting on.
 
  The sound quality is great for a laptop in this category, and we didn’t notice any distortion when listening to music or watching movie trailers on YouTube. It’s also sufficiently loud, although the speakers lack the bass response necessary to really fill a room.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Network: Decent speeds, but no 802.11ac**
 
  The wireless card is another place where HP cut corners on the Notebook 15\. Speeds are decent enough when connected to a 2.4 GHz Wi-Fi network, but the lack of 802.11ac support means you don’t have the option to connect to a 5 GHz network.
@@ -163,6 +187,9 @@ Lifewire / Jeremy Laukkonen
 
  The HP Notebook 15 won’t win any awards for performance or battery life, but it’s a classic example of the old maxim that “you get what you pay for.” The MSRP is just $299, so if you’re in the market for an ultra-budget laptop, then it’s worth a look.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Competition: For a little more money, you can get a whole lot more**
 
  The HP Notebook 15 stacks up favorably against some of its ultra-budget competitors, but it falls woefully short compared to laptops that are even marginally more expensive. This indicates that if you have a little more to spend, it’s worth investing in a better-performing machine.
@@ -185,6 +212,10 @@ Lifewire / Jeremy Laukkonen
 * [Lenovo Ideapad 320](https://www.lifewire.com/lenovo-ideapad-320-review-4686723)
 * [Asus Chromebook C202SA](https://www.lifewire.com/asus-chromebook-c202sa-review-4589359)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Notebook 15

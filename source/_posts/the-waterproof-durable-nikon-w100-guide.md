@@ -1,7 +1,7 @@
 ---
 title: The Waterproof, Durable Nikon W100 Guide
-date: 2024-08-06 22:55:42
-updated: 2024-08-07 12:42:19
+date: 2024-08-09T00:55:42.936Z
+updated: 2024-08-10T00:55:42.936Z
 categories:
   - BestProducts
 description: This Article Describes The Waterproof, Durable Nikon W100 Guide
@@ -47,6 +47,9 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
 [Jump to Review](https://www.lifewire.com/#toc-tiltable-lcd-cyberpower-cp1500pfclcd)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Just Buy This
 
 [APC Back-UPS Pro 1500VA](https://www.amazon.com/dp/B003Y24DEU/?tag=lifewire-onsite-prod-20&ascsubtag=4142625%7Cn5c900d52712540bf8e7c7a8a5e9a224616%7CB003Y24DEU)
@@ -77,6 +80,9 @@ PHOTO: Amazon
 
 **Outlets:** 5 battery, 5 surge-protected |**Battery backup power:** 1500VA/865W |**Sine Wave:** Simulated
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![APC Back-UPS Pro 1500](https://www.lifewire.com/thmb/Wgws2dpg9lfUlNEw-qFMOts2aC8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/APCBack-UPSPro1500-d674d0ed59a4433e9ad18aba55b20693.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -108,6 +114,9 @@ PHOTO: Amazon
 
 **Outlets:** 6 battery, 6 surge-protected |**Battery backup power:** 750VA/450W |**Sine Wave:** Simulated in battery backup mode, pure in standard mode
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Most Efficient
 
 [CyberPower EC850LCD](https://www.amazon.com/dp/B00DBAA696/?tag=lifewire-onsite-prod-20&ascsubtag=4142625%7Cn5c900d52712540bf8e7c7a8a5e9a224616%7CB00DBAA696)
@@ -134,6 +143,10 @@ PHOTO: Amazon
 
 **Outlets:** 6 battery, 3 surge-protected, 3 Eco |**Battery backup power:** 850VA/510W |**Sine Wave:** Simulated
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ## Versatile
 
 [CyberPower CP800AVR](https://www.amazon.com/dp/B00095W91Y?tag=lifewire-onsite-prod-20&ascsubtag=4142625%7Cn5c900d52712540bf8e7c7a8a5e9a224616%7CB00095W91Y)
@@ -159,6 +172,9 @@ PHOTO: Amazon
 
 **Outlets:** 4 battery and surge protected, 4 surge-protected |**Battery backup power:** 800VA/450W |**Sine Wave:** Simulated
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Tiltable LCD
 
 [CyberPower CP1500PFCLCD](https://www.amazon.com/dp/B00429N19W/?tag=lifewire-onsite-prod-20&ascsubtag=4142625%7Cn5c900d52712540bf8e7c7a8a5e9a224616%7CB00429N19W)
@@ -205,6 +221,9 @@ Lifewire / Jeremy Laukkonen
 
  Generally, you don’t need a UPS to last too long but it should be sufficient to start a standby power source or properly shut down the protected equipment. Some run for just a few minutes, while others will provide power all night long. Depending on your needs, make sure the on-battery runtime is ample.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Device Support
 
  How many devices will you need to connect to your UPS? Some can accommodate as many as 12 devices, while others top out at just two. Some also provide USB ports, but not all.
@@ -213,6 +232,9 @@ Lifewire / Jeremy Laukkonen
 
 Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ### Portability
 
  Some UPS devices are made for home or business use, while others are built for travel and the outdoors. If you need to take your device with you, you’ll want something with a more portable design that can fit in a handbag easily. You might even want a solar charging port so that you aren’t entirely dependent on electricity.

@@ -1,7 +1,7 @@
 ---
 title: Discover the Most Powerful Compact Gaming PCs Available
-date: 2024-08-07 19:29:25
-updated: 2024-08-08 11:18:23
+date: 2024-08-09T00:55:41.935Z
+updated: 2024-08-10T00:55:41.935Z
 categories:
   - BestProducts
 description: This Article Describes Discover the Most Powerful Compact Gaming PCs Available
@@ -13,8 +13,15 @@ thumbnail: https://www.lifewire.com/thmb/NWa72n3bWHCjodzKPT4L6wk_ofA=/540x405/fi
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ## iBuypower Custom Gaming PC
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ![iBUYPOWER Custom Gaming Computer](https://www.lifewire.com/thmb/JfPPzYLJfSqrS8jirPgVEAnttBM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Gygabyte_GEFORCE_RTX_HeroHoriz-db8d12900c4449e9b8aab6999b42372c.jpg)
 
 Alice Newcome-Beill / Lifewire
@@ -67,6 +74,9 @@ Alice Newcome-Beill / Lifewire
 
  The financial gap between building your own system and getting one built for you has reduced drastically in recent years, and while you can’t put a price tag on the sense of pride you get from building your own system, there are a number of advantages that come along with any pre-built system.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![iBUYPOWER Custom Gaming Computer](https://www.lifewire.com/thmb/-Yd3Z0BkdWgnQdWxmIOCYBiMsHw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Gygabyte_GEFORCE_RTX_02-3bb3b230aee74044b05f544b6a8dffb7.jpg)
 
 Alice Newcome-Beill / Lifewire
@@ -97,10 +107,16 @@ Alice Newcome-Beill / Lifewire
 
  While current circumstances and shortages of certain hardware are largely to blame for our system taking so long to arrive, bear in mind that even ordering a system with in-stock components may take as long as a month to reach you.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![iBUYPOWER Custom Gaming Computer](https://www.lifewire.com/thmb/OjE0wWcluyf52Y5uf0S9JXM3qFM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Gygabyte_GEFORCE_RTX_04-c215a663f64e420293eec8c248103a70.jpg)
 
 Alice Newcome-Beill / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ## Design: More bounce for the ounce
 
  The matte black metallic case from NZXT is about as simple as they come, but what it lacks in aesthetics, it more than makes up for in usability. It features cable routing channels throughout the back panel, complete with Velcro straps and loops for tying down bundles of cables. The system builder put those to good use as there was very little in the way of loose cables when I opened the back panel.
@@ -173,6 +189,9 @@ Alice Newcome-Beill / Lifewire
 
  I used PC parts picker to assemble a list of all the components I used in the build and was pleasantly surprised to find very little was tacked on as a premium. If we had chosen to build this system ourselves, it would have cost us a grand total of $4,600 before tax, which is remarkably close to what I paid iBuypower to make the system for me ($4,562). Bear in mind that I also get access to tech support, a 1-year warranty as well as the actual assembly.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![iBUYPOWER Custom Gaming Computer](https://www.lifewire.com/thmb/ZNgdquPbxQTjbSdNS2MbGVdghT0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Gygabyte_GEFORCE_RTX_05-9982bf92d93746189e3b4fe68526bea0.jpg)
 
 Alice Newcome-Beill / Lifewire
@@ -181,10 +200,16 @@ Alice Newcome-Beill / Lifewire
 
  While manufacturers like Dell and HP can certainly offer better budget options when it comes to gaming PCs, iBuyPower is the team to beat for anyone looking for a very specific build or access to top of the line parts.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![iBUYPOWER Custom Gaming Computer](https://www.lifewire.com/thmb/XsZgaXVB9SDRHMcbxxsp6J7gXf4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Gygabyte_GEFORCE_RTX_06-9155c02250094bd1b2655f035149ab8e.jpg)
 
 Alice Newcome-Beill / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## iBuypower vs. Dell Alienware Aurora R11
 
  For comparison, I’m stacking this build up against one of our top picks for gaming PCs, the Dell Alienware R11\. The R11, costs about $1,000 less, and you likely won't need several weeks of lead time to have your system shipped, and you can typically buy multiple models right off the shelf. Perhaps more importantly, Alienware has updated the GPUs on all its current configurations to include Nvidia 30-series GPUs. So if that's all you're after, an Alienware R11 configuration likely represents a smarter investment.

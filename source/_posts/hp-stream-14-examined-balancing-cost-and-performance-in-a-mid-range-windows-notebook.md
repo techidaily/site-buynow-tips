@@ -1,7 +1,7 @@
 ---
 title: "HP Stream 14 Examined: Balancing Cost and Performance in a Mid-Range Windows Notebook"
-date: 2024-08-03 14:42:39
-updated: 2024-08-05 12:45:24
+date: 2024-08-09T00:55:42.673Z
+updated: 2024-08-10T00:55:42.673Z
 categories:
   - BestProducts
 description: "This Article Describes HP Stream 14 Examined: Balancing Cost and Performance in a Mid-Range Windows Notebook"
@@ -68,16 +68,29 @@ Lifewire / Thomas Hindmarch
 
  Lifewire / Thomas Hindmarch
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## **Setup Process: A short, painless installation**
 
  Offworld Trading Company can be purchased for your PC via digital storefronts, with its multiplayer available as a free-to-play service. Simply pay your money and wait for it to finish.
 
  At this point, you can spend a surprising amount of money on the game by grabbing all its expansions at once. However, you’d do better to try the base game first, just to make sure you’re interested before you go all in.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ![Offworld Trading Company](https://www.lifewire.com/thmb/lOC0APAKrRycWJJCB5UAbnwuLtM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4145806-5-4c671b58f2944c249dc9529f0ceb477d.jpg)
 
  Lifewire / Thomas Hindmarch
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Plot: Welcome to the new gold rush**
 
  It’s the distant future, and several different economic blocs have come to Mars to capitalize on its newly available resources. As one of these corporations, ranging from a couple of obsessed scientists to a surprisingly sarcastic all-robot team, you race to stake your claims, open mines, acquire materials, and turn those materials into facilities and a solid profit. It’s all delivered with the gleeful matter-of-fact immorality of a PG-rated Gordon Gecko, through a handful of signature characters of varying degrees of eccentricity.
@@ -92,6 +105,9 @@ Lifewire / Thomas Hindmarch
 
  Lifewire / Thomas Hindmarch
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Gameplay: Buy low, sell high, cheat like crazy**
 
  Do yourself a favor and play through all the tutorials. At the start of a round, you pick a spot on the Martian landscape to drop your base module, and have a handful of land claims that you can use to place your buildings. You also have a limited amount of hard currency with which to outright buy materials on the open market. Resources you need to burn to stay in operation, such as food and fuel, will automatically be purchased, driving you into debt if necessary, but construction material will not.
@@ -114,6 +130,9 @@ Lifewire / Thomas Hindmarch
 
  That said, if the world and background of the game interest you, be sure to pick up the Market Corrections DLC, which includes a few character campaigns that fill in some of the universe’s narrative. You can also challenge yourself with last year’s Limited Supply DLC, which adds new scenarios that change you from an established corporate titan to a struggling pioneer, trying to survive on a newly-settled planet.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ![Offworld Trading Company](https://www.lifewire.com/thmb/U48yaVuxaDT_rgDJYbizc50VmiI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4145806-6-7650d9178b704125907574fd219cc3ad.jpg)
 
  Lifewire / Thomas Hindmarch
@@ -124,6 +143,9 @@ Lifewire / Thomas Hindmarch
 
  The screen can occasionally get busy and complex, but even towards the end of a game when your central base is a humming chrome science-fiction city, it’s relatively easy to figure out what’s going on. It’s not something we’d hand to a total novice, but it’s also got a surprisingly forgiving learning curve.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Offworld Trading Company](https://www.lifewire.com/thmb/yPBqB1TT1FOpODHzS8W8uWZ8wIo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4145806-7-7f0c8a93144c441a81593c64dbdaa025.jpg)
 
  Lifewire / Thomas Hindmarch
@@ -134,6 +156,9 @@ Lifewire / Thomas Hindmarch
 
  The multiplayer is really where the meat of the game lies, so try it for free and see if it grabs you, ideally with a few interested friends along for the ride. After that, you can pick up the main game and its DLC to expand your options.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Competition: A handful of super-smart, addictive contenders**
 
  Offworld Trading Company has a fast-paced feel like a war game, but the market manipulation and general political/financial struggles are more reminiscent of Sid Meier’s Civilization series. If you’re planning to play alone, then there’s really no reason to pick up Offworld when a recent Civilization game exists.
@@ -146,6 +171,9 @@ Lifewire / Thomas Hindmarch
 
  Offworld Trading Company is surprisingly easy to pick up considering its relative complexity, and has a lot of content at this point, with a compelling central loop and a good use of market forces. However, the central gameplay mechanic is always basically the same: cripple your opponent, build up your factories, buy the other guy out. As a result, we found Offworld Trading Company lost its luster quickly. It’s a fun initial run and you can get a lot out of it at a game night, but it doesn’t have the endless appeal of a Civilization.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Offworld Trading Company

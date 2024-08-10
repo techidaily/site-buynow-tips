@@ -1,7 +1,7 @@
 ---
 title: Why the HP OMEN Obelisk Is Your Best Choice in High-Powered Gaming Computers
-date: 2024-08-05 22:20:53
-updated: 2024-08-06 10:21:47
+date: 2024-08-09T00:56:09.150Z
+updated: 2024-08-10T00:56:09.150Z
 categories:
   - BestProducts
 description: This Article Describes Why the HP OMEN Obelisk Is Your Best Choice in High-Powered Gaming Computers
@@ -72,6 +72,9 @@ PHOTO: Amazon
 
 **Resolution** : 5MP | **Video Resolution** : 480p, 1304x1296 | **Waterproof** : IP65 | **Zoom** : 16x | **Connectivity** : Cable
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ## Best Resolution
 
 [AKASO EK7000](https://www.amazon.com/dp/B07JR1XZ78?tag=lifewire-onsite-prod-20&ascsubtag=4172333%7Cn1952ce80f5e14eb3ba5c12a65b99aa4805%7CB07JR1XZ78)
@@ -99,6 +102,10 @@ PHOTO: Amazon
 
  At 4K, for instance, it can shoot video at 25fps and up to 30fps at 2.7K (still a formidable resolution). These numbers are leaps and bounds ahead of hyper-specific body cams.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![AKASO EK7000 Pro 4K Action Camera](https://www.lifewire.com/thmb/buQaYLCiMIbvPnLZbQDsNe_Mwfk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW3897833-4-e64bb4c0f11047a198dc1b16705139c9.jpg)
 
 Lifewire / Scott Gercken
@@ -113,6 +120,10 @@ Lifewire / Scott Gercken
 
 [AKASO EK7000 Pro 4K Action Camera](https://www.lifewire.com/akaso-ek7000-pro-4k-action-camera-review-4770265)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## Best for Law Enforcement
 
 [Rexing P1](https://www.amazon.com/dp/B084T9CP9D/?tag=lifewire-onsite-prod-20&ascsubtag=4172333%7Cn1952ce80f5e14eb3ba5c12a65b99aa4805%7CB084T9CP9D)
@@ -144,10 +155,17 @@ PHOTO: Amazon
 
 **Resolution** : N/A | **Video Resolution** : 1080p | **Waterproof** : IP67 | **Zoom** : 21x | **Connectivity** : Cable
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ## What to Look For in Body Cams
 
  The best body cam should have a durable, compact design, good video resolution, and long battery life, so it doesn't need to be frequently recharged. Since body cameras are commonly used by outdoor adventurers, sports enthusiasts, and law enforcement, durability and a waterproof and shock resistance rating are essential to consider.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Resolution & Video Quality
 
  The key things you'll want to have in a body cam are a resolution and video quality that's crisp and smooth. The most standard resolution is 1080p at 30fps, which should give you smooth recording without breaking the budget. You can step up to 60fps if you want smoother recording (or slow down to 24fps for slow-motion effects). Above that, you get 4K, usually at 30fps, which is much sharper, resulting in a corresponding price increase.
@@ -156,6 +174,9 @@ PHOTO: Amazon
 
  As with anything that gets worn and carried around with you all the time, durability is hugely important for a body cam. If you're in law enforcement, you'll want MIL-STD 810G, a certification that promises lab-tested shock resistance, drop resistance, and more. A waterproof rating is also essential, with IP65 meaning the device is protected against submersion in water up to 5m and also resistant to dust. There are higher and lower IP ratings, with IPX ratings meaning no dust resistance and just water.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Battery Life
 
  If you wear it all day, a body cam can't be easily recharged, so battery life is essential. The size of the built-in cell can vary, with 1,000mAh to 3,000mAh being standard. Ideally, you'll want a device to take you through an 8-hour workday. Most body cams likely won't be able to last 24 hours since the battery size needs to be balanced against the compact and lightweight design. One option is to get a body cam with more than one battery so you can swap them out when one runs out of juice.

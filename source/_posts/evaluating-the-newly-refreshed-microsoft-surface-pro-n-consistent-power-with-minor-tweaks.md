@@ -1,7 +1,7 @@
 ---
 title: "Evaluating the Newly Refreshed Microsoft Surface Pro N: Consistent Power with Minor Tweaks"
-date: 2024-08-04 16:22:31
-updated: 2024-08-05 11:13:51
+date: 2024-08-09T00:55:34.841Z
+updated: 2024-08-10T00:55:34.841Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating the Newly Refreshed Microsoft Surface Pro N: Consistent Power with Minor Tweaks"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/188e4b5f7b4d2d2127c0913fec4bf39f7b63f882f
 
 4.9
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Apple MacBook Pro 13-inch (M1, 2020)
 
 ![MacBook Pro 13-inch](https://www.lifewire.com/thmb/wgDqqSKgbk3vMOZODaC0J9eWK-I=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Macbook_Pro_M1_2020_04-4d24391cc1a74240a35da5017f4f6a79.jpg)
@@ -72,6 +75,9 @@ _We purchased the MacBook Pro_   _so our reviewer could test out the laptop. Kee
 
  Alice Newcome-Beill / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Design: If it ain't broke
 
  Apple has changed very little in terms of aesthetics, keeping all the substantial changes relegated under the hood this year. The measurements from the[previous generation 13-inch MacBook Pro](https://www.lifewire.com/apple-macbook-pro-13-inch-2019-review-4770116) remain virtually unchanged, measuring a modest 0.6x12x8.5 inches (HWD) and weighing in at 3 pounds. It’s just light enough that you can confidently carry it while open from room to room when life inevitably makes an impromptu appearance on your Zoom meeting.
@@ -80,16 +86,25 @@ _We purchased the MacBook Pro_   _so our reviewer could test out the laptop. Kee
 
  The MacBook Pro features two Thunderbolt/USB 4 ports that support charging, DisplayPort, Thunderbolt 3, and USB 3.1 Gen 2\. If you want additional slots like an SD card reader of USB ports, you’ll need to use a USB-C hub.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ## Keyboard: A great typing and productivity experience
 
  If you've used a MacBook keyboard recently, you'll know what to expect here as they still use the scissor-type switches. The keys are a backlit chiclet-style design with low travel distance. I initially thought that the keyboard might be too crowded, and while making the leap from a[17-inch laptop](https://www.lifewire.com/best-17-inch-laptops-832683) layout to a 13-inch initially seemed pretty drastic, my fingers quickly acclimated to the smaller layout without too many missteps.
 
  One key addition is so small that you'd miss it unless the touch bar deliberately pointed it out when you needed to log in. That is the new fingerprint sensor planted on the top-right corner of the keyboard that allows you to quickly log in, or use Apple Pay without the need for a password. While the functionality ends there, it does thankfully work quite well. I never encountered any issues trying to get the scanner to read, and using it quickly became second nature.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![MacBook Pro 13-inch](https://www.lifewire.com/thmb/lK3rf00vNHfwVLaFF5D2swcqn_k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Macbook_Pro_M1_2020_02-a8fa9e03fafd477fb2423dfa9453b1bb.jpg)
 
  Alice Newcome-Beill / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Touchpad: A soft touch
 
  While it didn't feel mushy, the "barely-there" haptic response on the touchpad initially left me wishing for something a little punchier. But Apple has done quite a bit more than just provide us with a large singular button here.
@@ -138,6 +153,9 @@ _We purchased the MacBook Pro_   _so our reviewer could test out the laptop. Kee
 
  This shift represents an effort on the part of Apple to prove that it can once again innovate in the realm of computing now that it has more control over the overall architecture being used in its systems. While this new silicon boasts some truly impressive boosts to performance overall, there is a small drawback in that some apps that you lean on for productivity may not be fully optimized to work with the M1, even with the improvements brought by Big Sur.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Battery: This fruit has juice
 
  Another of the more noticeable improvements to the MacBook Pro is the extended battery life. I’m happy to report that in my testing, running a[4K](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) movie at maximum brightness on loop, it took the MacBook a little over 18 hours to deplete its charge. This makes Apple's latest laptop one of the best laptops for battery life currently available. What's even more amazing is how quickly it can be topped off. From being completely drained, we were able to boot up and get fully charged using the included adapter in just under an hour and a half.
@@ -150,12 +168,18 @@ _We purchased the MacBook Pro_   _so our reviewer could test out the laptop. Kee
 
  The new MacBook can still use applications built on the Intel x86 architecture like Slack and Chrome through the built-in Rosetta 2 emulator almost seamlessly. Of course, it isn't quite as fast as native applications, but any slowdown is hardly noticeable.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ## Price: A bargain at twice the price
 
  Starting at $1,299, going all the way up to $2,300 for the highest-end configuration, the MacBook Pro with the M1 processor offers incredible value. By comparison, a 13-inch MacBook that uses a 10th gen intel processor costs roughly $400 more and can't really match the performance offered by the M1 CPU. Adopting this new hardware also seems to have cut away much of the premium we see associated with Apple products, achieving price parity with many of the ultrabooks outside of the Apple ecosystem.
 
  For instance, an HP x360 Spectre with a similar performance configuration will cost around the same as an M1 MacBook. This isn't carte blanche to just bin the MacBook you bought last year but this year's MacBook represents the best value we've seen in an Apple laptop for some time.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![MacBook Pro 13-inch](https://www.lifewire.com/thmb/laPPg5mKf354wXXqoaU3Vz_jRuM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Macbook_Pro_M1_2020_04-4d24391cc1a74240a35da5017f4f6a79.jpg)
 
  Alice Newcome-Beill / Lifewire
@@ -184,6 +208,9 @@ _We purchased the MacBook Pro_   _so our reviewer could test out the laptop. Kee
 * [Apple 13-inch MacBook Air (2020)](https://www.lifewire.com/best-laptops-to-buy-4043650)
 * [Apple iPad Air 4](https://www.lifewire.com/apple-ipad-air-4-review-5091874)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  MacBook Pro 13-inch (M1, 2020)

@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Analysis: Prescription Sunglasses Fighting Digital Screen Hazards"
-date: 2024-08-07 10:57:17
-updated: 2024-08-08 10:30:59
+date: 2024-08-09T00:55:38.939Z
+updated: 2024-08-10T00:55:38.939Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Analysis: Prescription Sunglasses Fighting Digital Screen Hazards"
@@ -13,8 +13,14 @@ thumbnail: https://thmb.techidaily.com/8f94bf7c2b99f85ff1fa63d2bea22e03cd2a105f9
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## EA Sports FIFA 19
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![FIFA 19](https://www.lifewire.com/thmb/Jate27nttThF1V4flPTGhANQC3I=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4042353_HeroSquare-342d7f655d31496183465b50d3863959.jpg)
 
 Lifewire / Eric Watson
@@ -69,10 +75,16 @@ Lifewire / Eric Watson
 
  Lifewire / Eric Watson
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Doesn’t get simpler**
 
  Getting the game ready is just a matter of putting in that disc or doing a digital download from the[PlayStation Store](https://www.lifewire.com/playstation-store-for-pc-2792967) . It doesn’t get much easier than that.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Gameplay: Phenomenal difficulty curve**
 
  Controlling the player and the ball is easy to learn, and feels more natural than ever. There are dedicated buttons for ground passes, lob passes, and through passes, and another for shooting. The Shot button can be held down to quickly add height to the kick, with a well-timed final press adding accuracy to the shot. Passing and shooting must be properly aimed with the left stick, as well as executing various feints and stutters to send the defense scurrying in the wrong direction.
@@ -97,6 +109,9 @@ Lifewire / Eric Watson
 
  The UEFA Champions League is a new mode to FIFA 19\. Here we can choose to play any (or all) of the 32 teams, from PSG to Real Madrid and Manchester United over the course of the 2018-2019 season. This mode feels more like a necessary component of any FIFA soccer game rather than an impressive new add, but it’s nice to see nonetheless.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![FIFA 19](https://www.lifewire.com/thmb/Lknt7GDz1AGuKN5rbilA_mWnaY0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4042353-04-a59b0933d87a4bdc90743aa9f3b572ff.jpg)
 
  Lifewire / Eric Watson
@@ -111,6 +126,9 @@ Lifewire / Eric Watson
 
  The Journey strikes an excellent balance between cutscenes, player choices, customization, training mini-games, and actual matches. Training mini-games are effective teaching tools for learning fundamentals and skills, such as passing, crossing, and sliding tackles. Earning high grades on these training sessions, as well as achieving objectives and high player ratings during games earns skills points and stat boosts, with each character having their own skill tree and skillset to improve upon. It’s a robust, lengthy, enjoyable story campaign, and a benchmark for how other sports games should tackle this emerging gameplay mode.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Graphics: A triumph on and off the field**
 
  The default camera is so far zoomed out in FIFA 19 that any player model inconsistencies aren’t as noticeable as other sports games. Yet the models, faces, and animations still look great, and the action shows up well during instant replays and highlights. The one model that doesn’t look as smooth is the goalkeeper. It looks too much like jerking from one animation to the next, without the appearance of how a human body would realistically react and move.
@@ -121,6 +139,10 @@ Lifewire / Eric Watson
 
  Lifewire / Eric Watson
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## **Audio: Limited commentary but fantastic presentation**
 
  Soccer (or football) is vastly more popular around the world than it is in the United States, and the soundtrack reflects that with an impressive suite of international pop, rap, soul, hip-hop, and rock. Artists include Gorillaz, Octavian, Bas featuring J. Cole, and Young Fathers. The Journey campaign also features an original score by renowned cinematic composer Hans Zimmer.
@@ -133,6 +155,9 @@ Lifewire / Eric Watson
 
  FIFA 19 launched with a full $60 price tag, though almost a year later you can typically find it on sale for around $30\. Each mode, from Ultimate Team to Champions League and The Journey, is a complete package featuring several different leagues and over 700 teams from around the world. There’s an exhaustive amount of content with a satisfying level of progression for skills and players, even if you never venture online.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ## **FIFA 19 vs. Pro Evolution Soccer**
 
  With[Pro Evolution Soccer’s](https://www.konami.com/wepes/2019/us/en-us/) loss of the UEFA Champions League license to FIFA 19 this year, the age-old rivalry, one of the last remaining among big sports video game series, rests firmly in FIFA’s favor. PES is still a decent soccer simulator with impressive ball and player physics, but FIFA has been steadily improving in this area, along with much deeper and more interesting gameplay modes, such as The Journey. As a final coup, FIFA 19 has added the National Women’s Soccer League as an entire gameplay mode as a free update this summer. Any game that lets us play as and alongside Alex Morgan and Megan Rapinoe is the clear winner.

@@ -1,7 +1,7 @@
 ---
 title: Is YouTube TV Worth It? 5 Reasons to Sign Up
-date: 2024-08-04 13:43:25
-updated: 2024-08-05 11:19:14
+date: 2024-08-09T00:56:07.013Z
+updated: 2024-08-10T00:56:07.013Z
 categories:
   - BestProducts
 description: This Article Describes Is YouTube TV Worth It? 5 Reasons to Sign Up
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/GJD1LAcXVJRyt9nGstiEJmTLdBc=/400x300/fi
 
 ## TP-Link Deco P9 Hybrid Mesh WiFi System
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![TP-Link Deco](https://www.lifewire.com/thmb/mwnSZX-y0iHxAEP3l5ftTT9udk4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_TP-Link-Deco-P9-Mesh-Wifi-1-23cc25aa00f3430b83ff0340b920773a.jpg)
 
 Lifewire / Andy Zahn
@@ -38,6 +41,9 @@ Lifewire / Andy Zahn
 
 ## TP-Link Deco P9 Hybrid Mesh WiFi System
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TP-Link Deco](https://www.lifewire.com/thmb/WZYnF7YQLQF-DCDfMJj9b7oam0s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_TP-Link-Deco-P9-Mesh-Wifi-1-23cc25aa00f3430b83ff0340b920773a.jpg)
 
 Lifewire / Andy Zahn
@@ -61,6 +67,9 @@ Lifewire / Andy Zahn
 
  If you live in a large home and have suffered from the limitations of your simple, single point router, then the TP-Link Deco might just be the ideal solution to your Wi-Fi dead zone woes. This router is designed not only to broadcast a network over a wide area but also through thick walls using the existing wiring in your house.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Simple and tasteful**
 
  Each of the TP-Link Deco P9 units is identical—a white tower with an artfully ventilated top and a black strip running down the back to a pair of ethernet ports. The power cables connect to a port recessed into the underside of the units, and the cables are then routed through a slot in the back. A single[ethernet](https://www.lifewire.com/what-is-ethernet-3426740) cable is included to connect your modem to the first Deco P9 unit.
@@ -83,6 +92,9 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ## **Connectivity: Consistent coverage**
 
  The TP-Link Deco provided an impressive range even with only a single P9 unit installed. With all 3 units installed in the attic, main floor and basement of my 4,000 square foot home I was able to enjoy complete coverage. Furthermore, I was able to connect to the network throughout my yard up to about 50 feet beyond the walls. This excellent range is due in part to the Deco 9’s ability to use the existing electrical wiring in your house to transmit signals.
@@ -99,14 +111,23 @@ Lifewire / Andy Zahn
 
  You can control the Deco via your IFTTT or[Amazon Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) smart home system. Furthermore, you can set parental controls, grant various levels of priority to different devices or blocklist devices you don’t want to connect. You can also update the firmware through the app, set up a guest network, add friends and family as network managers, or access a variety of more detailed controls.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TP-Link Deco](https://www.lifewire.com/thmb/U5ITPSKjtk1XGZ9Kl9KMsBlEsNQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link-Deco-P9-Mesh-Wifi-4-ce3b915d22d048fd8ce095ab7b5dedb1.jpg)
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: Good value for mesh Wi-Fi**
 
  With an MSRP of $229, the Deco P9 provides a robust three-node[mesh Wi-Fi network](https://www.lifewire.com/what-is-a-mesh-network-4842178) at a very reasonable price point. Though it’s pricier than your average ISP-provided router, if you have a large, multi-story home it’s certainly worth the extra expense. For buildings with very thick walls, the powerline signal transmission capability of the Deco P9 adds a whole extra level of value to the system.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **TP-Link Deco P9 vs. Razer Portal**
 
  The TP-Link Deco P9 is great for large homes in neighbors without too many competing for Wi-Fi networks. However, the Razer Portal is a better choice if you’re looking for top performance in an area with a lot of interference from your neighbor's routers. It’s also significantly cheaper and can be used on its own or expanded into a mesh network with additional units. It’s worth noting, though, that the Deco P9 has a much slimmer profile than the Razer Portal, and is easier to place on a table or shelf.

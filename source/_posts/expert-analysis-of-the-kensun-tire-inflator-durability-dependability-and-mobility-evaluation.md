@@ -1,7 +1,7 @@
 ---
 title: "Expert Analysis of the Kensun Tire Inflator: Durability, Dependability & Mobility Evaluation"
-date: 2024-08-03 11:38:23
-updated: 2024-08-06 10:36:55
+date: 2024-08-09T00:55:30.576Z
+updated: 2024-08-10T00:55:30.576Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Analysis of the Kensun Tire Inflator: Durability, Dependability & Mobility Evaluation"
@@ -13,6 +13,10 @@ thumbnail: https://thmb.techidaily.com/637640ea893a93e111b973883d0f05d3166b54a33
 
 3.5
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ## SunBriteTV Weatherproof Outdoor 55-Inch Veranda (2nd Gen)
 
 ![SunBriteTV 55-Inch Veranda 4K TV](https://www.lifewire.com/thmb/SbA6fOgyA9EEgVGvd2P96Gc5Jqw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SunBrite_55inch_OutdoorTV_2LW4154865_HERO_Square-c68f638988064b98b6d844f1c9b06c47.jpg)
@@ -35,6 +39,9 @@ Lifewire / Gannon Burgett
 
 3.5
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## SunBriteTV Weatherproof Outdoor 55-Inch Veranda (2nd Gen)
 
 ![SunBriteTV 55-Inch Veranda 4K TV](https://www.lifewire.com/thmb/srDs47vmZPXcVAqFGXrMcO_CJi8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SunBrite_55inch_OutdoorTV_2LW4154865_HERO_Square-c68f638988064b98b6d844f1c9b06c47.jpg)
@@ -60,6 +67,9 @@ Lifewire / Gannon Burgett
 
  For this review, I put SunBrite’s 55-inch Veranda 4K TV to the test to see how well it would hold up to in the chilliest of environments. Over the course of 30 hours of on-and-off use throughout the month of January, I took notes of the TV’s strengths and weaknesses and have summarized my thoughts below.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Bulky, but durable**
 
  From a distance, the SunBrite 55-inch Veranda outdoor TV doesn’t look much different than your average LED television. Aside from being slightly bulkier due to its protective shell, the TV, from the front and side, looks nearly identical to any TV you’d see inside.
@@ -74,6 +84,9 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ## **Durability: Come hell or high water**
 
  Ultimately, testing the durability of the SunBrite 55 Veranda is something only time will be able to prove. However, after more than a month of near-daily use (and abuse), I’ve struggled to find anything this TV can’t handle, even in the chilling winters of northern Michigan.
@@ -82,6 +95,9 @@ Lifewire / Gannon Burgett
 
  That said, the abuse I put it through is anything but normal and so long as you aren’t literally grinding dirt into the screen or throwing rocks at it, I can’t see how this thing won’t hold up for years to come, be it rain or shine.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Setup Process: Fairly straightforward**
 
  Setting up the SunBrite 55-inch Veranda isn’t much different than setting up your average TV, with only two notable exceptions. First, it doesn’t come with a stand of any sort, meaning you’ll want to have some kind of mounting solution on hand, be it a basic wall mount or an articulating mount. SunBrite offers a few outdoor options, but there are a number of third-party options as well.
@@ -94,6 +110,9 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Image and Audio Quality: Good, but not great**
 
  The SunBrite Veranda is designed specifically to be used in full shade areas. This could include a three-seasons room, an outdoor area with a canopy or, as I opted for in this review, an outdoor shed that will block the sun, but is still exposed to the elements throughout the year.
@@ -120,6 +139,10 @@ Lifewire / Gannon Burgett
 
  For better or worse, its $2,000 price is roughly middle-of-the-line as far as outdoor TVs go and if you have the cash to spare, I can guarantee it’ll be a worthwhile luxury purchase if you enjoy spending your time outside in the sun (or snow, in my case).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ## **SunBriteTV 55-inch Veranda vs Sealoc Lanai LG 7-series**
 
  SunBriteTV knows a thing or two about creating outdoor entertainment systems, but they’re not alone. Outdoor TV company Sealoc has its own line of outdoor TVs meant for the shade and has a lot to offer with its[55-inch Sealoc Lanai LG 7-series outdoor TV.](https://www.lifewire.com/skyvue-sealoc-coastal-silver-55-inch-4k-outdoor-tv-review-5077335)

@@ -1,7 +1,7 @@
 ---
 title: Google Pixel 3 and the Art of Optimal Android Usage - Our Thorough Appraisal
-date: 2024-08-03 17:51:45
-updated: 2024-08-05 10:56:57
+date: 2024-08-09T00:55:44.479Z
+updated: 2024-08-10T00:55:44.479Z
 categories:
   - BestProducts
 description: This Article Describes Google Pixel 3 and the Art of Optimal Android Usage - Our Thorough Appraisal
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/C2I7VkzMdnWdV2KUQl8yjy7q8Zk=/400x300/fi
 
 ## Netgear C3000 Cable Modem Router
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Netgear C3000](https://www.lifewire.com/thmb/r2nn71mNtfamPTZ4ju27N_m1tIk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-4_1-3b77a598c3cd4836b8b632578b3b437e.jpg)
 
 Lifewire / Bill Thomas
@@ -37,8 +40,14 @@ Lifewire / Bill Thomas
 
 3
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Netgear C3000 Cable Modem Router
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Netgear C3000](https://www.lifewire.com/thmb/Ga2OrNlpcgoBAByp_iB08VrN5h0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-4_1-3b77a598c3cd4836b8b632578b3b437e.jpg)
 
 Lifewire / Bill Thomas
@@ -77,14 +86,23 @@ Lifewire / Bill Thomas
 
  Lifewire / Bill Thomas
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ![Netgear C3000](https://www.lifewire.com/thmb/_9ERrc4mSXFjpZAVMAwwqbfpLwM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_3-2f5e1e38512d41019430d063e63b7f9b.jpg)
 
  Lifewire / Bill Thomas
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear C3000](https://www.lifewire.com/thmb/8U-jHJ6otxXt5vRq8FVLubPNOpI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_2-a6aa93cceeaf4d9ca6bb0d989200b2ea.jpg)
 
  Lifewire / Bill Thomas
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear C3000](https://www.lifewire.com/thmb/7eGgp_5LZf8d-PMDe578GB4_hEI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_5-7c5c666203504b9ab932de0b70f14522.jpg)
 
  Lifewire / Bill Thomas
@@ -111,6 +129,9 @@ Lifewire / Bill Thomas
 
  There is a silver lining: the wired performance is reliable. When connected this way, we consistently got our rated 250 Mbps speeds with little to no drops. We spent some time playing The Division 2 while hardwired into the Netgear C3000 and didn’t run into any lag. That’s surprising given that a 8x4 DOCSIS 3.0 modem is capable of just 343 Mbps download speeds. But Netgear delivered where it truly counts: modem performance.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## Software: Pretty standard and easy to use
 
  The Netgear C3000 uses the same Genie backend that many of its networking products use. It’s a simple backend that’s easy to understand, laid out as a series of six tiles that will show you the status of your network at a glance. Connected devices, online status, even your network SSID are all displayed prominently. You can click any of these tiles to change their accompanying settings.
@@ -119,6 +140,9 @@ Lifewire / Bill Thomas
 
  There’s also a Netgear Genie mobile app on both Google Play and the App Store. The app gives you the same controls as the management portal, but with a much more user-friendly interface. This is what we’d recommend most people use to[manage their network](https://www.lifewire.com/how-to-set-up-your-home-wi-fi-network-2378223) .
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ## Price: Expensive for what it is
 
  The Netgear C3000 cable modem will set you back a whopping $94.99 at retail. Considering that you can get a 8x4 DOCSIS 3.0 cable modem for around $50 and an N300 wireless router for less than $20, it’s not exactly the best deal out there.
@@ -143,6 +167,9 @@ Lifewire / Bill Thomas
 * [Netgear C3700 Cable Modem Router](https://www.lifewire.com/netgear-c3700-cable-modem-router-review-4686094)
 * [Motorola MG7700](https://www.lifewire.com/motorola-mg7700-review-4589346)
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  C3000 Cable Modem Router

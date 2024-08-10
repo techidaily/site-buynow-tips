@@ -1,7 +1,7 @@
 ---
 title: "Assessing Performance and Style: A Detailed Look at the X4 Executive Chair by X-Chair"
-date: 2024-08-03 11:36:45
-updated: 2024-08-05 10:55:14
+date: 2024-08-09T00:55:40.114Z
+updated: 2024-08-10T00:55:40.114Z
 categories:
   - BestProducts
 description: "This Article Describes Assessing Performance and Style: A Detailed Look at the X4 Executive Chair by X-Chair"
@@ -36,6 +36,9 @@ thumbnail: https://thmb.techidaily.com/4116c8792bda40459f2d1e2a1bd6affbce6e7196e
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Sealoc Outdoor TV Full Weatherized 55" UHD Smart Weatherproof LED Television
 
 ![SkyVue 55-inch Sealoc Costal Silver TV](https://www.lifewire.com/thmb/hfv-N-kUKUqrdbk4rO9ay7vh_to=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_HERO_Square-a5f526f61e0641158a8503d02b6058b1.jpg)
@@ -61,6 +64,9 @@ thumbnail: https://thmb.techidaily.com/4116c8792bda40459f2d1e2a1bd6affbce6e7196e
 
  Outdoor TVs like the Sealoc Coastal Silver are designed to take on the elements without batting an eye and provide a great viewing experience in nearly any environment you can throw their way. In this review, I share my experience with[Sealoc’s](https://www.sealoctvs.com/) outdoor TV after spending more than 40 hours testing it over the course of two months throughout the ever-changing conditions of Michigan’s springtime.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Slim and sleek**
 
  Unlike other outdoor TV manufacturers, Sealoc doesn’t simply form a box around a[standard TV,](https://www.lifewire.com/best-tvs-to-buy-4061107) seal a few areas and call it a day. No, instead they opt to strip down the TV as it is and quite literally waterproof it from the inside out, resulting in an ultra-thin outdoor TV that you’d barely recognize was weather-sealed.
@@ -79,6 +85,9 @@ thumbnail: https://thmb.techidaily.com/4116c8792bda40459f2d1e2a1bd6affbce6e7196e
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ## **Durability: It can handle it all**
 
  The 55-inch Coastal Silver TV is part of Sealoc’s full exposure weatherproof series, which means it’s designed to take on nearly anything you can throw at it. As mentioned above, Sealoc doesn’t just slap a weatherproof case around the TV inside and call it a day. Instead, Sealoc strips down the TV and waterproofs even the internal electronic components using a proprietary “nano-coating” that helps to shed moisture away in the event it somehow manages to make it past the other sealing elements.
@@ -95,6 +104,9 @@ thumbnail: https://thmb.techidaily.com/4116c8792bda40459f2d1e2a1bd6affbce6e7196e
 
 Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Setup Process: Not much to it**
 
  Getting started with the 55-inch Coastal Silver TV is more or less plug and play. Since it doesn’t come with a stand, you will need some sort of wall mount (this particular model uses 400x400mm VESA mounting points). I suggest getting a great outdoor-specific mount to prevent unwanted rust, but if you’re planning on keeping it in a more covered area, you might be able to get away with a standard wall mount.
@@ -105,6 +117,9 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Image and Audio Quality: Fantastic, rain or shine**
 
  While this particular TV is branded as a full-sun Sealoc unit, underneath the branding and weather-sealing it’s an LG 6-series 4K HDR TV that’s been custom calibrated by Sealoc to offer specialized adjustments for optimized viewing in bright or direct-sun environments.
@@ -117,10 +132,16 @@ Lifewire / Gannon Burgett
 
  Despite being entirely weather-sealed, the TV offers great sound quality. The mid-tones are clearly pushed up in the audio, but for most applications, particularly those where voices and commentary are more prominent, this didn’t prove to be an issue. Now, if you’re hoping to hear every nuance of a movie’s soundtrack you might be disappointed, but if your environment is anything like mine, the stray humming of a lawnmower or leaf blower somewhere in the neighborhood will likely negate any high-quality analysis anyway.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![SkyVue 55-inch 4K Outdoor TV](https://www.lifewire.com/thmb/5LTt3_JmSCZ2Cjd0ggeTdVK5pUc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_04_Horiz-f4876803f40845e7a399293e04b71906.jpg)
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: You get what you pay for**
 
  I’ll get straight to the point—this TV isn’t cheap. At $3,000, you could go through at least four of the standard LG 6-series units this model is based on. But not a single one of those would last through more than a single downpour.

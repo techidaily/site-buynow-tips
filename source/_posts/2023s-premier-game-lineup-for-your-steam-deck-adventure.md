@@ -1,7 +1,7 @@
 ---
 title: 2023'S Premier Game Lineup for Your Steam Deck Adventure
-date: 2024-08-05 12:49:45
-updated: 2024-08-07 11:21:12
+date: 2024-08-09T00:55:46.702Z
+updated: 2024-08-10T00:55:46.702Z
 categories:
   - BestProducts
 description: This Article Describes 2023'S Premier Game Lineup for Your Steam Deck Adventure
@@ -18,6 +18,9 @@ thumbnail: https://www.lifewire.com/thmb/IXLbdb-maVwZNdOp5bTdHwmQBSM=/400x300/fi
 
  This article explains how to add games to an NEC Classic using NES game ROMs you own and a Windows PC.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Add Games to NES Classic
 
  While the re-release of Nintendo's original home console comes with just 30 of the best classic games built in, a new program makes it extremely easy to add more games to your NES Classic edition using a Windows PC. That said, you'll need your own NES game ROMs.
@@ -27,6 +30,9 @@ thumbnail: https://www.lifewire.com/thmb/IXLbdb-maVwZNdOp5bTdHwmQBSM=/400x300/fi
 1. With the console turned off, connect your NES Classic to a PC using a[USB cable](https://www.lifewire.com/universal-serial-bus-usb-2626039) , but leave the[HDMI cable](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) plugged into your TV to track your progress.  
  If your PC is having trouble detecting your NES Classic, try using a different USB cable other than the one included with the console.
 2. Download the most recent version of[Hakchi2](https://github.com/TeamShinkansen/hakchi2/releases) . If it comes in a[ZIP](https://www.lifewire.com/zip-file-2622675) file, extract the contents to your PC.  
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Latest version of Hakchi 2 download from Github](https://www.lifewire.com/thmb/ldwuHaj8b2scKx14RPSLHSJ9N0Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Screenshot140-5c577d1446e0fb000152f11e.png)
 3. Open**hakchi.exe** (the icon is an NES controller).  
  If you're prompted to download additional resources and[restart your device](https://www.lifewire.com/why-does-restarting-seem-to-fix-most-computer-problems-2624569) , go ahead and open hakchi.exe again after you restart.  
@@ -40,16 +46,33 @@ thumbnail: https://www.lifewire.com/thmb/IXLbdb-maVwZNdOp5bTdHwmQBSM=/400x300/fi
 7. On the Hakchi2 toolbar, select**Kernel** \>**Install/Repair,** then select**Yes** when asked if you want to flash the custom kernel.  
 ![Select Kernel > Install/Repair, then click Yes](https://www.lifewire.com/thmb/N_5Vp8fvKlu15K8g8IneRPpgamA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/005-add-more-games-to-the-nes-classic-cf58f3c816484e8e899c26bd4f7adf5e.jpg)
 8. Follow the instructions that appear. You might be required to install some drivers if they didn't automatically install when you connected the console.  
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Flash the custom kernel](https://www.lifewire.com/thmb/obxjQ5w6R-YGlPa1SqmQbuWoxcU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Screenshot153-5c5a42ee46e0fb000152fca2.png)
 9. When the process is complete, select**Synchronize selected games with NES/SNES Mini** and confirm you flashed the custom kernel.  
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Select Synchronize selected games with NES/SNES Mini](https://www.lifewire.com/thmb/OQNrcOP_nKxq5Z51RZCf26tzUJ4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/006-add-more-games-to-the-nes-classic-601953ec9f1947eca4af89041d99caba.jpg)
 10. After your ROMs finish uploading, turn off the console and disconnect it from your PC.
 11. Plug in the power source to your NES Classic and turn it on. Your new games will be inside a folder named "New Games" alongside the preloaded titles.
 12. When you want to add more games, connect the NES Classic to your PC, open**Hakchi** and select**Synchronize selected games with NES/SNES Mini** . There's no need to flash the custom kernel each time.  
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Adding new games.](https://www.lifewire.com/thmb/6dh3kGy-feD3hiGnzsqbsMpEwjk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/007-add-more-games-to-the-nes-classic-46e50620a2ee4df28fe95c05d5712c49.jpg)
 
  Making modifications to your NES Classic will void its warranty, and you could potentially damage the console. Add new games at your own risk.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Nintendo Entertainment System Classic Controller](https://www.lifewire.com/thmb/FtuZUihm95iCMHAm4i5_PRSocb0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Entertainment-System-NES-Controller-FR-5c5a494bc9e77c0001d00e2b.jpg)
 
  <https://commons.wikimedia.org/wiki/File:Nintendo-Entertainment-System-NES-Controller-FR.jpg>

@@ -1,7 +1,7 @@
 ---
 title: "Key Points: Pre-Shopping Considerations for TVs"
-date: 2024-08-06 14:36:57
-updated: 2024-08-08 11:59:56
+date: 2024-08-09T00:55:52.398Z
+updated: 2024-08-10T00:55:52.398Z
 categories:
   - BestProducts
 description: "This Article Describes Key Points: Pre-Shopping Considerations for TVs"
@@ -13,8 +13,14 @@ thumbnail: https://thmb.techidaily.com/b52695e8d8e71746809895655de9f8c6acd7b0659
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ## TP-Link Archer A6 AC1200 Gigabit Smart Wi-Fi Router
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TP-Link Archer A6 AC1200 Router](https://www.lifewire.com/thmb/hTth7_RTT4bEi0nhlZj7rPvMYL0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_HeroSquare-3758788658a244148a04b7346643557b.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -74,6 +80,9 @@ Lifewire / Jeremy Laukkonen
 
  The A6 features four antennas, two on the back, and the other two on the sides. They rotate easily for better positioning, but they aren’t removable. That’s a bit of a knock on this unit, as the ability to remove and replace antennas is pretty standard even in budget devices.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![TP-Link Archer A6 AC1200](https://www.lifewire.com/thmb/eeaRHW4APuNCYThw1t-TVwYpmSI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_04-4739ffd6705348959e05e41ab9da2292.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -96,6 +105,9 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Connectivity: Dual-band with MU-MIMO, but lacking in physical ports**
 
  The TP-Link Archer A6 is an AC1200[dual-band router](https://www.lifewire.com/dual-band-wireless-networking-explained-818279) that supports MU-MIMO beamforming. The total throughput is a little on the light side if you have a lot of devices, but MU-MIMO is a nice feature to see in such an affordable unit.
@@ -120,6 +132,9 @@ Lifewire / Jeremy Laukkonen
 
  You may end up needing a Wi-Fi range extender with the Archer A6 even if your house isn’t that large.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: Basic and easy to use**
 
  The Archer A6 uses the same familiar web interface TP-Link has used for years. If you’ve ever used a TP-Link router before, you’ll already be familiar with the system. If you haven’t, it’s very easy to pick up.
@@ -136,10 +151,16 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Good price for the features**
 
  With an MSRP of $50, the Archer A6 represents pretty decent value for the level of performance and the feature set it offers. You may want to step up to a more expensive unit if you have a big house or a lot of devices, and it is missing features like a USB port, but the Archer A6 is priced very well for what you get.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **TP-Link Archer A6 vs. TP-Link Archer A7**
 
  Don’t let the numbering scheme confuse you. The Archer A7 (see on[Amazon](https://www.amazon.com/TP-Link-AC1750-Smart-WiFi-Router/dp/B079JD7F7G%2520/?tag=lifewire-onsite-prod-20&ascsubtag=4846342%7Cndd707df741a44bb699bcdb4f97d36f3622%7C) ) is actually an older device than the A6\. It’s also a little more expensive, with an MSRP of $80 and a little faster, with an AC1750 rating compared to the AC1200 of the Archer A6.

@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Alcatel Joy Tab ² Review: Your Go-To Budget LTE Tablet Options"
-date: 2024-08-04 15:23:55
-updated: 2024-08-05 12:54:31
+date: 2024-08-09T00:56:18.333Z
+updated: 2024-08-10T00:56:18.333Z
 categories:
   - BestProducts
 description: "This Article Describes Unveiling the Alcatel Joy Tab ² Review: Your Go-To Budget LTE Tablet Options"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/857cad2a82232e03f92aad9809b4a548e4964a8c9
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Audio-Technica AT-LP120XUSB
 
 ![Audio-Technica AT-LP120XUSB-BK](https://www.lifewire.com/thmb/Y226RhUsfbd82FQQo5_2Bg5_850=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW4066854-HeroSquare-b64d56107a3247e685fc7fdbff3f1663.jpg)
@@ -78,12 +81,27 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Set up: Quick and painless**
 
  Removing the Audio-Technica AT-LP120XUSB-BK from the box, we were able to assemble it pretty quickly, though the instructions were a bit vague. We installed the platter and the felt mat on the turntable easily, and the headshell and phono cartridge on the Audio-Technica AT-LP120XUSB-BK were also a breeze to install. Balancing the tonearm was fairly straightforward as well, it just required a few trial and error adjustments of the counterweight.
 
  Lifewire / Jeff Dojillo
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance: Great audio output and format support**
 
  While testing the Audio-Technica AT-LP120XUSB-BK, we realized that it not only looks great, it performs well. After placing a record on the turntable we found it easy to choose the correct speed to play the record, with controls for 33/45/78 RPM right next to the start button.
@@ -106,10 +124,16 @@ Lifewire / Jeff Dojillo
 
  According to the instructions that were provided with the Audio-Technica AT-LP120XUSB-BK, all we had to do to convert vinyl records to digital audio was to connect the turntable via[USB](https://www.lifewire.com/universal-serial-bus-usb-2626039) and download Audacity recording software. Converting analog audio to digital was then as simple as selecting the turntable as our input device. This turntable is perfect for those looking for a simple way to record their favorite records or archive a rare vinyl collection.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: Decent price for what it delivers**
 
  Retailing at around $250 the Audio-Technica AT-LP120XUSB-BK is a great direct-drive turntable. Geared toward those that enjoy high-definition music through vinyl records, this is a great turntable that not only looks wonderful but delivers great functionality.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Audio-Technica AT-LP120XUSB-BK vs Sony PS-LX310BT**
 
  Coming in at around $178, the Sony PS-LX310BT is a great entry level turntable that has Bluetooth connectivity and, like the AT-LP120XUSB-BK, has the added benefit of connecting to your computer via USB to convert records to digital. Both models are plastic, but both are also reasonably attractive and won’t stand out in a negative way like some of the cheaper eyesores in this category do. The Sony model edges out the Audio-Technica based largely on price; the latter’s audio quality is so drastically better as to justify a $121 price bump.
@@ -122,6 +146,9 @@ Lifewire / Jeff Dojillo
 
  The Audio-Technica AT-LP120XUSB-BK is a great turntable for those that are looking for a serious, enthusiast option. Vinyl lovers that are serious about sound will want this turntable due to its customizable features and excellent sound quality—as long as it’s paired with a similarly high-end system.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Audio-Technica AT-LP60XBT-BK](https://www.lifewire.com/audio-technica-at-lp60xbt-bk-review-4772401)

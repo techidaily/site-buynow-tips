@@ -1,7 +1,7 @@
 ---
 title: Review of Samsung Galaxy Watch Active - The Ultimate Health & Fitness Companion
-date: 2024-08-04 21:51:27
-updated: 2024-08-07 11:13:23
+date: 2024-08-09T00:56:07.759Z
+updated: 2024-08-10T00:56:07.759Z
 categories:
   - BestProducts
 description: This Article Describes Review of Samsung Galaxy Watch Active - The Ultimate Health & Fitness Companion
@@ -40,6 +40,9 @@ Lifewire / Yoona Wagener
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Garmin Vivomove HR
 
 ![Garmin Vivomove HR](https://www.lifewire.com/thmb/xm431SBrzdbFLoz5ACy2cQpKj2s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Garmin-Vivomove-HR-Fitness-Tracker-Watch-1-6eafd9ff8ecd49f2902d556ec7a9b82b.jpg)
@@ -67,6 +70,9 @@ Lifewire / Yoona Wagener
 
  If you’re interested in moving more and monitoring daily activities with the help of a chic fitness-tracking watch, the Garmin Vivomove HR is worth a closer look. The is an accessory aimed at those who like to be active and stylish too. I wore and used this watch for over a week and was impressed with the look of it, level of wellness data captured, and the overall support it offers for general well-being.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Garmin Vivomove HR](https://www.lifewire.com/thmb/I4tLxDp9_npPph8lgb8sOWODnd4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivomove-HR-Fitness-Tracker-Watch-3-c8e32586b7d840a0a2c9747a6255b802.jpg)
 
  Lifewire / Yoona Wagener
@@ -81,6 +87,9 @@ Lifewire / Yoona Wagener
 
  In terms of design quirks, in lieu of a typical micro USB charging cord, this watch features a charging clip with a USB connection. The clip opens easily and must be placed directly onto the charging contacts on the back of the watch face in order to charge/transfer data. This charging method is a bit of a quirk of some Garmin watches, but it eliminates the need for charging ports that could be at risk when exposed to moisture.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup: Fast pairing with Garmin Connect**
 
  Setting up the Garmin Vivomove HR is easy through the Garmin Connect app. I already had the[mobile app](https://www.lifewire.com/what-are-apps-1616114) downloaded on my[iPhone](https://www.lifewire.com/pick-best-iphone-for-you-1999293) , which made the fast setup process speedier. The app immediately detected the Vivomove HR and then presented on-screen instructions for calibrating the watch hands, setting the wrist placement (right or left), widget preferences, and touring basic functions. This took a matter of minutes since the Garmin Vivomove HR was nearly fully charged out of the box.
@@ -97,6 +106,9 @@ Lifewire / Yoona Wagener
 
  For example, if I didn’t fully swipe past the weather widget information for the day, the screen would take me to the weekly forecast. Then I had to press the back button to get to the general widgets screen. With continued use, I became savvier with touch and swiping actions, but it was still a consistent issue when trying to start/stop workout timers. This was an even bigger issue outside and in bright sunlight, which made the screen virtually undetectable.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance: A cheerleader for wellness rather than training**
 
  The Vivomove HR is a well-rounded device. Not only does it look fashionable as an everyday accessory, but it also offers stopwatch functions, monitors heart rate (resting and active), automatically tracks activities such as running, walking, and even using an elliptical machine, and tracks steps, calories, and other fitness data such as VO2 max.
@@ -105,6 +117,9 @@ Lifewire / Yoona Wagener
 
  On a few short 1 to 3-mile runs, the Vivomove HR recorded my speed as up to 1 minute faster than my Garmin Forerunner 35 running watch. Heart rate was also considerably more elevated according to the Vivomove. And when I launched a strength training activity, the counter was always behind by about five reps. The Move IQ technology that auto-detects workouts didn’t always get it right either. Frequently when I was walking, the watch logged that stretch of movement as a running or an elliptical machine session.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Garmin Vivomove HR](https://www.lifewire.com/thmb/VpHve66CRb4yVumQ8GVo-3vNLGQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivomove-HR-Fitness-Tracker-Watch-2-240036104f704a2d8c8f8425f075709b.jpg)
 
  Lifewire / Yoona Wagener
@@ -123,10 +138,16 @@ Lifewire / Yoona Wagener
 
  In terms of design quirks, in lieu of a typical micro USB charging cord, this watch features a charging clip with a USB connection.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Battery: Solid performance for five days**
 
  Garmin says that this watch can last for over two weeks in watch mode and up to five days in smartwatch mode—which I can confirm. This claim tracked even with frequent glancing at the display and toggling through the widgets as well as receiving regular text and email updates throughout the day. I didn’t see the battery drain in any consistent way until the fifth day. And recharging the watch was fast: it took about only one hour.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Expensive, but it has a touchscreen**
 
  The Garmin Vivomove HR ranges in price from around $200 for the Sport version that comes with a silicone band to $350 for Premium leather-band alternatives. There are certainly cheaper hybrid smartwatch options on the market. Both the Withings Move Steel HR and Fossil Smartwatch HR Collider retail for less than $200\. And while they offer similar features such as message previews, heart rate, weather and sleep data, and even GPS, neither offers a touchscreen display and unique health data like stress level readings based on heart rate patterns.

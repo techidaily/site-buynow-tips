@@ -1,7 +1,7 @@
 ---
 title: Budget-Friendly Analysis of the TP-Link RE200 Wireless Range Expander (AC750)
-date: 2024-08-03 22:42:16
-updated: 2024-08-06 12:46:39
+date: 2024-08-09T00:56:02.022Z
+updated: 2024-08-10T00:56:02.022Z
 categories:
   - BestProducts
 description: This Article Describes Budget-Friendly Analysis of the TP-Link RE200 Wireless Range Expander (AC750)
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/BE7IagwFTUjaxdgp13X3VpPkHWI=/400x300/fi
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ## TP-Link Deco P9 Hybrid Mesh WiFi System
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TP-Link Deco](https://www.lifewire.com/thmb/mwnSZX-y0iHxAEP3l5ftTT9udk4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_TP-Link-Deco-P9-Mesh-Wifi-1-23cc25aa00f3430b83ff0340b920773a.jpg)
 
 Lifewire / Andy Zahn
@@ -38,6 +44,9 @@ Lifewire / Andy Zahn
 
 ## TP-Link Deco P9 Hybrid Mesh WiFi System
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TP-Link Deco](https://www.lifewire.com/thmb/WZYnF7YQLQF-DCDfMJj9b7oam0s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_TP-Link-Deco-P9-Mesh-Wifi-1-23cc25aa00f3430b83ff0340b920773a.jpg)
 
 Lifewire / Andy Zahn
@@ -67,6 +76,9 @@ Lifewire / Andy Zahn
 
  It’s not perfect though; the solid plastic walls of the router nodes trap heat, so the system gets quite hot. I had my three units running for a few weeks, and though it was never actually dangerous, it was worrying, and a device that overheats may experience a decreased lifespan.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ![TP-Link Deco](https://www.lifewire.com/thmb/hQrZfiOB9gvTAZ0DCbazOfIA5Mo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link-Deco-P9-Mesh-Wifi-3-8aced2245e2243509bc5a32a6dca49cc.jpg)
 
  Lifewire / Andy Zahn
@@ -79,10 +91,16 @@ Lifewire / Andy Zahn
 
  The only hiccup occurred when I set up the third and final unit. For some reason this caused the second unit to disconnect. Fortunately, the troubleshooting menu built into the app helped me to quickly solve the issue. Overall, this was one of the most painless network setup processes I have ever encountered.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![TP-Link Deco](https://www.lifewire.com/thmb/nzwt5K19xY4baIDcJC9aglOpo9k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link-Deco-P9-Mesh-Wifi-2-a1c339e4cb31445982c06a96f7b9e290.jpg)
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Connectivity: Consistent coverage**
 
  The TP-Link Deco provided an impressive range even with only a single P9 unit installed. With all 3 units installed in the attic, main floor and basement of my 4,000 square foot home I was able to enjoy complete coverage. Furthermore, I was able to connect to the network throughout my yard up to about 50 feet beyond the walls. This excellent range is due in part to the Deco 9’s ability to use the existing electrical wiring in your house to transmit signals.
@@ -103,6 +121,9 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ## **Price: Good value for mesh Wi-Fi**
 
  With an MSRP of $229, the Deco P9 provides a robust three-node[mesh Wi-Fi network](https://www.lifewire.com/what-is-a-mesh-network-4842178) at a very reasonable price point. Though it’s pricier than your average ISP-provided router, if you have a large, multi-story home it’s certainly worth the extra expense. For buildings with very thick walls, the powerline signal transmission capability of the Deco P9 adds a whole extra level of value to the system.

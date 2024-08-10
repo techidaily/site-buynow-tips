@@ -1,7 +1,7 @@
 ---
 title: "Comparing Samsung Galaxy S10+ and S20: In-Depth Review"
-date: 2024-08-05 19:53:41
-updated: 2024-08-07 11:56:34
+date: 2024-08-09T00:56:16.624Z
+updated: 2024-08-10T00:56:16.624Z
 categories:
   - BestProducts
 description: "This Article Describes Comparing Samsung Galaxy S10+ and S20: In-Depth Review"
@@ -41,6 +41,9 @@ PHOTO: Best Buy
 
 [$282 at Amazon](https://www.amazon.com/Galaxy-S21-Ultra-5G-Smartphone/dp/B096T6Y623?tag=lifewire-onsite-prod-20&ascsubtag=8630122%7Cn44d71f8cf1854cd282d5e5305237f08e22%7CB096T6Y623) [$398 at Walmart](https://www.walmart.com/ip/Samsung-Galaxy-S21-Ultra-5G-128GB-Black-Unlocked/590496609?slfpid=3) [$1,000 at Samsung](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fus%2Fsmartphones%2Fgalaxy-s21-5g%2Fbuy%2Fgalaxy-s21-fe-5g-128gb-unlocked-sm-g990uzafxaa%2F)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ### Features: S23 Ultra Remains Powerful With Extra Update Support
 
  At first glance, the Galaxy S23 Ultra and S21 Ultra look very similar. However, the S23 Ultra is a touch classier thanks to refinements like Gorilla Glass Victus 2 and Armor Aluminum, which means it’s more robust and also feels more expensive.
@@ -61,10 +64,16 @@ PHOTO: Best Buy
 | $1200 starting price at release    | $1200 starting price at release       |
 | Released February 2023             | Released January 2021                 |
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### S23 Ultra Snapshot: What’s New
 
  The differences between the Samsung S23 Ultra and S21 Ultra are more incremental than you might expect. Rather than implementing something significantly different, the S23 Ultra is more about refinement. It’s much faster thanks to its Snapdragon 8 Gen 2 processor and has a better display.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ### S23 Ultra Improvements
 
 * **Adaptive refresh rate** : Rather than a strict 120Hz refresh rate at all times, the S23 Ultra has an adaptive refresh rate that adjusts according to the situation (up to 120Hz).
@@ -73,10 +82,16 @@ PHOTO: Best Buy
 * **Better battery life** : Both phones have the same battery, but the S23 Ultra will last longer between charges due to a more efficient processor.
 * **Dedicated S-Pen slot** : The S23 Ultra is ready to use out of the box, saving you the need to buy a separate S-Pen or a case to fit it.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Cameras: S23 Ultra Has the Lenses To Rave About
 
  The S23 Ultra’s camera was the first to offer a 200MP wide lens compared to the S21 Ultra’s 108MP wide lens. It also offers brighter colors than the S21 Ultra, which was known for its relatively muted output. Nighttime photography also looks better on the S23 Ultra with a sharper and more detailed zoom.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Samsung Galaxy S23 Ultra](https://www.lifewire.com/thmb/t1Mwsdm2W2PeRSrL1sLl_yvFKd8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/samsung-galaxy-s23-ultra-8d91847532e7430899d8c3a9c74ff5cc.jpg)
 
  Samsung Galaxy S23 Ultra.
@@ -93,6 +108,9 @@ Kawal Dhillon / Unsplash
 | 10MP telephoto with 10x zoom | 10MP telephoto with 10x zoom |
 | 12MP Front                   | 40MP Front                   |
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ### Final Thoughts: Is Newer Better?  
 
  The Samsung Galaxy S23 Ultra has a much better camera than the S21 Ultra, providing brighter and more vivid imagery with sharper detail. However, if you love taking selfies, you will miss out on the superior 40MP front camera of the S21 Ultra and be resigned to the S23 Ultra's 12MP front lens.

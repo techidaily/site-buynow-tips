@@ -1,7 +1,7 @@
 ---
 title: "Samsung Galaxy S10 Review: A Truly Elite, Premium Smartphone"
-date: 2024-08-04 14:35:56
-updated: 2024-08-06 11:32:54
+date: 2024-08-09T00:55:58.684Z
+updated: 2024-08-10T00:55:58.684Z
 categories:
   - BestProducts
 description: "This Article Describes Samsung Galaxy S10 Review: A Truly Elite, Premium Smartphone"
@@ -13,8 +13,15 @@ thumbnail: https://thmb.techidaily.com/4c674686d1a033251a256acfde6c5f560acb7a06d
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Samsung Galaxy Fit
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/UbU9fom8autjrPBW79fdJpbGiu8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_04LW4161013-1-760c721cdfb74062a7b7a34dffa00d9e.jpg)
 
  Lifewire / Yoona Wagener
@@ -88,6 +95,10 @@ thumbnail: https://thmb.techidaily.com/4c674686d1a033251a256acfde6c5f560acb7a06d
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ## **Setup Process** :**Speedy and to the point**
 
  Other than the watch itself, the only other equipment is a wireless charging dock. Charging to 100 percent is recommended at setup, and it took us about 40 minutes for the device to charge in full from about 70 percent charged out of the box.
@@ -112,6 +123,9 @@ thumbnail: https://thmb.techidaily.com/4c674686d1a033251a256acfde6c5f560acb7a06d
 
  So while it was mostly comfortable for general wear and during exercise activities, we found that the fit suffered from being either too tight or too loose because the adjustments weren’t incremental enough. It was hard to find a just-right middle ground.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/SRdpyMKwwNLE2m_Dnn2o9thnpQ8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-3-40a8d98ca4a04e7c9b5b18531df43e6f.jpg)
 
  Lifewire / Yoona Wagener
@@ -130,6 +144,14 @@ thumbnail: https://thmb.techidaily.com/4c674686d1a033251a256acfde6c5f560acb7a06d
 
  All activity data, including information on sleep quality and patterns, is laid out clearly in the supplementary Samsung Health app, which is particularly useful for viewing a week’s worth of activity data. It’s really the only way to see beyond the most recent activity or two, which is all the watch will show you.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/APk5ikkGQieSTN39gBAQ6rf6H9E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-5-5ff5a7cfa0c34594b8d74bbb224e9800.jpg)
 
  Lifewire / Yoona Wagener
@@ -140,6 +162,9 @@ thumbnail: https://thmb.techidaily.com/4c674686d1a033251a256acfde6c5f560acb7a06d
 
  When we did have to charge the device again, we found that process to be speedy: it took only two hours to recharge in full.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ## **Software: Dial up your fitness with the Samsung Health app**
 
  Unlike other Samsung smartwatches, the Samsung Galaxy Fit is built on a FreeRTOS (real time operation software) platform. This OS relies heavily on the companion smartphone app and the Samsung Health app for a well-rounded experience.
@@ -148,12 +173,18 @@ thumbnail: https://thmb.techidaily.com/4c674686d1a033251a256acfde6c5f560acb7a06d
 
  In addition to controlling the watch settings easily from the[mobile app](https://www.lifewire.com/what-are-apps-1616114) , the Samsung Health app is the other go-to resource. Here you can view all the information captured by the activity tracker, including fitness, sleep, and even stress levels. You can also take this a step further by using the app to monitor calories, weight, and water intake.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Great for what you get**
 
  The Samsung Galaxy Fit retails for $99.99, which makes it a strong competitor in the fitness tracker market. Similarly-priced devices from the Fitbit brand offer an equivalent bundle of all-day activity tracking and general wellness features but lack the vibrant display of the Galaxy Fit.
 
  There are cheaper options out there, too, like the Garmin vívofit 4, which sells for between $60 and $80\. But it lacks a heart rate monitor or the smart capabilities of the Fit, like canned text-messaging responses and the ability to send calls straight to voicemail. For the activity tracking and smart device functionality, the Fit is a fair price and maybe even a bargain for some.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Samsung Galaxy Fit vs. Fitbit Inspire HR**
 
  The Fitbit Inspire HR is a close competitor to the Samsung Galaxy Fit. Both are priced at just below $100 and have many of the same wellness and activity tracking features. Both are water resistant up to 50 meters, track active and resting heart rate, feature sport profiles, log sleeping activity, and integrate various types of notifications.
@@ -168,6 +199,9 @@ thumbnail: https://thmb.techidaily.com/4c674686d1a033251a256acfde6c5f560acb7a06d
 
  The Samsung Galaxy Fit is an appealing option for those who want a bit of smartwatch functionality and a heavy emphasis on exercise monitoring—without shelling out too much money. The fit, ironically, may be the largest issue. But if you’re able to find the right size, this may be everything you want in a fitness tracker.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Samsung Galaxy Watch Active](https://www.lifewire.com/samsung-galaxy-watch-active-review-4766873)

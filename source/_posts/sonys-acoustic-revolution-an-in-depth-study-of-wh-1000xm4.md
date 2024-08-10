@@ -1,7 +1,7 @@
 ---
 title: "Sony's Acoustic Revolution: An In-Depth Study of WH-1000XM4"
-date: 2024-08-04 21:20:32
-updated: 2024-08-07 11:49:15
+date: 2024-08-09T00:56:04.190Z
+updated: 2024-08-10T00:56:04.190Z
 categories:
   - BestProducts
 description: "This Article Describes Sony's Acoustic Revolution: An In-Depth Study of WH-1000XM4"
@@ -69,6 +69,9 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Smaller than its predecessor, but still bulky**
 
  D-Link’s Powerline AV2000 is more about function than form. The design is minimalistic almost to a fault, with a basic, white, plastic body, a few indicator LEDs, an[Ethernet port](https://www.lifewire.com/what-is-an-ethernet-port-817546) , a sync button, and an electrical pass-through. It’s also available in a slightly larger version that costs a bit less and doesn’t come with the pass-through.
@@ -77,10 +80,17 @@ Lifewire / Jeremy Laukkonen
 
  Since you can’t plug these into a power strip without suffering a massive hit to data transfer speeds, it’s really nice to have the option to plug a power strip or any other device into the pass-through. Out test unit included the pass-through, and we highly recommend spending the extra money to get the version of the hardware with this feature.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/xx_XMhVtfwHDrdQV9zP4xFm4PkA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-02-4ccab309a3564682aefbd0a48f39355f.jpg)
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Setup Process: No special knowledge or tools required**
 
  Setting up a wired network with a set of D-Link Powerline AV2000 adapters requires absolutely no networking experience or knowledge. The setup process requires you to plug one adapter into your modem or router with an included Ethernet cable, plug the other adapter into your computer, game console, or any other device that has an Ethernet port, and then plug both adapters into power.
@@ -103,10 +113,16 @@ Lifewire / Jeremy Laukkonen
 
  Since they use the HomePlug AV2 specification, these adapters are able to take advantage of[multi-in multi-out (MIMO)](https://www.lifewire.com/mimo-wifi-routers-818332) with beamforming. This represents a massive improvement over the other HomePlug AV1 specification, both in terms of speed and the maximum distance between adapters.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/BW7yDwtrIQMB3iE9oYnM3hvr-eQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-03-2e5f7ed23f674661896b72ed0710efff.jpg)
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Network Performance: Fast, but not the fastest**
 
  These adapters are built on the excellent Broadcom BCM60500 chipset, which is used in some of the best powerline adapters on the market. The theoretical maximum network transfer speed is 2Gbps, but these adapters are limited by their[1Gbps ethernet ports](https://www.lifewire.com/definition-of-gigabit-ethernet-816338) and also the realities of home wiring.
@@ -117,6 +133,11 @@ Lifewire / Jeremy Laukkonen
 
  When tested on data transfer within the network, we measured a maximum transfer speed of 350Mbps. That’s not exactly gigabit, and speeds drop off significantly when the adapters are plugged into different circuits, but it’s still one of the fastest powerline adapters we’ve tested.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/IXQZNi3pFRjm2tdKfPMhwxTE-DA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-06-5a298aa4450e4adfb249aeae86330406.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -127,6 +148,9 @@ Lifewire / Jeremy Laukkonen
 
  The D-Link PLC utility has to be run on a Windows PC that’s connected to the same network as your Powerline AV2000 adapters. It’s fairly simple and provides a few management and testing tools. You can update the firmware of your adapters to the latest version, pinpoint a malfunctioning system, change the encryption key used by your devices, or provide custom names for each adapter.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ## **Price: On the expensive side of the scale**
 
  The D-Link Powerline AV2000 adapters are priced on the upper end of the scale for similarly equipped adapters. The version that doesn’t come with a pass-through has an MSRP of $130 and usually sells in the $100 range. The pass-through version that we tested has an MSRP of $160 and usually sells for around $110.
@@ -151,6 +175,9 @@ Lifewire / Jeremy Laukkonen
 
  The D-Link Powerline AV2000 is a great powerline adapter, but it isn’t the best. We found that these adapters are extremely easy to set up and use, and they provide fast transfer speeds, but there are alternatives that are both faster and less expensive. If you can find a pair on sale, then the price concern goes out the window, and this is a great product to own. Otherwise, take a look at the Extollo LANSocket 1500, which is both faster and less expensive.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  DHP-P701AV Powerline AV2000

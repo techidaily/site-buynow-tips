@@ -1,7 +1,7 @@
 ---
 title: LensDirect Blue Light Glasses Review
-date: 2024-08-05 11:44:29
-updated: 2024-08-07 10:42:12
+date: 2024-08-09T00:55:43.982Z
+updated: 2024-08-10T00:55:43.982Z
 categories:
   - BestProducts
 description: This Article Describes LensDirect Blue Light Glasses Review
@@ -61,6 +61,9 @@ thumbnail: https://www.lifewire.com/thmb/AOaypBNYyRJfiXGRDysuqItP1OU=/400x300/fi
 
 [Jump to Review](https://www.lifewire.com/#toc-basic-option-netgear-cm500-docsis-30-16x4-cable-modem)
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ## Best Overall
 
 [Arris Surfboard SB6190](https://www.amazon.com/dp/B016PE1X5K/?tag=lifewire-onsite-prod-20&ascsubtag=4082523%7Cnf5214e1caebb46e4825c05bae32bf72217%7CB016PE1X5K)
@@ -87,6 +90,9 @@ PHOTO: Amazon
 
 **DOCSIS Standard:** 3.0 |**Channels:** 32x8 |**Speed:** 1.2Gbps / 216Mbps |**Voice Support:** No |**MOCA:** No |**Wired Ports:** 1
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Best Performance
 
 [Netgear Nighthawk CM2000](https://www.amazon.com/dp/B08GWNZ9VF?tag=lifewire-onsite-prod-20&ascsubtag=4082523%7Cnf5214e1caebb46e4825c05bae32bf72217%7CB08GWNZ9VF)
@@ -143,6 +149,9 @@ PHOTO: Amazon
 
 **DOCSIS Standard:** 3.1 |**Channels:** 2x2 / 32x8 |**Speed:** 2.5Gbps / 800Mbps |**Voice Support:** No |**MOCA:** No |**Wired Ports:** 1 (2.5Gbps Ethernet)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## Best Design
 
 [Arris Surfboard S33](https://www.amazon.com/dp/B08FMSC5WZ?tag=lifewire-onsite-prod-20&ascsubtag=4082523%7Cnf5214e1caebb46e4825c05bae32bf72217%7CB08FMSC5WZ)
@@ -199,6 +208,10 @@ PHOTO: Amazon
 
 **DOCSIS Standard:** 3.1 |**Channels:** 2x2 / 32x8 |**Speed:** 2Gbps / 800Mbps |**Voice Support:** No |**MOCA:** No |**Wired Ports:** 2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Basic Option
 
 [Netgear CM500](https://www.amazon.com/dp/B06XH46MWW?tag=lifewire-onsite-prod-20&ascsubtag=4082523%7Cnf5214e1caebb46e4825c05bae32bf72217%7CB06XH46MWW)
@@ -223,6 +236,9 @@ PHOTO: Amazon
 
  It does not, however, work with bundled voice services that some people still use with cable bundles. When it comes to raw functionality, the CM500 can support 16 downloads and four uploads simultaneously. It can support HD and 4K video streaming, too. And all of this comes in at an affordable price that will save you money on a monthly rental.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What to Look For in a Cable Modem
 
  The world is becoming increasingly connected, and ensuring you have a decent connection in your home is more important than ever. Not only does that mean ensuring you’re subscribed to a fast internet service, but you also have the proper hardware to provide a fast and stable connection whenever needed.
@@ -235,6 +251,9 @@ PHOTO: Amazon
 
 ![Motorola MG7700](https://www.lifewire.com/thmb/1SZf8UwoZuAHJOglWXBzaJfrml8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-2-5bacf868c9e77c002c9555f3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ### When Should You Rent Your Cable Modem?
 
  Before diving into the features to consider when buying a modem, it’s worth considering the possibility of renting one from your ISP. The modems on offer by ISPs are generally decent in quality (though not as good as the modems you can buy), plus going with a rental saves you from doing the legwork of finding one on your own. Further, if anything goes wrong with your cable modem, your ISP will take responsibility for fixing or replacing it, often even sending a technician to your home to take care of everything for you.

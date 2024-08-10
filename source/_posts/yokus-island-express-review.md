@@ -1,7 +1,7 @@
 ---
 title: Yoku's Island Express Review
-date: 2024-08-05 21:59:46
-updated: 2024-08-06 10:39:16
+date: 2024-08-09T00:55:52.091Z
+updated: 2024-08-10T00:55:52.091Z
 categories:
   - BestProducts
 description: This Article Describes Yoku's Island Express Review
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/vqmXjAMhoMhHuyPj4j2xKcKyUAA=/400x300/fi
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## TP-Link Deco P9 Hybrid Mesh WiFi System
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TP-Link Deco](https://www.lifewire.com/thmb/mwnSZX-y0iHxAEP3l5ftTT9udk4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_TP-Link-Deco-P9-Mesh-Wifi-1-23cc25aa00f3430b83ff0340b920773a.jpg)
 
 Lifewire / Andy Zahn
@@ -38,6 +44,10 @@ Lifewire / Andy Zahn
 
 ## TP-Link Deco P9 Hybrid Mesh WiFi System
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![TP-Link Deco](https://www.lifewire.com/thmb/WZYnF7YQLQF-DCDfMJj9b7oam0s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_TP-Link-Deco-P9-Mesh-Wifi-1-23cc25aa00f3430b83ff0340b920773a.jpg)
 
 Lifewire / Andy Zahn
@@ -71,6 +81,9 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup process: Remarkably streamlined**
 
  After plugging in each of the Deco P9 units, I downloaded the TP-Link Deco app to continue the setup process. The included instruction booklet contains little more than a key for deciphering the color-coded lights on the device and a message telling you to download the app. After setting up a TP-Link account, the app guided me through the setup process with clear instructions that made getting my 3 units up and running a breeze.
@@ -93,12 +106,19 @@ Lifewire / Andy Zahn
 
  I found the network to be quite reliable, except for on a few occasions where my internet connection would cut out for a minute or two. This was very infrequent, and not a major issue, but it was rather annoying when this bug did occur. It uses a dynamic combination of 5Ghz and 2.4Ghz networks to create a single seamless Wi-Fi connection that automatically determines the fastest and most efficient connection for your device.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## **Software: Easy to use app**
 
  The TP-Link Deco app is streamlined and easy to use. Its home screen provides you with a list of currently connected devices, and it tracks your history of previously connected devices. It also tells how much data is uploading and downloading in real time, and gives you the option of giving an individual device priority.
 
  You can control the Deco via your IFTTT or[Amazon Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) smart home system. Furthermore, you can set parental controls, grant various levels of priority to different devices or blocklist devices you don’t want to connect. You can also update the firmware through the app, set up a guest network, add friends and family as network managers, or access a variety of more detailed controls.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ![TP-Link Deco](https://www.lifewire.com/thmb/U5ITPSKjtk1XGZ9Kl9KMsBlEsNQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link-Deco-P9-Mesh-Wifi-4-ce3b915d22d048fd8ce095ab7b5dedb1.jpg)
 
  Lifewire / Andy Zahn
@@ -107,6 +127,9 @@ Lifewire / Andy Zahn
 
  With an MSRP of $229, the Deco P9 provides a robust three-node[mesh Wi-Fi network](https://www.lifewire.com/what-is-a-mesh-network-4842178) at a very reasonable price point. Though it’s pricier than your average ISP-provided router, if you have a large, multi-story home it’s certainly worth the extra expense. For buildings with very thick walls, the powerline signal transmission capability of the Deco P9 adds a whole extra level of value to the system.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **TP-Link Deco P9 vs. Razer Portal**
 
  The TP-Link Deco P9 is great for large homes in neighbors without too many competing for Wi-Fi networks. However, the Razer Portal is a better choice if you’re looking for top performance in an area with a lot of interference from your neighbor's routers. It’s also significantly cheaper and can be used on its own or expanded into a mesh network with additional units. It’s worth noting, though, that the Deco P9 has a much slimmer profile than the Razer Portal, and is easier to place on a table or shelf.

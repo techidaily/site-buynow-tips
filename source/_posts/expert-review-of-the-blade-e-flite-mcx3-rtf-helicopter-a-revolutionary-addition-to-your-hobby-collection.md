@@ -1,7 +1,7 @@
 ---
 title: Expert Review of the Blade E-Flite mCX^3 RTF Helicopter - A Revolutionary Addition to Your Hobby Collection
-date: 2024-08-03 14:39:47
-updated: 2024-08-06 12:10:41
+date: 2024-08-09T00:55:41.396Z
+updated: 2024-08-10T00:55:41.396Z
 categories:
   - BestProducts
 description: This Article Describes Expert Review of the Blade E-Flite mCX^3 RTF Helicopter - A Revolutionary Addition to Your Hobby Collection
@@ -61,6 +61,9 @@ thumbnail: https://www.lifewire.com/thmb/tR1jJKBwxkt67USHWOapYd5ysK0=/400x300/fi
 
  Outdoor TVs like the Sealoc Coastal Silver are designed to take on the elements without batting an eye and provide a great viewing experience in nearly any environment you can throw their way. In this review, I share my experience with[Sealoc’s](https://www.sealoctvs.com/) outdoor TV after spending more than 40 hours testing it over the course of two months throughout the ever-changing conditions of Michigan’s springtime.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Slim and sleek**
 
  Unlike other outdoor TV manufacturers, Sealoc doesn’t simply form a box around a[standard TV,](https://www.lifewire.com/best-tvs-to-buy-4061107) seal a few areas and call it a day. No, instead they opt to strip down the TV as it is and quite literally waterproof it from the inside out, resulting in an ultra-thin outdoor TV that you’d barely recognize was weather-sealed.
@@ -75,6 +78,9 @@ thumbnail: https://www.lifewire.com/thmb/tR1jJKBwxkt67USHWOapYd5ysK0=/400x300/fi
 
  Compared to other outdoor TVs on the market, the SkyVue Sealoc Coastal Silver is slim and sleek, which not only creates a beautiful profile more akin to your average TV, but also makes for a much lighter piece of equipment.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ![SkyVue 55-inch 4K Outdoor TV](https://www.lifewire.com/thmb/8jle4bs6PXyy2Qzvq1c0IJW_V2E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_15_Horiz-f55f96dc584047a0b61f1e05f56976cc.jpg)
 
  Lifewire / Gannon Burgett
@@ -91,10 +97,16 @@ thumbnail: https://www.lifewire.com/thmb/tR1jJKBwxkt67USHWOapYd5ysK0=/400x300/fi
 
  Overall, unless you’re exposing this unit to salty seawater day in, day out, in the harshest environments, I have a hard time seeing how this TV won’t hold up for years to come.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ![SkyVue 55-inch 4K Outdoor TV](https://www.lifewire.com/thmb/GJ1StKRMx12EggdPfSJWCSSS7aY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_02_Horiz-1df71300a60d421f848d96050a856fbe-d93884cf38ee40188089dc6d114570d3.jpg)
 
 Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Setup Process: Not much to it**
 
  Getting started with the 55-inch Coastal Silver TV is more or less plug and play. Since it doesn’t come with a stand, you will need some sort of wall mount (this particular model uses 400x400mm VESA mounting points). I suggest getting a great outdoor-specific mount to prevent unwanted rust, but if you’re planning on keeping it in a more covered area, you might be able to get away with a standard wall mount.
@@ -105,6 +117,10 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ## **Image and Audio Quality: Fantastic, rain or shine**
 
  While this particular TV is branded as a full-sun Sealoc unit, underneath the branding and weather-sealing it’s an LG 6-series 4K HDR TV that’s been custom calibrated by Sealoc to offer specialized adjustments for optimized viewing in bright or direct-sun environments.
@@ -117,6 +133,9 @@ Lifewire / Gannon Burgett
 
  Despite being entirely weather-sealed, the TV offers great sound quality. The mid-tones are clearly pushed up in the audio, but for most applications, particularly those where voices and commentary are more prominent, this didn’t prove to be an issue. Now, if you’re hoping to hear every nuance of a movie’s soundtrack you might be disappointed, but if your environment is anything like mine, the stray humming of a lawnmower or leaf blower somewhere in the neighborhood will likely negate any high-quality analysis anyway.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ![SkyVue 55-inch 4K Outdoor TV](https://www.lifewire.com/thmb/5LTt3_JmSCZ2Cjd0ggeTdVK5pUc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_04_Horiz-f4876803f40845e7a399293e04b71906.jpg)
 
  Lifewire / Gannon Burgett
@@ -145,6 +164,9 @@ Lifewire / Gannon Burgett
 
  The 55-inch Sealoc Coastal Silver Outdoor TV is a niche product with a price to match. If you can spare the change, you won’t find a better option out there, as the TV offers a sleek design, fantastic visual/audio quality, and a fantastic operating system to top it all off.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Outdoor TV Full Weatherized 55" UHD Smart Weatherproof LED Television

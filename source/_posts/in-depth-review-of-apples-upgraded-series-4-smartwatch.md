@@ -1,7 +1,7 @@
 ---
 title: In-Depth Review of Apple's Upgraded Series 4 Smartwatch
-date: 2024-08-05 10:16:49
-updated: 2024-08-08 12:33:32
+date: 2024-08-09T00:56:10.659Z
+updated: 2024-08-10T00:56:10.659Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Review of Apple's Upgraded Series 4 Smartwatch
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/pswSi5VNLJgYU76iIIqYbLVzcyI=/400x300/fi
 
 ## Netgear Nighthawk X4 AC2200 Wi-Fi Mesh Extender (EX7300)
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ![Nighthawk X4 Wi-Fi Mesh Extender](https://www.lifewire.com/thmb/7kS7DQauBW2bFdYTVLBms3-Q84Q=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkX4_HeroHoriz-992cc019c1e64ea59b9ce72905f0381c.jpg)
 
  What We Like
@@ -34,6 +37,9 @@ thumbnail: https://www.lifewire.com/thmb/pswSi5VNLJgYU76iIIqYbLVzcyI=/400x300/fi
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Netgear Nighthawk X4 AC2200 Wi-Fi Mesh Extender (EX7300)
 
 ![Nighthawk X4 Wi-Fi Mesh Extender](https://www.lifewire.com/thmb/pbxpBfhizGFobbPawynEvJ-QMRE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkX4_HeroHoriz-992cc019c1e64ea59b9ce72905f0381c.jpg)
@@ -66,10 +72,16 @@ thumbnail: https://www.lifewire.com/thmb/pswSi5VNLJgYU76iIIqYbLVzcyI=/400x300/fi
 
  On the left side are On/Off and WPS connectivity buttons, as well as a switch that lets you swap between using the device as an extender (to repeat an existing Wi-Fi signal) or an access point, which would create a wireless network from a plugged-in Ethernet cable from your modem. That[Ethernet port](https://www.lifewire.com/what-is-an-ethernet-port-817546) is on the bottom of the device, and when in the typical extender mode, you can use it to plug in a wired device to access the wireless network.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![Netgear Nighthawk X4 (EX7300) Wi-Fi Mesh Extender](https://www.lifewire.com/thmb/ahWiBPBlk75slmsmgc-c4cnSgf8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkX4_03-6a6cab81b4ec4da39c89aa3a92cb1f16.jpg)
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ## **Setup Process: Simple setup, awkward app**
 
  Setting up the Netgear Nighthawk X4 essentially means capturing the signal from your Wi-Fi router and then finding an ideal spot to place the extender to bring Wi-Fi into dead zones and areas with an inconsistent signal.
@@ -86,6 +98,9 @@ thumbnail: https://www.lifewire.com/thmb/pswSi5VNLJgYU76iIIqYbLVzcyI=/400x300/fi
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Connectivity: Steady, stellar speeds**
 
  The Netgear Nighthawk X4 worked as advertised, delivering strong speeds, improving upon the signal available from the router in the further corners of my house, and even holding a 5GHz signal pretty well when a fair distance away from the extender. The[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) (multiple user, multi-in multi-out) design allows for more simultaneous signals while beamforming helps hone a signal towards its requesting device. All told, these technological advancements seem to help deliver strong wireless performance.
@@ -100,6 +115,9 @@ thumbnail: https://www.lifewire.com/thmb/pswSi5VNLJgYU76iIIqYbLVzcyI=/400x300/fi
 
  Online gaming was also smooth across the board with the Netgear Nighthawk X4\. I saw a typical ping of around 38 with both the 2.4GHz and 5GHz extended networks in Rocket League, and a couple points faster when plugged into the Ethernet port. I played several matches across the configuration options and encountered no sluggishness.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ![Netgear Nighthawk X4 Wi-Fi Mesh Extender](https://www.lifewire.com/thmb/ugGkkd4SJutt9ZSqg6hsgakNAAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkX4_05-8a00f82288884d71bd867f253500e04f.jpg)
 
  Lifewire / Andrew Hayward

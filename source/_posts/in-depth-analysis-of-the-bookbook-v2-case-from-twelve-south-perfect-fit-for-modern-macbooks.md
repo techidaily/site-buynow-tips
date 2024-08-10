@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of the BookBook V2 Case From Twelve South - Perfect Fit for Modern MacBooks
-date: 2024-08-03 22:19:21
-updated: 2024-08-06 11:23:57
+date: 2024-08-09T00:56:17.414Z
+updated: 2024-08-10T00:56:17.414Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of the BookBook V2 Case From Twelve South - Perfect Fit for Modern MacBooks
@@ -13,6 +13,9 @@ thumbnail: https://www.lifewire.com/thmb/5_jg8y2fXvQNoAMhSzJp3ZZFbkA=/400x300/fi
 
 2.2
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Pruveeo F5 FHD 1080P Dash Cam
 
 ![Pruveeo F5 FHD 1080P Dash Cam](https://www.lifewire.com/thmb/HxuX8Nh2m27bJICrrOKRxkDa_ZA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4149406-HeroSquare-d2d1dcc28b154c6a882988be1138b9e1.jpg)
@@ -39,6 +42,9 @@ Lifewire / Andy Zahn
 
 2.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## Pruveeo F5 FHD 1080P Dash Cam
 
 ![Pruveeo F5 FHD 1080P Dash Cam](https://www.lifewire.com/thmb/HralEtvgYYnUzQf18LIyFW3UhkU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4149406-HeroSquare-d2d1dcc28b154c6a882988be1138b9e1.jpg)
@@ -93,6 +99,9 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Camera Quality: Extremely poor**
 
  Every issue associated with a cheap camera is magnified in the Pruveeo F5\. It’s actually hard to know where to begin when describing the serious problems present in the footage this dash cam produces. Artifacting, noise, poor color, and a mushy, unclear appearance make reviewing the video from the Pruveeo F5 an almost painful experience. You won’t be using this to film your vacation.
@@ -103,6 +112,9 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Performance: Lackluster and very basic**
 
  The F5 records video and audio poorly but reliably, and you can loop video so that old video is erased as new video is recorded, and lock important video clips to keep them from being erased by accident. Unlike other dash cams, this locking function must be triggered manually with a button press rather than automatically by collision sensors.
@@ -113,6 +125,9 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Connectivity and software: Mysteriously absent**
 
  You will find in your instructions information on using Wi-Fi and a mobile app. However, as pointed out on Pruveeo’s Amazon storefront and on Pruveeo’s website, the feature has been removed from the F5\. This is not a death blow to the camera, but it severely limits its appeal compared to competing products. Without Wi-Fi and the companion app (GoPlus Cam), you can’t use the various features this enables. You can’t use your phone to remotely control the Pruveeo F5, use it as a viewfinder, download files to your phone, or change settings using a less frustrating interface than that built into the camera.
@@ -133,6 +148,9 @@ Lifewire / Andy Zahn
 
  The only reason not to completely write off the Pruveeo F5 as hot garbage is how frequently it’s on sale, but enough at a discount it’s not a great product. It’s only barely possible, given its limited capabilities, to use this as an aid for insurance claims in case of accidents. For all its faults we did find it to be reliable, and the video it captures marginally acceptable for its purpose, but there are so many better options available for slightly more money.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  F5 FHD 1080P Dash Cam

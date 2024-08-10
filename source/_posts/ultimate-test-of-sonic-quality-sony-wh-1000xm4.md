@@ -1,7 +1,7 @@
 ---
 title: Ultimate Test of Sonic Quality - Sony WH-1000XM4
-date: 2024-08-03 13:42:36
-updated: 2024-08-06 12:51:50
+date: 2024-08-09T00:56:24.347Z
+updated: 2024-08-10T00:56:24.347Z
 categories:
   - BestProducts
 description: This Article Describes Ultimate Test of Sonic Quality - Sony WH-1000XM4
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/5S8xpr946IHbwJZO4KOyD9PhuRY=/400x300/fi
 
 ## Microsoft Flight Simulator X: Gold Edition
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Microsoft Flight Simulator X: Gold Edition](https://www.lifewire.com/thmb/-o00S2NMqAuV6ju2tL_3_pNbMMk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW840502MicrosoftFlightSimX_HeroSquare-ff9662e0ea894d8e8964aa8b64e9af9f.jpg)
 
  Lifewire / Zach Sweat
@@ -63,10 +66,16 @@ thumbnail: https://www.lifewire.com/thmb/5S8xpr946IHbwJZO4KOyD9PhuRY=/400x300/fi
 
  So how does this legendary flight simulator hold up today? It’s not without its flaws, but the experience is still a solid one. Check out our review here and see for yourself.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ![Microsoft Flight Simulator X: Gold Edition](https://www.lifewire.com/thmb/uwjre5Sam8ge-OfnA-CJEUdp8Vo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW840502MicrosoftFlightSimX_02-308281f4a45a45439f265538706d4f33.jpg)
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Setup Process: Please insert disc 1**
 
  Setting up a game this old isn’t quite as easy as a modern game, but it’s not a terrible process overall. Now your particular setup will vary a bit, but it should be mostly the same.
@@ -93,6 +102,18 @@ thumbnail: https://www.lifewire.com/thmb/5S8xpr946IHbwJZO4KOyD9PhuRY=/400x300/fi
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Gameplay: Dated, but still solid**
 
  Given that FSX is now quite old, the gameplay still holds up for the most part, but feels somewhat dated in certain areas. Because this game comes complete with all the original content and expansions, there’s a daunting amount of content to sift through, which keeps replayability high.
@@ -115,6 +136,9 @@ thumbnail: https://www.lifewire.com/thmb/5S8xpr946IHbwJZO4KOyD9PhuRY=/400x300/fi
 
  The addition of a HOTAS also really adds to the experience and immersion of the game, and we highly recommend picking one up if you can. During our testing, the Thrustmaster T16000M FCS paired quite nicely with FSX and allowed us to custom tailor controls to our liking. The ability to pilot your virtual aircraft with somewhat realistic peripherals definitely adds a nice level of detail to the gameplay.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Microsoft Flight Simulator X: Gold Edition](https://www.lifewire.com/thmb/oUI0sMg_D0Wrf9Maq7QACUvz4sI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW840502MicrosoftFlightSimX_04-a52be5fb83e54c04acfc68a9b28af39d-2c15555da01247beb7532ce91594646d.jpg)
 
 Lifewire / Zach Sweat
@@ -155,12 +179,18 @@ Lifewire / Zach Sweat
 
  It’s crazy to think that a game that’s over a decade old is still relevant today, but FSX is one of those legendary titles that keeps chugging along. If you can handle the outdated graphics and controls, it will easily bring you hundreds of hours of entertainment.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Minecraft](https://www.lifewire.com/minecraft-review-4777049)
 * PlayerUnknown’s Battlegrounds
 * [Overwatch](https://www.lifewire.com/overwatch-review-4769890)
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Flight Simulator X: Gold Edition

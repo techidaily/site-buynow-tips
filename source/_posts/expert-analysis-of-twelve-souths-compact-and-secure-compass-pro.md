@@ -1,7 +1,7 @@
 ---
 title: Expert Analysis of Twelve South's Compact and Secure Compass Pro
-date: 2024-08-07 11:43:18
-updated: 2024-08-08 12:36:52
+date: 2024-08-09T00:55:54.170Z
+updated: 2024-08-10T00:55:54.170Z
 categories:
   - BestProducts
 description: This Article Describes Expert Analysis of Twelve South's Compact and Secure Compass Pro
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/RbH1L50C2WDwsCIJHL9rumjvuMg=/400x300/fi
 
 ## Jaco SmartPro Digital Tire Inflator Pump
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Jaco SmartPro Digital Tire Inflator](https://www.lifewire.com/thmb/Zen4KJ79dgFOiAoxcIwd-DLRfas=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/JacoTireInflator_HeroSquare-3363a32b2cad4c91b4662ed6f6a93ce1.jpg)
 
 Lifewire / Jeffrey Daniel Chadwick
@@ -38,6 +41,10 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.9
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## Jaco SmartPro Digital Tire Inflator Pump
 
 ![Jaco SmartPro Digital Tire Inflator](https://www.lifewire.com/thmb/fTLjCd9CqbSCdmXD-XxJjBhyfSw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/JacoTireInflator_HeroSquare-3363a32b2cad4c91b4662ed6f6a93ce1.jpg)
@@ -64,6 +71,9 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ## **Design and Features: Simple, compact, intuitive**
 
  At just 7.5 inches wide, 2.5 inches tall and 6 inches long, this is the smallest, most compact portable tire inflator we tested. When it’s in its carrying case, it only weighs 2 pounds, 31 ounces. Even small children should be able to carry it. If you need a portable tire inflator but don't have a lot of space, this pump is exactly what you want.
@@ -88,6 +98,9 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Setup Process: Up and running in less than three minutes**
 
  Jaco provides a brief, but informative user manual tucked in the carrying case. Despite how intuitive this pump is to use, you should take five minutes to read the whole thing. During testing, we timed how long it takes to get out of your driver’s seat, retrieve the pump from the trunk, connect it to power, attach it to an under-inflated tire, set the pressure and start the pump. On average, the whole process took about 1 minute, 30 seconds.
@@ -96,6 +109,9 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ## **Performance: Reliable across the highways of America**
 
  In order to recreate the situations that you’re most likely to use a portable tire inflator, we took the models we tested on a long road trip through the states of Nevada, Utah, and Wyoming. When we stopped at rural rest areas and gas stations along the way, we deflated the tires on our car to 20 PSI—the point where they are dangerously low to drive on.
@@ -116,6 +132,9 @@ Lifewire / Jeffrey Daniel Chadwick
 
  It’s impossible to predict how long a product will last after just a few days or using it, however, the warranty period is a good indicator of the long-term durability. Jaco offers a lifetime warranty on this compressor, so it should last a really long time, or at least until you forget it’s still under warranty.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Jaco SmartPro Digital Tire Inflator vs. Kensun Portable Tire Inflator**
 
  We tested this the SmartPro Digital Tire Inflator side-by-side with the Kensun Portable Tire Inflator. Although the Kensun is about twice as large as the Jaco, they’re designed to do the same thing. For example, they both draw power from your car’s 12V socket, but if you want to get away from your car, the Kensun comes with an AC power cord that you can plug into a wall socket. This makes the Kensun a much more versatile pump. And while the built-in light on the Kensun provides great illumination at night, it lacks the hazard and emergency lights you get with Jaco.

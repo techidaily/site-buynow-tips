@@ -1,7 +1,7 @@
 ---
 title: "Avoid TV Recorder Trap: Reflect Before You Buy"
-date: 2024-08-02 11:57:32
-updated: 2024-08-05 10:20:59
+date: 2024-08-09T00:55:47.320Z
+updated: 2024-08-10T00:55:47.320Z
 categories:
   - BestProducts
 description: "This Article Describes Avoid TV Recorder Trap: Reflect Before You Buy"
@@ -47,6 +47,9 @@ PHOTO: Amazon
 
 [$449 at Amazon](https://www.amazon.com/dp/B0CL5KNB9M?tag=lifewire-onsite-prod-20&ascsubtag=4154610%7Cn581a2dc3ff9d4e12aa7563f93e0778da14%7CB0CL5KNB9M) [$485 at Walmart](https://www.walmart.com/ip/Sony-PlayStation-5-PS5-Disc-Console-Slim/5113183756?slpfid=3) [$500 at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fsony-interactive-entertainment-playstation-5-slim-console-white%2F6566039.p%3FskuId%3D6566039)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## The Original
 
 [Sony PlayStation 5](https://www.amazon.com/dp/B0CL61F39H?tag=lifewire-onsite-prod-20&ascsubtag=4154610%7Cn581a2dc3ff9d4e12aa7563f93e0778da14%7CB0CL61F39H)
@@ -69,6 +72,9 @@ PHOTO: Target
 
 **TL;DR** : Sony's latest console sports some great exclusive games and extensive media capabilities and is pretty speedy, too. It's also slimmed down from the original.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Why We Recommend These
 
  The Sony PlayStation 5 is everything you could want from a games console. It’s simple to boot up and play games on with a straightforward menu system that won’t confuse you.
@@ -89,6 +95,9 @@ Lifewire / Jennifer Allen
 
  I really enjoyed playing games with the PS5 DualSense controller.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![PS5 controller.](https://www.lifewire.com/thmb/AG7JE7IhgP9OyHKJb7-gYZsSc9w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/PS5controller-a37dda31e1f34f1e9867c9d21b3a239d.jpg)
 
 Lifewire / Jennifer Allen
@@ -128,6 +137,9 @@ PHOTO: Walmart
 
 **TL;DR** : Cute, colorful, and with plenty of games, the Nintendo Switch Lite is a great budget-friendly console.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Why We Recommend This
 
  The Nintendo Switch Lite is an incredibly cute-looking handheld console.
@@ -142,6 +154,9 @@ PHOTO: Walmart
 
  Games can be bought digitally or as physical cartridges. The console has 32GB of internal storage, which can always be upgraded with a microSD card.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Nintendo Switch Lite gaming console.](https://www.lifewire.com/thmb/TmYyOgzBYexzwHM_D35w2XJF68c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NintendoSwitchLite1-33b6996f36534d1da9974a460e6c5139.jpg)
 
 Lifewire / Jennifer Allen
@@ -226,6 +241,9 @@ Lifewire / Jennifer Allen
 
  For more advice,[read our gaming console buying guide](https://www.lifewire.com/before-you-buy-gaming-console-8654423) .
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ## Other Consoles We Considered
 
 * The[Nintendo Switch OLED](https://www.amazon.com/Nintendo-Switch-OLED-Model-Mario-Red/dp/B09NCMZNJK?tag=lifewire-onsite-prod-20&ascsubtag=4154610%7Cn581a2dc3ff9d4e12aa7563f93e0778da14%7C) is the ultimate Nintendo Switch. It can be docked to your TV for big-screen entertainment with the family and played portably with a high-end OLED screen.

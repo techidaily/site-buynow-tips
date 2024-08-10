@@ -1,7 +1,7 @@
 ---
 title: "Top Reviews of Fellowes Microban Wired Keyboards: Affordable Quality at Its Finest"
-date: 2024-08-07 22:47:34
-updated: 2024-08-08 12:20:27
+date: 2024-08-09T00:55:50.773Z
+updated: 2024-08-10T00:55:50.773Z
 categories:
   - BestProducts
 description: "This Article Describes Top Reviews of Fellowes Microban Wired Keyboards: Affordable Quality at Its Finest"
@@ -36,8 +36,14 @@ Lifewire / Rebecca Isaacs
 
 4.6
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Ergodriven Topo Standing Desk Mat
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/GZTKidZtByl51GvkYiB-jNjEjbE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Ergodriven-Topo-Comfort-Mat-1-ccd96f7c454945c3b974a2f5cba4fe79.jpg)
 
 Lifewire / Rebecca Isaacs
@@ -59,10 +65,16 @@ Lifewire / Rebecca Isaacs
 
  A standing desk isn’t complete without a standing desk mat, at least not if you value your comfort. We tried out the Topo by Ergodriven Standing Desk Mat, testing it for comfort, design, and performance. We decided to test it for a few hours a day over the course of a week to see how it worked.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/KYfJPJ0jHZhmy15IUeGxDL8kmRw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ergodriven-Topo-Comfort-Mat-2-547d9823c4ac47cbb5a360040866172a.jpg)
 
  Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
 ## **Design: Simply modern**
 
  At 26.2 inches by 29 inches (LW), the Topo is a fairly wide mat, giving the user lots of berth to shift around. It comes with two power wedges in the back with calf-stretching inclines in the front that end up going 2.7 inches high, though the bottom platform of the mat is much thinner. It also comes with a massage mound in the center of the mat. For the most part, we liked the mat, but placing the massage mound in the center we felt was detrimental for standing space.
@@ -85,12 +97,18 @@ Lifewire / Rebecca Isaacs
 
  We also liked how the mat slides around on various surfaces, but it’s not too slippery. We hauled it around to various offices with tile and carpet. Each time we set it down, we could push it under the desk with ease if we needed to sit for extended lengths of time and pull it out just as easily when we wanted to stand.
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Pretty steep for a mat**
 
  At around $100 on Amazon, the Topo is in the higher price range for a standing desk mat. We could find models that don’t have the massage mound in the center, however, the steep power wedges in the back make it a reasonable investment for anyone who really wants to stretch out their legs.
 
  For a standing desk mat with some exercise features, the Ergodriven Topo is a fairly decent choice.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Topo Ergodriven vs. CubeFit TerraMat**
 
  We decided to compare the Ergodriven Topo against CubeFit’s TerraMat. Price-wise, they’re very similar, retailing around $100\. They also come with massage mounds and various power wedges. However, the TerraMat has more features on the mat itself, including a balance bar and plantar mounds off to the sides, as well as a massage mound in the front. None of the actual features are located in the TerraMat’s center, unlike the Topo mat.

@@ -1,7 +1,7 @@
 ---
 title: "X-Plane 11 Evaluated: Next-Gen Graphics and Gameplay in an Elite Global Flight Simulator Experience"
-date: 2024-08-03 14:25:35
-updated: 2024-08-06 12:20:30
+date: 2024-08-09T00:55:48.446Z
+updated: 2024-08-10T00:55:48.446Z
 categories:
   - BestProducts
 description: "This Article Describes X-Plane 11 Evaluated: Next-Gen Graphics and Gameplay in an Elite Global Flight Simulator Experience"
@@ -15,6 +15,14 @@ thumbnail: https://thmb.techidaily.com/22aa5877473f7aef18423fbe77d7ea5e7e2937ae2
 
 ## X-Plane 11 Global Flight Simulator
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/6zqUG0dXodiu77fxFaPt_4CTLHM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_HeroSquare-05bcd9665c244e8591478794f6732934.jpg)
 
 Lifewire / Zach Sweat
@@ -37,6 +45,10 @@ Lifewire / Zach Sweat
 
 4
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ## X-Plane 11 Global Flight Simulator
 
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/8OsXHzWBVNEzvelLnfybKyzm3bk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_HeroSquare-05bcd9665c244e8591478794f6732934.jpg)
@@ -107,6 +119,10 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## **Graphics: Breathtaking visuals, but subpar optimization**
 
  With such a monster storage requirement, it’s no surprise that the details and graphics in X-Plane 11 are pretty remarkable. Planes themselves are the focus here, so the textures are superb. Also because Laminar chose to focus on fewer aircraft overall, the ones they’ve included all feel exceptionally well fleshed out. That tradeoff might not appeal to those who want hundreds of vehicles to select from, but it does make the selection in the game quite impressive.
@@ -127,10 +143,25 @@ Lifewire / Zach Sweat
 
  Lastly, we do recommend running the game on an SSD if you can, as HDDs are known to create annoying pop-ins while loading landscapes during flights.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/vw51Z13aohls1Ebaej2J6l1z-0E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_02-ae4e2d16b4db412aaa3e933fd3dfc7ab.jpg)
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ## **Price: In line with modern games, but pricey DLC not included**
 
  Because X-Plane 11 is a relatively newer game, the price is what you’d expect from most current AAA titles. The game is currently priced at about $60-70 depending on where you purchase it, so it’s not exactly cheap, but it is average for the market.
@@ -141,6 +172,9 @@ Lifewire / Zach Sweat
 
  One nice feature with X-Plane is that you do have the option to install mods. These free packs of user-generated content can really spice things up by providing custom aircraft and environments if you’re looking to add content without adding more money. They aren’t as numerous as the mod options for FSX, but they’re there if you want them.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **X-Plane 11 Global Flight Simulator vs. Microsoft Flight Simulator X**
 
  Comparing a classic staple in flight simulators like FSX to a more modern one like X-Plane 11 might feel a bit strange, but these two games are the most popular around even today. Given that FSX is about a decade older than X-Plane 11, you’ll need to understand that there are some big differences in terms of modernization between the two.
@@ -159,6 +193,9 @@ Lifewire / Zach Sweat
 
  Without a doubt, X-Plane 11 is the best current-generation flight simulator you can buy. While there are some issues with optimization, if you’ve got the computer for it, the game is stunning and currently provides the best real-world experiences.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Alienware Aurora R7](https://www.lifewire.com/alienware-aurora-r7-review-4689097)

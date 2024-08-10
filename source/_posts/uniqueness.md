@@ -1,7 +1,7 @@
 ---
 title: Uniqueness
-date: 2024-08-04 17:12:42
-updated: 2024-08-06 10:28:24
+date: 2024-08-09T00:55:33.972Z
+updated: 2024-08-10T00:55:33.972Z
 categories:
   - BestProducts
 description: This Article Describes Uniqueness
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/IXLbdb-maVwZNdOp5bTdHwmQBSM=/400x300/fi
 
 ## Linksys WRT1900ACS Open Source Wi-Fi Router
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ![Linksys WRT1900ACS Open Source Wi-Fi Router](https://www.lifewire.com/thmb/mgUlLYEEfyvcgq24--lleCJID1E=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Linksys_LongRangeRouters_WRT1900ACS_HeroSquare-360fd980f49d4d69829c5aa0208c4039.jpg)
 
 Lifewire / Erika Rawes
@@ -64,6 +67,9 @@ Lifewire / Erika Rawes
 
  An[open-source](https://www.lifewire.com/what-is-open-source-software-4147547) router that can also serve as a wireless extender, the Linksys WRT1900ACS is a moderately priced option. It’s a few years old, so it’s not[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) or even MU-MIMO capable, but it offers a unique set of features that make it a contender among its newer competitors. I tested the Linksys WRT1900ACS in the real world along with other Wi-Fi 5 and Wi-Fi 6 routers to see if its combination of design, performance, and features equal a worthwhile investment.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Looks like a toy**
 
  WRT1900ACS’s old school design isn’t for everyone. It’s eye-catching and colorful, so not for those who want a router that’ll blend into the background. The bright blue and black color scheme gives the router a bit of a juvenile, almost toy-like appearance. The Linksys name is boldly printed on the top of the router, and it’s also in small print on the front face and on each of the four antennas.
@@ -76,10 +82,16 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## **Setup: Painless**
 
  The setup process is quick and easy. One small detail I really appreciated about the WRT1900ACS is that the company printed the temporary network ID and password in the user guide, so I didn’t have to strain my eyes trying to read the tiny print on the router’s label. You can set up your network in the Linksys app, or you can use the web portal.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Connectivity: Impressive speeds**
 
  This is an AC1900 dual-band 802.11ac router, so Wi-Fi speeds max out at 1300 Mbps over the[5GHz band](https://www.lifewire.com/is-5-ghz-wifi-better-than-2-4-ghz-818293) . It can reach up to 600 Mbps over the 2.4 GHz band. The WRT1900ACS has beamforming technology, which allows it to concentrate the signal to connected devices.
@@ -100,6 +112,9 @@ Lifewire / Erika Rawes
 
  It can serve as an access point, a wired bridge, a wireless bridge, or a wireless repeater.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## **Software: Linksys app**
 
  The Linksys app is one of the more comprehensive router apps I’ve seen. You can set up a guest network, manage and prioritize devices, and set up parental controls (that are actually useful). The parental controls let you pause the internet on your child’s devices, schedule a pause for a later time, and block specific websites. You can also perform a few advanced functions in the app, like port forwarding and enabling Wi-Fi MAC filters.
@@ -114,6 +129,9 @@ Lifewire / Erika Rawes
 
  The Linksys WRT1900ACS retails for $200, which sounds high. But, it provides so much in the way of features and customization, that the price is an excellent value.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Linksys WRT1900ACS vs. TP-Link Archer C9 AC1900**
 
  The TP-Link Archer C9 ([view on Amazon](https://www.amazon.com/TP-Link-AC1900-Smart-Wireless-Router/dp/B00PDL/?tag=lifewire-onsite-prod-20&ascsubtag=4942495%7Cn35c4a4e94a934ff7bba64f04999a17f719%7C) ) is one of our favorite budget routers, and you can find it on sale for around $120–significantly less than the Linksys WRT1900ACS. While both routers have an AC1900 Wi-Fi speed, the Linksys offers a number of benefits over the Archer C9, including the ability to serve as a repeater or bridge and open-source programming.
@@ -124,6 +142,9 @@ Lifewire / Erika Rawes
 
  The Linksys WRT1900ACS may not be the prettiest router, but its customization features make an excellent option.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  WRT1900ACS Open Source Wi-Fi Router

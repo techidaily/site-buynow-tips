@@ -1,7 +1,7 @@
 ---
 title: Performance Insights & Portability Assessment of the Pioneer BDR-XS06 Blu-Ray Player/Burner
-date: 2024-08-04 18:51:39
-updated: 2024-08-07 10:24:56
+date: 2024-08-09T00:56:18.107Z
+updated: 2024-08-10T00:56:18.107Z
 categories:
   - BestProducts
 description: This Article Describes Performance Insights & Portability Assessment of the Pioneer BDR-XS06 Blu-Ray Player/Burner
@@ -39,6 +39,9 @@ Lifewire / Scott Gercken
 
 ## Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/0KtwvTBY-2P8KkZ_aO3Di4x-41c=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_HeroSquare-191df3b949f947dc9398373d6f610c19.jpg)
 
 Lifewire / Scott Gercken
@@ -69,6 +72,9 @@ Lifewire / Scott Gercken
 
  Check out our buyers guide for more information on what you should look for in an optical drive.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Solid construction for portability**
 
  The Pioneer BDR-XS06 Blu-ray Burner is a shiny, silver drive. It’s a tiny 5.3" square, only .7” tall, with a silver top and sides, and a black underside. The bottom has two rubberized feet that run the width of the device, keeping it stable on slippery surfaces, nice if you’re using it away from your desk. The silver outer shell doesn’t smudge easily, so it’ll look nice without constant cleaning.
@@ -81,6 +87,9 @@ Lifewire / Scott Gercken
 
  Lifewire / Scott Gercken
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Setup Process: So easy**
 
  The Pioneer BDR-XS06[Blu-ray Burner](https://www.lifewire.com/best-desktop-blu-ray-drives-832423) is very easy to set up. We just plugged the USB cord into the Blu-ray burner and the computer and it was ready to go. Macs have native software for reading and burning using a Blu-ray drive, so it was a breeze to get started.
@@ -107,10 +116,16 @@ It’s one of the most plug-and-play burners we’ve tested.
 
  While Blu-ray burners and[optical drives](https://www.lifewire.com/what-is-an-optical-disc-drive-2618157) aren’t exactly designed to play movies, we tried it anyway. We used a free Blu-ray player for Mac, and the picture was pretty good. On the Mac, it was sharp, almost as good as a[Blu-ray player](https://www.lifewire.com/best-blu-ray-players-1846400) designed for the TV. Next, we connected an HDMI cable to the Mac to see what it would look like on an[HDTV](https://www.lifewire.com/best-tvs-to-buy-4061107) . It wasn’t as good as on the computer, but it wasn’t bad either. The TV reported that the resolution was 768p at 60hz, not as good as a Blu-ray player built for that purpose, but better than SD.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ## **Sound Quality: Blu-ray quality sound**
 
  While many people rave about[HD](https://www.lifewire.com/what-you-need-to-see-hd-1847338) image quality, we think that the depth of sound is the most exciting feature of the Blu-ray format. When you get all the high-end and low-end sound, it feels more immersive, and the Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner delivered the audio quality you’d expect from a Blu-ray. If you don’t mind the reduction in image quality vs. a dedicated player, the BDR-XS06 could double as a Blu-ray player for your PC or TV.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Software: Quirky but useful**
 
  The drive comes with Roxio Toast Lite v11 for creating or copying data discs. You need to upgrade to the full version to create an audio disc, video disc, or to convert files to another format.
@@ -125,6 +140,9 @@ It’s one of the most plug-and-play burners we’ve tested.
 
  For the price, it delivers strong performance and portability. At an MSRP of $120, the BDR-XS06 is a little more expensive than some of its competition, but it feels more solid than even Pioneer’s own models in this price range. That extra durability is worth the slightly higher cost than this drive’s competitors.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Competition: A step ahead**
 
 **_Pioneer BDR-XD05B 6x Slim Portable USB 3.0 Blu-ray Burner_ :** The Pioneer BDR-XD05B is Pioneer’s new model of external Blu-ray burners. It has a clamshell case, which means the top pops open so you can place the Blu-ray into the drive. The drive is black and a smudge magnet, and it also doesn’t feel as sturdy as the Pioneer BDR-XS06\. In general, we prefer the BDR-XS06 for its sturdy, smudge-free design, but the BDR-XD05B is a fine choice if your main concern is price.
@@ -143,12 +161,18 @@ It’s one of the most plug-and-play burners we’ve tested.
 
  The Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner is a solid, portable Blu-ray burner. It’s small enough to pack up to take on a trip, and it’s solid enough to give us confidence that it can endure some jostling on the way. It costs a little more than its competitors, but we think the solid construction is worth it.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [OWC Mercury Pro External USB 3.1 Gen 1 Optical Drive](https://www.lifewire.com/owc-mercury-pro-review-4774690)
 * [Asus BW-16D1X-U Blu-ray Drive](https://www.lifewire.com/asus-bw-16d1x-u-blu-ray-drive-review-4774686)
 * [NAVISKAUTO 12" Portable DVD Player](https://www.lifewire.com/naviskauto-12-portable-dvd-player-review-4691953)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  BDR-XS06 Slot Loading Portable Blu-ray Burner

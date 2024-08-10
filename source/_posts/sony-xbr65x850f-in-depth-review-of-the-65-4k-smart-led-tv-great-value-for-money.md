@@ -1,7 +1,7 @@
 ---
 title: "Sony XBR65X850F: In-Depth Review of the 65 4K Smart LED TV - Great Value for Money"
-date: 2024-08-04 22:17:42
-updated: 2024-08-06 10:28:15
+date: 2024-08-09T00:56:04.756Z
+updated: 2024-08-10T00:56:04.756Z
 categories:
   - BestProducts
 description: "This Article Describes Sony XBR65X850F: In-Depth Review of the 65 4K Smart LED TV - Great Value for Money"
@@ -39,6 +39,9 @@ Lifewire / Todd Braylor
 
 ## Garmin Forerunner 45
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/o718az7uF1ea0o2yiaw0vFBeQvU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-HeroSquare-2cc58de569434b0fa44a3c79eb0c1777.jpg)
 
 Lifewire / Todd Braylor
@@ -81,6 +84,18 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Traditional digital watch design with all-day comfort**
 
  Featuring a simple circular watch design and basic rubber wristband, the FR45 looks natural and feels sporty—it’s more understated than flashy. You could certainly wear this watch in a professional setting, but it does not exude the formal or super tech-savvy aesthetic that many smartwatches do these days.
@@ -91,10 +106,21 @@ Lifewire / Todd Braylor
 
  The wristband is made of a flexible silicone material and has a lightly textured exterior side, while the interior side of the band (against your skin) is smooth. Thanks to its comfortable band and smaller overall size, it’s can be worn overnight to get 24/7 heart rate data and sleep monitoring.
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/nHZkcIXB7C8qBgrCAwhmdxoMV0Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-03-b3713bbdd0f244b889d434fbe17613b7.jpg)
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Performance: Sport modes, sleep tracking, and Garmin Coach**
 
  We tested the Forerunner 45 on a series of daily trail runs plus a long run and were pleased with its functionality. It features an optical heart rate sensor that charts your average and max heart rates plus an estimation of your V02 max⁠ (the maximum amount of oxygen you can uptake during exercise).
@@ -115,6 +141,9 @@ Lifewire / Todd Braylor
 
  Garmin Coach can also adjust itself based on performance metrics like heart rate and V02 max to either push you if you’re improving or dial things back if you're going too hard.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Battery: Long battery life for days of activity or races**
 
  The Garmin Forerunner 45 has a rechargeable lithium battery that can last up to seven days in normal watch mode and up to 13 hours continuously when in GPS mode.
@@ -147,6 +176,9 @@ Lifewire / Todd Braylor
 
  Unless you are specifically looking for other features in a Garmin GPS watch for specific uses, chances are you won't miss them for daily running with the Forerunner 45.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Competition: Garmin Forerunner 45 vs. Polar Ignite**
 
  Options abound in the active lifestyle wearables market, and the $200 range is a good benchmark price for getting a full-GPS watch with a variety of training tools.
@@ -167,12 +199,19 @@ Lifewire / Todd Braylor
 
  The Garmin Forerunner 45 is streamlined to provide all your core training features at a good price. It is definitely geared towards runners and relies pretty heavily on a smartphone connection for its more advanced features. But if you are looking for a reliable GPS watch to help you train—and you don't want to spend too much—the Forerunner 45 is worth considering.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Amazfit Bip](https://www.lifewire.com/amazfit-bip-review-4773112)
 * [Garmin Forerunner 945](https://www.lifewire.com/garmin-forerunner-945-review-4768586)
 * [Fitbit Inspire HR](https://www.lifewire.com/fitbit-inspire-hr-review-4768656)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Forerunner 45

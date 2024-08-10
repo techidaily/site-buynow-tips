@@ -1,7 +1,7 @@
 ---
 title: "Review: Why the Samsung UN65NU8000FXZA Feels Mediocre for Its Cost"
-date: 2024-08-04 12:50:45
-updated: 2024-08-07 10:59:42
+date: 2024-08-09T00:55:51.340Z
+updated: 2024-08-10T00:55:51.340Z
 categories:
   - BestProducts
 description: "This Article Describes Review: Why the Samsung UN65NU8000FXZA Feels Mediocre for Its Cost"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/0e439fcdc7bdbc260e3f597d59e8a26c3f2c08b51
 
 ## Bose Frames Audio Sunglasses
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Bose Frames](https://www.lifewire.com/thmb/4mVgayPIEia4VY4AvaJAoHfTyAc=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_01LW4051794-1-5af9a422af2d4d92b187e87b1bcbb1e7.jpg)
 
 Lifewire / Yoona Wagener
@@ -40,8 +43,14 @@ Lifewire / Yoona Wagener
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ## Bose Frames Audio Sunglasses
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Bose Frames](https://www.lifewire.com/thmb/BuvZl2QelYzm4BKj83DqAyy0SR8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_01LW4051794-1-5af9a422af2d4d92b187e87b1bcbb1e7.jpg)
 
 Lifewire / Yoona Wagener
@@ -70,6 +79,9 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Sleek, but not as refined as you’d expect**
 
  Bose Frames are available in two styles: Alto and Rondo. The Alto option is larger, with lenses that measure about two inches across, a distance of 0.7 inches between the lenses, and an overall length (from the lenses to the end of the arms) of 6.4 inches.
@@ -110,6 +122,9 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ## **Software: An app that doesn’t do much**
 
  The Bose Frames require setup through the Bose Connect app, which is available for both[Android](https://www.lifewire.com/what-is-google-android-1616887) and[iOS](https://www.lifewire.com/what-is-ios-1994355) devices. It functions first and foremost as a way to pair and manage devices your connecting devices. Bose says you can establish up to eight device connections, but only one connection can be used at a time.
@@ -130,6 +145,9 @@ Lifewire / Yoona Wagener
 
  While the Bose AR functionality is a sort of hidden perk of these frames, it still feels like its very much in the early stages. It’s best to temper any high expectations at this point, but the quality of experience and offerings are likely to expand with further development.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ## **Price** :**Not exorbitant compared to smart sunglasses**
 
  Both the Bose Rondo and Alto frames are priced at $199.99 MSRP. While this is a bit pricey for a regular sunglasses, these obviously have a lot of additional features. But the price would feel even fairer if the lenses were polarized or could be swapped out with prescription lenses.

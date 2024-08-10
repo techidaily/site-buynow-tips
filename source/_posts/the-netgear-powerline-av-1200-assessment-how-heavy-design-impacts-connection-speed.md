@@ -1,7 +1,7 @@
 ---
 title: "The Netgear Powerline AV 1200 Assessment: How Heavy Design Impacts Connection Speed"
-date: 2024-08-06 17:46:29
-updated: 2024-08-07 11:21:30
+date: 2024-08-09T00:56:08.993Z
+updated: 2024-08-10T00:56:08.993Z
 categories:
   - BestProducts
 description: "This Article Describes The Netgear Powerline AV 1200 Assessment: How Heavy Design Impacts Connection Speed"
@@ -13,8 +13,14 @@ thumbnail: https://thmb.techidaily.com/ccd36b11fe822cf8edc40f8a572a80b6d8bbf0e62
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ## Anker USB 3.0 SuperSpeed 10-Port USB Data Hub
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Anker USB 3.0 SuperSpeed 10-Port Hub](https://www.lifewire.com/thmb/xWT9vtGHKtgfNtDh5brQ807gNrI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Anker_UsbHubs_4LW4142295_HeroSquare-4e0d4d2c9d45472d9dd2c8f06caed680.jpg)
 
  Lifewire / Jonno Hill
@@ -68,6 +74,9 @@ thumbnail: https://thmb.techidaily.com/ccd36b11fe822cf8edc40f8a572a80b6d8bbf0e62
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## **Design: Lots of ports in a standard configuration**
 
  At 1.7 x 5.7 x 0.9 inches HWD), the Anker USB 3.0 SuperSpeed 10-Port Hub is just about as lean as one might reasonably expect for a device with this many ports. The design is relatively simple, featuring a long rectangular shape, rounded edges, and a thick plastic construction. The device feels very light, but it’s not flimsy.
@@ -80,6 +89,9 @@ thumbnail: https://thmb.techidaily.com/ccd36b11fe822cf8edc40f8a572a80b6d8bbf0e62
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Quick and painless**
 
  To set up the Anker USB 3.0 SuperSpeed 10-Port Hub, remove the main hub from its packaging and connect the supplied USB (A-to-B) cable to both the hub and your computer. Next, connect the power source to an outlet. After that, the hub works out of the box. The manual provides a cursory overview of the operation of the device, but you likely won’t need it.
@@ -88,6 +100,9 @@ thumbnail: https://thmb.techidaily.com/ccd36b11fe822cf8edc40f8a572a80b6d8bbf0e62
 
  The Anker USB 3.0 SuperSpeed 10-Port Hub comes with a USB (A-to-B) cable to connect to your computer. An AC power adapter is included as well, and comes with a sizable power brick. The hub gives users ten USB 3.0 ports, offering a maximum transfer speed of 5Gbps. The charging port delivers more power than the other 9 making it ideal for charging more power hungry devices like phones and tablets.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Anker USB 3.0 SuperSpeed 10-Port Hub](https://www.lifewire.com/thmb/LqAWiFxZU1YqrVq2KbjQzkz6xMI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Anker_UsbHubs_4LW4142295_04-0c115139eb2842759c6a8ceb22719901.jpg)
 
  Lifewire / Jonno Hill
@@ -104,10 +119,16 @@ thumbnail: https://thmb.techidaily.com/ccd36b11fe822cf8edc40f8a572a80b6d8bbf0e62
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: A little steep for the features**
 
  At a list price of $52.99, the Anker USB 3.0 SuperSpeed 10-Port Hub is a little expensive for what it offers. We would have expected a price of around $10-13 less given the feature set. Anker itself offers cheaper, newer options that stand a good chance at luring shoppers away from this device.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ## **Anker USB 3.0 SuperSpeed 10-Port Hub vs. Anker 10 Port 60W Data Hub with 7 USB 3.0 Ports and 3 PowerIQ Charging Ports**
 
  One of the fiercest competitors to the Anker USB 3.0 SuperSpeed 10-Port Hub is Anker’s own 10 Port 60W Data Hub. This model, 2 years newer, features 7 data ports and 3 PowerIQ dedicated charging ports at 2.1A. The kicker? This model only costs $42.99, forcing shoppers to decide how badly they_really_ need those extra data ports. If you want to charge more than one device at a time at full speed, the newer 10 Port 60W Data Hub definitely has an advantage.

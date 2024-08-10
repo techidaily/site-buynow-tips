@@ -1,7 +1,7 @@
 ---
 title: "Exploring a Ravaged World on Motorcycle in 'Days Gone': Our Comprehhavis Review."
-date: 2024-08-04 19:54:45
-updated: 2024-08-06 11:50:27
+date: 2024-08-09T00:55:44.839Z
+updated: 2024-08-10T00:55:44.839Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring a Ravaged World on Motorcycle in 'Days Gone': Our Comprehhavis Review."
@@ -39,6 +39,9 @@ Lifewire / Andy Zahn
 
 3.9
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Garmin Vivoactive 3 Music
 
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/FeCJ-wziP0Qoo9-pmifuFx9oZ7E=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Garmin-Vivoactive-3-Music-Smart-Watch-1-a182a2ce6d214080bd38bdb1c85e49a1.jpg)
@@ -66,6 +69,9 @@ Lifewire / Andy Zahn
 
  Smartwatches are incredible devices, and the Garmin Vivoactive 3 Music is no exception. It’s remarkable how much advanced tech is crammed below the glass of this diminutive device. I ran it through its paces to see if it can stand out in a crowded and competitive niche.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Attractive and minimalistic**
 
  At first glance, you could be forgiven for not realizing that the Garmin Vivoactive 3 Music is a[smartwatch](https://www.lifewire.com/an-introduction-to-smart-watches-3441381) . Its round, modern, minimalist design is attractive but subtle. The face of the watch is made of scratch-resistant Corning Gorilla Glass 3, the case is built of rugged polymer, and the strap is silicone. This rugged construction comes with a waterproofing rating of 5 atmospheres (ATM), which means it’s rated down to 163 feet. However, it’s worth noting that this watch isn’t intended for diving use.
@@ -76,6 +82,9 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Comfort: On the small side**
 
  The Vivoactive 3 Music is perfectly comfortable if you have small or medium-sized wrists, but the included band was a little small for my extra-large 9-inch wrists. Personally, I couldn’t stand to wear it all day long due to this sizing issue. In order to fully test the watch, I handed it off to a friend with smaller 7-inch wrists, who reported it was extremely comfortable.
@@ -84,6 +93,9 @@ Lifewire / Andy Zahn
 
  The included band was a little small for my extra-large 9-inch wrists.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Fairly straightforward**
 
  Getting started with the Vivoactive 3 Music is reasonably easy, though it did take me some time after connecting to my phone to get through all the necessary permissions and connections it requires. There were updates to install, and I needed to create an account with Garmin. I also downloaded Spotify and connected the Vivoactive 3 to my wireless earbuds. Note that you need to connect to Wi-Fi to download music via Spotify or another app.
@@ -102,10 +114,16 @@ The touchscreen interface is responsive, though a bit laggy.
 
  How long the battery in the Vivoactive 3 Music lasts depends entirely on how it’s used. If you only use its smartwatch capabilities occasionally then it’s good for a week at a time. However, when I made use of GPS, music, and other power-intensive features, it would run out in less than a full day of use.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/NdBt6UHu7uQUfRZfJN5BzwIEad8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivoactive-3-Music-Smart-Watch-3-18b432ab56ac4ef284ba74ffd1ec7f82.jpg)
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Software: Proprietary ecosystem**
 
  The Vivoactive 3 Music utilizes Garmin’s proprietary operating system and app store. I was impressed by the wide variety of apps available in the Garmin IQ store. There are numerous downloadable watch faces (I particularly loved one with a Star Trek theme), multiple music apps including Spotify and Amazon Music, maps, tools, and games.
@@ -122,6 +140,10 @@ The touchscreen interface is responsive, though a bit laggy.
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## **Price: Reasonable value**
 
  At its MSRP of $249 the Garmin Vivoactive 3 Music is acceptably priced for the features it packs in. However, as it can often be found for around fifty dollars less than this, it's a great value if you can snag it at that discount.
@@ -136,6 +158,9 @@ The touchscreen interface is responsive, though a bit laggy.
 
  There’s a lot to like about the Garmin Vivoactive 3 Music, It’s attractive, packed with features, and provides a deep level of fitness tracking. However, I could never fully enjoy using it due to its less than the optimal interface and laggy operation. This might be a good option if you are already invested in Garmin’s products, but for me it’s hard to ignore the flaws.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Garmin Vivoactive 3 Music

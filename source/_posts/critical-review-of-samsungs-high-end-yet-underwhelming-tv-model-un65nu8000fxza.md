@@ -1,7 +1,7 @@
 ---
 title: Critical Review of Samsung's High-End, Yet Underwhelming TV Model - UN65NU8000FXZA
-date: 2024-08-04 19:45:51
-updated: 2024-08-06 11:33:35
+date: 2024-08-09T00:56:11.727Z
+updated: 2024-08-10T00:56:11.727Z
 categories:
   - BestProducts
 description: This Article Describes Critical Review of Samsung's High-End, Yet Underwhelming TV Model - UN65NU8000FXZA
@@ -13,8 +13,15 @@ thumbnail: https://www.lifewire.com/thmb/-VS2-Etc0zkaOlIkOJ7aMJ5ymJo=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ## Sony XBR49X900F 49-Inch 4K Ultra HD Smart
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ![Sony XBR49X900F 49-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/HSjfZeW-h8R0J7y4L0Tcrwf7qLw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR49X900F-4K-TV-1-91d5d8b986d94a6489bf72c545d390a3.jpg)
 
  Lifewire / Zach Sweat
@@ -67,6 +74,9 @@ thumbnail: https://www.lifewire.com/thmb/-VS2-Etc0zkaOlIkOJ7aMJ5ymJo=/400x300/fi
 
  Originally released in 2018, the X900F series is a slight step up over Sony’s X850F series (which we also recently reviewed) with a few noteworthy upgrades over the cheaper series. The question is, does the X900F offer enough in the way of improvements over the X850F to justify the higher price point? Check out our in-depth review below to get all the details on the Sony XBR49X900F 49-Inch 4K Ultra HD Smart LED TV before you pull the trigger.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Legs for days**
 
  It comes as no surprise that Sony’s X900F series of TVs are beautiful and well-designed products, though there are some interesting deviations from the rest of their lineup with this specific series. Overall though, these are very solid systems that’ll look great in your home.
@@ -87,6 +97,9 @@ thumbnail: https://www.lifewire.com/thmb/-VS2-Etc0zkaOlIkOJ7aMJ5ymJo=/400x300/fi
 
  Speaking of the remote, the XBR49X900F sticks with the same layout we’ve seen on other Sonys. It’s easy to set favorites, quickly jump to your[favorite streaming app](https://www.lifewire.com/best-tv-streaming-apps-services-4159988) , change settings, and much more. The remote also provides easy access to the excellent[Google Assistant](https://www.lifewire.com/what-is-google-assistant-4120911) . This allows you to perform a range of functions with just your voice.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Sony XBR49X900F 49-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/Zu5qR14S-aDdW5NLYJ138wB7y4k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR49X900F-4K-TV-3-c426d69c0bbd4c73a56dcf82af1a0c20.jpg)
 
  Lifewire / Zach Sweat
@@ -105,6 +118,9 @@ thumbnail: https://www.lifewire.com/thmb/-VS2-Etc0zkaOlIkOJ7aMJ5ymJo=/400x300/fi
 
  The X900F uses a VA-type panel for their displays, which sit right between IPS and TN panels, taking some of the strengths of both and combining them into a happy medium. These panels are great for the most part, especially since IPS and TN have some pretty universal issues.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Sony XBR49X900F 49-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/jG4o2aRuSCCxhxQ0PFqL-Jhkxts=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR49X900F-4K-TV-5-f8a24f1a6388414a970c17df66b348ac.jpg)
 
  Lifewire / Zach Sweat
@@ -123,6 +139,9 @@ thumbnail: https://www.lifewire.com/thmb/-VS2-Etc0zkaOlIkOJ7aMJ5ymJo=/400x300/fi
 
  Moving on to motion performance, Sony has done an excellent job in this area, and this particular series gets some of the highest marks in their lineup. The backlight is flicker-free, the pixel response time is super quick, and we didn’t see any issues with ghosting. This TV sports a 120Hz refresh rate, a welcome addition particularly for gamers looking to plug a high-end PC into it and drive large FPS numbers.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Audio Quality: External options recommended**
 
  It goes without saying that most TVs with built-in speakers aren’t going to perform as well as an external setup, but the X900F series is particularly bad in this realm. Sure, if you plan to use it in a quiet environment and don’t consider yourself an audiophile, it'll work okay, but it’s not good.
@@ -133,6 +152,11 @@ thumbnail: https://www.lifewire.com/thmb/-VS2-Etc0zkaOlIkOJ7aMJ5ymJo=/400x300/fi
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ## **Software: So many options, but simplicity would be nice**
 
  Though Android TV might not be everyone’s favorite for smart TV software, we were content with the X900F’s implementation of the OS. The first thing most people will notice is the sheer amount of content you have access to with Android TV. It’s a bit overcrowded, but with access to the Google Play Store, you’ll never be left wanting for potential apps or games. There are some ads here, but it’s not as bad as some platforms.
@@ -145,6 +169,9 @@ thumbnail: https://www.lifewire.com/thmb/-VS2-Etc0zkaOlIkOJ7aMJ5ymJo=/400x300/fi
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: Pricey, but quality**
 
  Throughout this review, we’ve mentioned that the X900F series is a bit on the expensive side. Now you shouldn’t really compare a brand like Sony to a cheaper, less reputable manufacturer, but even stacked against similar companies, Sony TVs are still pretty pricey.

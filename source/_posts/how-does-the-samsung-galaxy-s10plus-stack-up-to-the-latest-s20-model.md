@@ -1,7 +1,7 @@
 ---
 title: How Does the Samsung Galaxy S10+ Stack Up to the Latest S20 Model?
-date: 2024-08-03 22:55:17
-updated: 2024-08-06 11:46:57
+date: 2024-08-09T00:55:35.554Z
+updated: 2024-08-10T00:55:35.554Z
 categories:
   - BestProducts
 description: This Article Describes How Does the Samsung Galaxy S10+ Stack Up to the Latest S20 Model?
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
 ## Samsung Galaxy Fit
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/UbU9fom8autjrPBW79fdJpbGiu8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_04LW4161013-1-760c721cdfb74062a7b7a34dffa00d9e.jpg)
 
  Lifewire / Yoona Wagener
@@ -72,6 +75,9 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Functional and slightly elevated**
 
  The Samsung Galaxy Fit is a fitness-oriented device, and the design reflects this. It’s clean, minimal, and straightforward. Not only is this wearable extremely lightweight at only 0.81 ounces, but it’s also quite slim, which gives it a bracelet-like appearance.
@@ -98,6 +104,13 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ## **Comfort: Almost undetectable**
 
  Like the[Samsung Galaxy Watch Active](https://www.lifewire.com/samsung-galaxy-watch-4174640) , this device also features a tucked-in strap. The difference is that there’s a little pin with a round head instead of the straight pin that most watch buckles have. This detail makes for an extremely close fit that verges on almost too close.
@@ -116,6 +129,9 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Performance: High marks for accuracy**
 
  Since fitness tracking is really the name of the game for this device, we had high hopes that it would perform well. We weren’t disappointed by what we found. We were pleased with its ability to automatically track running, swimming, and sleep activities.
@@ -134,6 +150,9 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Battery: Good for a full week of use**
 
  Samsung says this watch is good for up to seven to eight days with regular activity and use, and up to eleven days with minimal use. We found that this watch lasted on the initial charge for a full[eight days](https://www.lifewire.com/fitness-trackers-with-the-best-battery-life-4077272) , which lined up with the manufacturer claims. It’s hard to say how the battery life would stack up to multiple workouts in a day—we typically only did one a day over the course of a week, but our experience with the device supports the strong battery life claims.
@@ -148,12 +167,18 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
  In addition to controlling the watch settings easily from the[mobile app](https://www.lifewire.com/what-are-apps-1616114) , the Samsung Health app is the other go-to resource. Here you can view all the information captured by the activity tracker, including fitness, sleep, and even stress levels. You can also take this a step further by using the app to monitor calories, weight, and water intake.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Great for what you get**
 
  The Samsung Galaxy Fit retails for $99.99, which makes it a strong competitor in the fitness tracker market. Similarly-priced devices from the Fitbit brand offer an equivalent bundle of all-day activity tracking and general wellness features but lack the vibrant display of the Galaxy Fit.
 
  There are cheaper options out there, too, like the Garmin vívofit 4, which sells for between $60 and $80\. But it lacks a heart rate monitor or the smart capabilities of the Fit, like canned text-messaging responses and the ability to send calls straight to voicemail. For the activity tracking and smart device functionality, the Fit is a fair price and maybe even a bargain for some.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Samsung Galaxy Fit vs. Fitbit Inspire HR**
 
  The Fitbit Inspire HR is a close competitor to the Samsung Galaxy Fit. Both are priced at just below $100 and have many of the same wellness and activity tracking features. Both are water resistant up to 50 meters, track active and resting heart rate, feature sport profiles, log sleeping activity, and integrate various types of notifications.
@@ -168,12 +193,18 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
  The Samsung Galaxy Fit is an appealing option for those who want a bit of smartwatch functionality and a heavy emphasis on exercise monitoring—without shelling out too much money. The fit, ironically, may be the largest issue. But if you’re able to find the right size, this may be everything you want in a fitness tracker.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Samsung Galaxy Watch Active](https://www.lifewire.com/samsung-galaxy-watch-active-review-4766873)
 * [Fitbit Versa](https://www.lifewire.com/fitbit-versa-review-4769748)
 * [Apple Watch Series 4](https://www.lifewire.com/apple-watch-series-4-review-4769752)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Galaxy Fit

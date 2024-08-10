@@ -1,7 +1,7 @@
 ---
 title: Zoom Like a Pro with Nikon's Newest Wonder, P1000
-date: 2024-08-04 23:43:55
-updated: 2024-08-07 11:16:50
+date: 2024-08-09T00:55:49.667Z
+updated: 2024-08-10T00:55:49.667Z
 categories:
   - BestProducts
 description: This Article Describes Zoom Like a Pro with Nikon's Newest Wonder, P1000
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/Yva4wEIlM_zg0OgIqsotXVCVIYg=/400x300/fi
 
 ## Apple MacBook Pro 16-inch (2021)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/L5Mbsc5JB_OpmoLJkqia2EonbI8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-hero-8413a7aa67ca443bb241da703c1025b2.jpg)
 
 Lifewire / Sascha Brodsky
@@ -68,6 +71,9 @@ Lifewire / Sascha Brodsky
 
  I’ve been using Apple portables ever since the Powerbook 100 was released in 1991\. After spending several weeks with the new MacBook Pro, it offers the responsiveness previously associated only with iPads and iPhones, matched with the refined form factor of Apple’s best laptops.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Design: Back to the future
 
  On the surface, the new MacBook Pro doesn’t look radically different from Apple’s previous Pro laptop models. It’s got a similar aluminum case, and the screen is about the same size as the 2019 model.
@@ -96,12 +102,20 @@ Lifewire / Sascha Brodsky
 
  There’s nothing not to like about the trackpad on the new MacBook Pro. It’s big and responsive, and you won’t notice it after a while, which is all you need in an input device.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/tD3rxlw9zH5xufV5ztJIZyrJc3Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-3-db6300639d8049d1862d0e4f25a35222.jpg)
 
 Lifewire / Sascha Brodsky
 
  The new MacBook’s trackpad works perfectly, which is more than you can about the one on most Windows laptops. I had no trouble flicking the cursor accurately around the screen when spending hours editing documents.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ## Display: Bright and beautiful
 
  The Pro sports the best display I’ve ever used on any computer and might be a reason to buy this model all by itself. It screams quality.
@@ -124,6 +138,9 @@ Lifewire / Sascha Brodsky
 
  Apps start nearly instantly on the Pro. I have a bad habit of keeping too many browser tabs open while I’m working. But even when I had dozens of tabs open in both the Chrome and Safari web browsers, the Pro didn’t slow down.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/UM5_acSqOhRJtIaZE3CeAWp45y0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-2-2be1639ee44f489286cb43a53aaf6454.jpg)
 
 Lifewire / Sascha Brodsky
@@ -140,6 +157,9 @@ Lifewire / Sascha Brodsky
 
  Multi-Core: 7552
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Battery: Keeps on going and going
 
  One of the benefits of the new M1 chip is its efficiency. Despite its power, the chip sips energy. The M1 Pro ran for 16 hours on its battery during continuous use, making it the longest-lasting laptop I've ever tried.
@@ -150,6 +170,9 @@ Lifewire / Sascha Brodsky
 
  Another nice thing about the efficient M1 chip is the fact that the MacBook runs cool. I’ve used it for dozens of hours, and it never felt more than slightly warm. Contrast that to my 2019 MacBook Pro that used to get so hot I was worried it would catch fire.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Price: Cough, splutter?
 
  The big hiccup for most potential users of the MacBook Pro is its high price tag. I’ve been using the lowest-end model, which starts at $2499\. You get a 10-Core CPU, 16-Core GPU, 16GB of RAM, and 512GB SSD Storage for that price.
@@ -184,6 +207,14 @@ Lifewire / Sascha Brodsky
 * [Apple MacBook Air 13-inch](https://www.lifewire.com/macbook-air-13-inch-m1-2020-review-5092793)
 * [Dell XPS 13 7390 (2020)](https://www.lifewire.com/dell-xps-13-7390-2-in-1-review-5113106)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  MacBook Pro 16-inch (2021)

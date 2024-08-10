@@ -1,7 +1,7 @@
 ---
 title: "Stanley J5C09 Assessment: Powerful and Spacious Design"
-date: 2024-08-04 15:41:44
-updated: 2024-08-05 12:33:47
+date: 2024-08-09T00:55:33.306Z
+updated: 2024-08-10T00:55:33.306Z
 categories:
   - BestProducts
 description: "This Article Describes Stanley J5C09 Assessment: Powerful and Spacious Design"
@@ -62,10 +62,16 @@ Lifewire / Jordan Oloman
 
  The Netgear Powerline 1200 Kit serves as a chunky plug-in adapter that offers impressive speeds over wired Ethernet, at the cost of your power sockets. We put it to the test to see if it’s worth the price.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/pTY-hBlPDWY0Ns6j4BVyAl75U-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_04-cd509045b4a3477fab85fdf3c69cacb4.jpg)
 
  Lifewire / Jordan Oloman
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Sharp edges and frustration**
 
  The Netgear Powerline 1200 kit doesn’t really care about your living room or bedroom aesthetic. It’s a monolithic, white glossy plastic box that juts out of the wall. If you’re looking for something inoffensive and reserved, the Netgear offering doesn’t deliver. The edges are sharp and the adapter is quite large in order to house all of the technology and the Ethernet sockets necessary to complete the network.
@@ -78,6 +84,9 @@ Lifewire / Jordan Oloman
 
  There’s also only one Ethernet port on the Netgear kit, which means that you can only improve the wired connection of one device—a poor payoff for all of the manoeuvering you may have to do, especially when there’s certainly space for another port. Overall, the design is obtrusive and frustrating, which is a shame given how reliable adapter is.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LMrQEcpONDZxLUfoMW6U8sX4dQw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_02-a8557f722ac84f29b6efb2a763d22a3c.jpg)
 
  Lifewire / Jordan Oloman
@@ -94,10 +103,16 @@ Lifewire / Jordan Oloman
 
  The only unfortunate thing to note is that the Ethernet cables supplied in the box are tiny, and will not stretch very far. We’d go so far as to say that you should purchase longer Ethernet cables in advance. It seems short-sighted to offer the promise of an expanded network without the cables that are long enough to enable it. We ended up swapping them out with some we had laying around the house.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LvSmrJJnFItVzQEAPCzBexfSn2M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_03-8fb5af44f82449b49fc780fd23bcb2af.jpg)
 
  Lifewire / Jordan Oloman
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Performance: A solid improvement**
 
  Using the device across our living room and bedroom, in two different setups across the course of a month, we found that the Netgear Powerline kit gave us a reliable upgrade to internet efficiency. Our initial connection speed (as per[Speedtest](https://www.speedtest.net/) ) offered a 68.4Mbps download speed, with 3.60Mbps upload speed, and sub-10-millisecond ping. The Netgear kit with an Ethernet cable attached to our laptop afforded us an 88Mbps download speeds and 6Mbps upload speeds.
@@ -128,6 +143,9 @@ Lifewire / Jordan Oloman
 
  The Netgear Powerline 1200 is incredibly reliable, albeit poorly designed. It is obstructive in the design department, fairly ugly to look at and comes with just one connection and awfully short Ethernet cables. Yet it has a true plug and play setup process with no compromises, and offers a reliable upgrade to your home network speeds. If you can look past the strange design choices this is the perfect introductory kit for Powerline beginners that does everything you need it to.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Powerline PL1200

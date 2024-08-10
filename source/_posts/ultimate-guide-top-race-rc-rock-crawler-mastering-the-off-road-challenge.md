@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Guide: Top Race RC Rock Crawler - Mastering the Off-Road Challenge"
-date: 2024-08-04 18:44:13
-updated: 2024-08-05 11:54:16
+date: 2024-08-09T00:55:57.631Z
+updated: 2024-08-10T00:55:57.631Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Guide: Top Race RC Rock Crawler - Mastering the Off-Road Challenge"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/a6fdfacdf6764bfbdcfc951cb0b411f7e9680e6d4
 
 ## Netgear Nighthawk X10 AD7200 Router
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ![Netgear Nighthawk X10 AD7200](https://www.lifewire.com/thmb/qU5CSGt_Rfj9LA-RPz9fQEylRoU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_HeroSquare-885945bb208b49a583aca8da1aa09378.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -67,6 +70,9 @@ thumbnail: https://thmb.techidaily.com/a6fdfacdf6764bfbdcfc951cb0b411f7e9680e6d4
 
  I recently unpacked a Netgear Nighthawk X10 and plugged it into my own wireless network to see how it performs in the real world. Over several hours of intense testing, and a couple of days of more casual use, I tested connection speeds at various distances, ease of setup and use, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Netgear continues to impress with its off-beat designs**
 
  I’ve tested a lot of[Netgear routers](https://www.lifewire.com/best-netgear-routers-4159862) , and this falls somewhere between the stealth bomber angles of the Nighthawk AC series and the slick flying wing designs seen in the Nighthawk RAX routers.
@@ -79,6 +85,9 @@ thumbnail: https://thmb.techidaily.com/a6fdfacdf6764bfbdcfc951cb0b411f7e9680e6d4
 
  Two USB 3.0 type A connectors can be found on the left side of the router as you look at it from the front. These can be used to connect USB thumb drives or[SSDs](https://www.lifewire.com/solid-state-drive-833448) to populate the built-in Plex Media Server and pipe multimedia content to devices throughout your home.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/I8vaunCMjxEzWH-oM1U7fsSYe9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_04-abc45a63844e4ebe8f43e4f6facbd601-d54874ec8e984393b51c0bea9803c849.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -119,6 +128,9 @@ Lifewire / Jeremy Laukkonen
 
  The bottom line is that this router provides truly awesome speeds at very short distances, but the benefit falls off sharply, and you’d be better off using the 5GHz network even a few feet away.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/Jwl6BD38cWznmN0op6bpzAmBs_U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_03-4cfe683a7cf94e94b14c0ec2be12da50.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -133,6 +145,9 @@ Lifewire / Jeremy Laukkonen
 
  Strangely enough, this 802.11ad router’s strongest selling point might be the impressively robust nature of its 5 GHz network.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Software: Netgear’s web interface and web app, plus Plex and more**
 
  Like its other offerings, Netgear gives you the option to manage the Nighthawk X10 using a web interface or a smartphone app. I used the web interface, and I found it fairly easy to understand and navigate if a bit slow.
@@ -147,6 +162,9 @@ Lifewire / Jeremy Laukkonen
 
  I plugged in one of my media-filled SSD USB drives and had no trouble streaming to any of the Plex clients I have on my network.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Not bad if you really need 802.11ad**
 
  With an MSRP of $500, and a street price closer to $250, the Nighthawk X10 AD7200 is a tough sell to most consumers. It features a wireless technology that hasn’t really caught on, and which most consumers just won’t be able to take advantage of. For the money you’d spend on this router, you could get a high-end 802.11ax router.
@@ -155,6 +173,9 @@ Lifewire / Jeremy Laukkonen
 
  By way of comparison, the Nighthawk Pro Gaming XR700 has similar specifications, swaps out Plex Media Server for some gaming-centric quality of life (QoL) features, and has a street price that’s close to $400.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Netgear Nighthawk X10 AD7200 vs. Netgear Nighthawk RAX80**
 
  With an MSRP of $400, and a street price closer to $350, the Nighthawk RAX80 (see on[Amazon](https://www.amazon.com/dp/B01MQDZXA4?linkCode=ogi&th=1&psc=1&tag=lifewire-onsite-prod-20&ascsubtag=4846418%7Cnd55a891e250641509ef77229001ead8021%7C) ) is in the same general territory as the Nighthawk X10\. The big difference between these competing Nighthawk devices is that one is an 802.11ad router, and the other is an 802.11ax router.

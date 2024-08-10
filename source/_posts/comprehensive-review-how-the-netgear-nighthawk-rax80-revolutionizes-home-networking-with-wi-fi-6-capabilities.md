@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Review: How the Netgear Nighthawk RAX80 Revolutionizes Home Networking with Wi-Fi 6 Capabilities"
-date: 2024-08-03 16:31:18
-updated: 2024-08-06 12:53:52
+date: 2024-08-09T00:55:33.534Z
+updated: 2024-08-10T00:55:33.534Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Review: How the Netgear Nighthawk RAX80 Revolutionizes Home Networking with Wi-Fi 6 Capabilities"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/896a3051dab897fe8d0c2740f6699976d5490b685
 
 ## Netgear Nighthawk X10 AD7200 Router
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ![Netgear Nighthawk X10 AD7200](https://www.lifewire.com/thmb/qU5CSGt_Rfj9LA-RPz9fQEylRoU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_HeroSquare-885945bb208b49a583aca8da1aa09378.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -67,6 +70,9 @@ thumbnail: https://thmb.techidaily.com/896a3051dab897fe8d0c2740f6699976d5490b685
 
  I recently unpacked a Netgear Nighthawk X10 and plugged it into my own wireless network to see how it performs in the real world. Over several hours of intense testing, and a couple of days of more casual use, I tested connection speeds at various distances, ease of setup and use, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Netgear continues to impress with its off-beat designs**
 
  I’ve tested a lot of[Netgear routers](https://www.lifewire.com/best-netgear-routers-4159862) , and this falls somewhere between the stealth bomber angles of the Nighthawk AC series and the slick flying wing designs seen in the Nighthawk RAX routers.
@@ -79,6 +85,9 @@ thumbnail: https://thmb.techidaily.com/896a3051dab897fe8d0c2740f6699976d5490b685
 
  Two USB 3.0 type A connectors can be found on the left side of the router as you look at it from the front. These can be used to connect USB thumb drives or[SSDs](https://www.lifewire.com/solid-state-drive-833448) to populate the built-in Plex Media Server and pipe multimedia content to devices throughout your home.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/I8vaunCMjxEzWH-oM1U7fsSYe9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_04-abc45a63844e4ebe8f43e4f6facbd601-d54874ec8e984393b51c0bea9803c849.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -95,6 +104,9 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## **Connectivity: AD7200 tri-band with MU-MIMO and 10G SFP+**
 
  The Netgear Nighthawk X10 AD7200 is an AD7200 tri-band router, which means it’s capable of providing 1733Mbps over a 5GHz wireless network, 800Mbps over a 2.4GHz network, and a blistering 4600Mbps over a 60Hz network. That last one is the key feature here, as only 802.11ad routers like this one feature a super-high-speed 60GHz network.
@@ -133,6 +145,9 @@ Lifewire / Jeremy Laukkonen
 
  Strangely enough, this 802.11ad router’s strongest selling point might be the impressively robust nature of its 5 GHz network.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Software: Netgear’s web interface and web app, plus Plex and more**
 
  Like its other offerings, Netgear gives you the option to manage the Nighthawk X10 using a web interface or a smartphone app. I used the web interface, and I found it fairly easy to understand and navigate if a bit slow.
@@ -147,6 +162,9 @@ Lifewire / Jeremy Laukkonen
 
  I plugged in one of my media-filled SSD USB drives and had no trouble streaming to any of the Plex clients I have on my network.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: Not bad if you really need 802.11ad**
 
  With an MSRP of $500, and a street price closer to $250, the Nighthawk X10 AD7200 is a tough sell to most consumers. It features a wireless technology that hasn’t really caught on, and which most consumers just won’t be able to take advantage of. For the money you’d spend on this router, you could get a high-end 802.11ax router.
@@ -169,6 +187,9 @@ Lifewire / Jeremy Laukkonen
 
  The Netgear Nighthawk X10 AD7200 is a bit of a mixed bag since its key feature is so niche. If you really need an 802.11ad router, you may want to look for one with a stronger range. However, this router has fantastic performance on the 5GHz band, and the Plex Media Server implementation is also a very strong plus. If short-range 802.11ad support with excellent fallback 5GHz performance sounds good to you, then this is the router you’re looking for.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Nighthawk X10 AD7200 Router

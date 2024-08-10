@@ -1,7 +1,7 @@
 ---
 title: "Marvel's New Hero: Miles Morales Takes the Limit Off - An In-Depth Review"
-date: 2024-08-05 21:22:45
-updated: 2024-08-07 12:29:46
+date: 2024-08-09T00:55:59.875Z
+updated: 2024-08-10T00:55:59.875Z
 categories:
   - BestProducts
 description: "This Article Describes Marvel's New Hero: Miles Morales Takes the Limit Off - An In-Depth Review"
@@ -13,8 +13,14 @@ thumbnail: https://thmb.techidaily.com/1ea610ac45d115520a80068437a0213bae487d694
 
 4
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Alienware Aurora R7
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/mgtquLrY-jPbXryeiPiK4PShYo4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_2LW4045927-1-7ee01493034d4631894328a424e3ac52.jpg)
 
 Lifewire / Gannon Burgett
@@ -37,6 +43,9 @@ Lifewire / Gannon Burgett
 
 4
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Alienware Aurora R7
 
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/emzd7Km2ZWo2iwJHim7f3cQirPc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_2LW4045927-1-7ee01493034d4631894328a424e3ac52.jpg)
@@ -65,10 +74,16 @@ Lifewire / Gannon Burgett
 
  For our review, we tested the Alienware Aurora R7 configured with an Intel Core i7 8700, Nvidia GeForce GTX 1070 8GB, 1TB HDD, 256GB M.2 PCIe SSD storage, and 16GB of RAM. Read on to see how it fared in games, benchmarks, and day-to-day use and see if it’s worth the high price.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/ZHUtcT-UchRoDP6TS6RcsX2MSQU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4045927-4-0a0b8fbcdc824e1c9abf26cdd1ef57c4.jpg)
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: No need to whip out your toolbox**
 
  Taking inspiration from other computers in Dell’s lineup, most notably the Area 51 PC, the Aurora R7 features a black and gunmetal exterior with plenty of ventilation on the top, sides, and bottom of the case. There’s also an array of customizable RGB lights on the side that can be changed to whatever colors suit your style.
@@ -89,6 +104,9 @@ Lifewire / Gannon Burgett
 
  Setting up the Alienware Aurora R7 was fairly straightforward. In the box was the tower, a mouse, a keyboard, and the power cable. After connecting the Aurora R7 to power, plugging in the mouse and keyboard, and attaching a monitor, it was just a matter of going through Window 10’s setup process to get the ball rolling.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance: It’ll take nearly anything you throw at it**
 
  The Alienware Aurora R7 model we tested was configured with an Intel Core i7-8700 CPU, an NVIDIA GeForce GTX 1070 8GB graphics card,16GB of[RAM](https://www.lifewire.com/what-is-random-access-memory-ram-2618159) , and a 256GB M.2 PCIe SSD powering the operating system and apps. Meanwhile, a 2TB HDD served as the mass media storage.
@@ -117,6 +135,9 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: Baked in goodies to simplify a few pain points of gaming**
 
  As is to be expected for a gaming PC, the Alienware Aurora R7 runs on Windows 10 64-bit. It’s a typical install in every sense of the word, but it does come with a few extra bits of software specifically designed for Alienware, including Alienware Command Center, AlienFusion, and OC Controls.
@@ -139,6 +160,9 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Competition: Convenience rules above all else**
 
  Judging competitors of the Alienware Aurora R7 can get incredibly tricky considering all the different configurations available, not to mention the option of building your own computer. That said, one pre-built gaming PC stands out alongside the Aurora R7 in terms of specs and value—the MSI Infinite X.
@@ -155,6 +179,9 @@ Lifewire / Gannon Burgett
 
  The Alienware Aurora R7 is a wonderful option if you’re looking for a pre-built gaming PC that requires little to no hands-on time to get up and running. Out of the box, it’s ready to take on nearly any game you throw at it, usually at the highest settings. Sure, it’s a bit pricier than a DIY PC, but its compact case, tool-less access, and upgradability makes it a solid option for someone who wants a plug-and-play gaming rig.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Lenovo ThinkCentre M720 Tower](https://www.lifewire.com/lenovo-thinkcentre-m720-tower-review-4776238)

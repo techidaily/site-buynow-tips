@@ -1,7 +1,7 @@
 ---
 title: Nixplay NIX Advance X15D Review
-date: 2024-08-04 11:12:26
-updated: 2024-08-07 12:22:34
+date: 2024-08-09T00:56:00.463Z
+updated: 2024-08-10T00:56:00.463Z
 categories:
   - BestProducts
 description: This Article Describes Nixplay NIX Advance X15D Review
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/wMdu-fnXnEzs0waE1fBNqpJSG64=/400x300/fi
 
 ## Samsung QN55Q60RAFXZA 55-Inch Smart 4K UHD TV
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ![Samsung QN55Q60RAFXZA Smart TV](https://www.lifewire.com/thmb/3wvRd5fdYGaWCbby7QCdqre1xeg=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_SmartTVs_QN55Q60RAFXZA_HeroSquare-b61680537acf4bb8b90cef3343e76e8d.jpg)
 
 Lifewire / Bill Loguidice
@@ -38,8 +41,15 @@ Lifewire / Bill Loguidice
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Samsung QN55Q60RAFXZA 55-Inch Smart 4K UHD TV
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ![Samsung QN55Q60RAFXZA Smart TV](https://www.lifewire.com/thmb/Uk2902wqEKeVUjk27nqGMWb7vYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_SmartTVs_QN55Q60RAFXZA_HeroSquare-b61680537acf4bb8b90cef3343e76e8d.jpg)
 
 Lifewire / Bill Loguidice
@@ -66,6 +76,9 @@ Lifewire / Bill Loguidice
 
  We tested the 55-inch version of the Samsung QN55Q60RAFXZA, which is simply noted as Samsung QLED Q60R on the side of the box, to see if its Quantum Dot technology and all of its other features make for a TV you’ll want in your home.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Samsung QN55Q60RAFXZA](https://www.lifewire.com/thmb/dOOASOgkfk99nlphGAu1V4JLAVs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_SmartTVs_QN55Q60RAFXZA_02-e0170e47a4924d90bccdc37108f64b75.jpg)
 
  Lifewire / Bill Loguidice
@@ -140,6 +153,9 @@ Lifewire / Bill Loguidice
 
  Even at extreme viewing angles, and certainly any practical angle, the picture remained clear, with little-to-no noticeable color or contrast washout. There are few practical scenarios that we can envision that this TV would not provide an excellent viewing experience, regardless of where you’re seated.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Audio Quality: Serviceable sound**
 
  As expected, even at its non-budget price point, sound quality is merely serviceable on the QN55Q60RAFXZA. If you want sound quality to match your picture quality, you’re going to have to invest in a similarly excellent surround sound system. With that said, even with its volume set to 100, the sound from the downfiring speakers on the QN55Q60RAFXZA is well-defined and clear with no noticeable hissing or popping.
@@ -164,6 +180,9 @@ Lifewire / Bill Loguidice
 
  Finally, thanks to its Apple Airplay 2 support, the QN55Q60RAFXZA makes an excellent Screen Mirroring and audio target. Simply select Samsung Q60 Series on your recent Apple mobile device and your content plays on the QN55Q60RAFXZA. In our testing, the connection happened quickly and playback was smooth.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: Worth the price if you value picture quality**
 
  At $999.99, the QN55Q60RAFXZA is not one of the cheaper 55 inch TV options. With that said, you also don’t have to worry about build or picture quality. With its HDR10 and HDR10+ support and ability to support billions of colors, you’ll get superior color reproduction when paired with the right content. The only negative is that the QN55Q60RAFXZA does not have Dolby Vision support, a color format that many other competitive sets do feature. For most people, however, HDR10 and HDR10+ support is all that really matters, so the lack of Dolby Vision is not as much of a deal-breaker as it could be. Nevertheless, it’s something to keep in mind when comparison shopping at this price point.
@@ -172,6 +191,9 @@ Lifewire / Bill Loguidice
 
  Overall, based on our extensive testing, it’s hard to find many faults with the QN55Q60RAFXZA. You get undeniable quality for the price and plenty of full-feature HDMI inputs.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Samsung QN55Q60RAFXZA vs. Samsung QN55Q6F**
 
  Compared to what is essentially its immediate predecessor, the[Samsung QN55Q6F](https://www.lifewire.com/samsung-qn55q6f-smart-tv-review-4842860) , the QN55Q60RAFXZA offers only a handful of clear advantages, with slightly better color reproduction and Google Assistant and Amazon Alexa support. Right now, the QN55Q6F retails for about $100 less than the QN55Q60RAFXZA, so if that savings is important to you, it makes for a similarly excellent choice. Otherwise, there’s no reason to not go for the newer QN55Q60RAFXZA.

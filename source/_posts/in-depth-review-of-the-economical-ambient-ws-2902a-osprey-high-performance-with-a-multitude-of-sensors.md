@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Review of the Economical Ambient WS-2902A Osprey: High Performance with a Multitude of Sensors"
-date: 2024-08-04 13:14:16
-updated: 2024-08-07 10:35:50
+date: 2024-08-09T00:55:47.562Z
+updated: 2024-08-10T00:55:47.562Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Review of the Economical Ambient WS-2902A Osprey: High Performance with a Multitude of Sensors"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/dd0fbdf5cb36119cb6841081ccc0579ed7b5b4457
 
 ## Fitbit Versa 3
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Fitbit Versa 3](https://www.lifewire.com/thmb/o6kUvWKq2MSbSx2pJd8dWHiWkOc=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Versa-3-Hero5x4-3bcbedf50dc940008e9c10ee237c88a3.jpg)
 
  Lifewire / Yoona Wagener
@@ -40,6 +43,9 @@ thumbnail: https://thmb.techidaily.com/dd0fbdf5cb36119cb6841081ccc0579ed7b5b4457
 
 ## Fitbit Versa 3
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Fitbit Versa 3](https://www.lifewire.com/thmb/fpj6dU7VhqBf5ukwxKiaOimQtf4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Versa-3-Hero5x4-3bcbedf50dc940008e9c10ee237c88a3.jpg)
 
  Lifewire / Yoona Wagener
@@ -66,10 +72,16 @@ thumbnail: https://thmb.techidaily.com/dd0fbdf5cb36119cb6841081ccc0579ed7b5b4457
 
  I used the Versa 3 as my go-to tracker for runs, walks, and telling time, too. Overall it was almost unnoticeable on my wrist, when I could get the right fit, though I didn’t always have the easiest time interacting with it.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ![Fitbit Versa 3](https://www.lifewire.com/thmb/ceE1xxVfUTF44pCOtEXiO6JW_IA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Versa-3-04-ef922812d0444da4a7277e91efe2fcf8.jpg)
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Design: Sleek and smart-looking
 
  The Fitbit Versa 3 resembles prior versions of the model, though with softer and more rounded edges meant to better contour to the wrist and offer faster response times, according to[Fitbit](https://www.lifewire.com/what-is-fitbit-4176010) . While the standard model that I tested came with a silicone infinity sport band, there are several fancier watch bands available, including a quick-release band—if you opt for a special edition. This would certainly be preferable to the basic black version I tested, which really does look like a sports watch rather than a “regular” watch.
@@ -90,6 +102,9 @@ thumbnail: https://thmb.techidaily.com/dd0fbdf5cb36119cb6841081ccc0579ed7b5b4457
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Performance: Accuracy slightly questionable
 
  In true Fitbit brand fashion, the Fitbit Versa 3 supports wellness in a big-picture way. There are over 20 different workout modes and several, such as running, elliptical exercise, swimming, biking, and aerobic workouts, are automatically detected.
@@ -100,16 +115,25 @@ thumbnail: https://thmb.techidaily.com/dd0fbdf5cb36119cb6841081ccc0579ed7b5b4457
 
  I found that the workout summary on the device itself is easy to follow and review, but the app provides more valuable insights, such as information about heart rate zones and active minute zones by cardio and fat burn.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Fitbit Versa 3](https://www.lifewire.com/thmb/XaHqGkkkpkk1u4lozEYs71XuROc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Versa-3-05-95e58759793b422db3ebd22cf177f2ba.jpg)
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Battery: Lasts for a solid six days
 
  Like the Fitbit Sense, the Fitbit Versa 3 is supposed to last for over six days on a single charge when the display is not set to “always on.” My experience yielded six days before the battery was critically low. This could be because I chose to download and use the Fitbit SPO2 watch face that measures blood oxygen saturation. Fitbit says this face could accelerate the need for charging. Otherwise, I used[GPS](https://www.lifewire.com/what-is-gps-how-it-works-4688647) for about 30 minutes each day and only streamed music via Spotify for 2 hours total.
 
  It charged from critically low to 100 percent in about 1.25 hours, which is in line with the 1-2 hour estimation by the manufacturer. A quick charge brought the device from 9 percent to 29 percent, which tracks with the claim that a 12-minute charge would bring it up to a full day of battery life.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Software/Key Features: Wellness and convenience features reign
 
  The Fitbit Versa 3 runs on the Fitbit OS and benefits from several upgrades. The latest smart features include a built-in speaker and microphone, which Android users can use to respond to phone calls along with sending replies and emojis when the phone is nearby. Sadly, iPhone users can only answer or reject calls and view notifications.

@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of the TP-Link AV1300 Wireless Range Extender - Surprising Shortcomings Revealed
-date: 2024-08-03 10:33:50
-updated: 2024-08-05 12:45:42
+date: 2024-08-09T00:56:19.730Z
+updated: 2024-08-10T00:56:19.730Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of the TP-Link AV1300 Wireless Range Extender - Surprising Shortcomings Revealed
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/-CCYcSX0T5AUV71rvhcL3EXRYU0=/400x300/fi
 
 ## Kootek Laptop Cooling Pad
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/7No_c3E_HUrSqeMtUM6UkfB2e9Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_HeroSquare-6441809b63624fe0a5eeff086503ee26.jpg)
 
 Lifewire / Andrew Hayward
@@ -76,12 +79,18 @@ _We purchased the Kootek Laptop Cooling Pad_   _so our reviewer could put it to 
 
  Essentially, there’s a loose metal bar hanging from the main unit of the cooling pad, and you’ll slot that into one of six ridges on the bottom stand to prop it up. The system doesn’t feel quite as sturdy as having flip-out legs, and it’s loud and awkward in execution. It works and it provides finer-grain height adjustment levels, but it feels like a clunky solution for a tech accessory.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/6Uuby879oWyaUH6_3WN7ZssAF-g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_04-73dc23f85de34fa087b21b21461f9f74.jpg)
 
 Lifewire / Andrew Hayward
 
  There are two buttons at the back of the pad: One button controls the large, central fan (4.72 inches), while the other controls the four smaller fans (2.76 inches each). I’m not sure why you would choose to use only some fans at any given time, since they’re all quiet, but the option is there if you want it. You’ll also find two USB-A ports, meaning this cooling pad functions as a hub for plugging additional accessories into your laptop.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Setup Process: Very straightforward
 
  The Kootek Laptop Cooling Pad doesn’t require any software or its own power unit to function. Simply place it under your laptop, adjust the height as desired, and then plug the built-in USB cable into your laptop to power it on. As mentioned, you can control the fans using the buttons at the back of the pad, and the USB ports can be used for additional accessories.
@@ -102,20 +111,33 @@ Lifewire / Andrew Hayward
 
  Meanwhile, I saw a peak internal temperature of 196 degrees when playing Fortnite, along with an external temperature of 118 degrees. With the cooling pad equipped, I saw a slightly lower internal peak of 192 degrees, although it mostly hovered in the 160 to 170-degree range during testing. The external peak with the Kootek pad was 106 degrees. Curiously, I saw the exact same numbers with the Heaven graphics benchmark test with and without the cooling pad: 162 degrees internally and 109 degrees external.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/ppFnQ9kEpjbEV9cYbHzLRI5j-j8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_05-4a4d5ee065a94c3e984ae0c96f4916d8.jpg)
 
 Lifewire / Andrew Hayward
 
  All told, the Kootek Laptop Cooling Pad made a solid effort in lowering the temperature of the Razer Blade 15 while playing Dirt 5 and Fortnite, although the cheaper, dual-fan TopMate C302 cooling pad saw slightly better overall results. Your experience may vary depending on your laptop of choice, however. All the while, the Kootek pad stayed pretty quiet in stark contrast to the Razer Blade’s own very loud internal fans.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Price: Entirely reasonable
 
  At $26 from Amazon, the Kootek Laptop Cooling Pad is a reasonably-priced option with solid performance and the ability to accommodate larger laptops. There are cheaper options out there, as well as some with additional features such as temperature sensors and additional fan controls, but Kootek’s device delivers good functionality for the price.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/30UKekQcQjJ1mpixthV5avHNZsE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_02-9e1418002e754b2c8e01cb12f766975a.jpg)
 
 Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ## Kootek Laptop Cooling Pad vs. TopMate C302
 
  As mentioned above, the TopMate C302 is a lighter, simpler cooling pad option. It’s designed for laptops up to 15 inches in size and isn’t quite as thick or heavy, but it gets the job done with effective cooling and straightforward design. Kootek’s pad offers an additional USB port for accessories, though, and allows for more height variance than the TopMate’s basic pop-out feet.

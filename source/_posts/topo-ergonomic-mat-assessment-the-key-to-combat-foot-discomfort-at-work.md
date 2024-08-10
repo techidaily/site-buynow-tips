@@ -1,7 +1,7 @@
 ---
 title: Topo Ergonomic Mat Assessment - The Key to Combat Foot Discomfort at Work
-date: 2024-08-02 23:49:41
-updated: 2024-08-05 12:32:28
+date: 2024-08-09T00:56:02.496Z
+updated: 2024-08-10T00:56:02.496Z
 categories:
   - BestProducts
 description: This Article Describes Topo Ergonomic Mat Assessment - The Key to Combat Foot Discomfort at Work
@@ -38,6 +38,9 @@ Lifewire / Rebecca Isaacs
 
 ## Ergodriven Topo Standing Desk Mat
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/GZTKidZtByl51GvkYiB-jNjEjbE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Ergodriven-Topo-Comfort-Mat-1-ccd96f7c454945c3b974a2f5cba4fe79.jpg)
 
 Lifewire / Rebecca Isaacs
@@ -59,6 +62,9 @@ Lifewire / Rebecca Isaacs
 
  A standing desk isn’t complete without a standing desk mat, at least not if you value your comfort. We tried out the Topo by Ergodriven Standing Desk Mat, testing it for comfort, design, and performance. We decided to test it for a few hours a day over the course of a week to see how it worked.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/KYfJPJ0jHZhmy15IUeGxDL8kmRw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ergodriven-Topo-Comfort-Mat-2-547d9823c4ac47cbb5a360040866172a.jpg)
 
  Lifewire / Rebecca Isaacs
@@ -71,6 +77,9 @@ Lifewire / Rebecca Isaacs
 
 Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Performance: Flawed, but still solid**
 
  As we previously stated, one of the features of this mat is the massage mound in the center. When we first stepped onto the mat, we really disliked how we couldn’t shift without bumping the massage mound. It’s a great feature if you want to change your ankle stances or relieve your foot pain. However, if you’re standing on the mat for extended hours at a time, your feet are stuck off to the sides and you really can’t shift around as time progresses.
@@ -85,12 +94,18 @@ Lifewire / Rebecca Isaacs
 
  We also liked how the mat slides around on various surfaces, but it’s not too slippery. We hauled it around to various offices with tile and carpet. Each time we set it down, we could push it under the desk with ease if we needed to sit for extended lengths of time and pull it out just as easily when we wanted to stand.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Pretty steep for a mat**
 
  At around $100 on Amazon, the Topo is in the higher price range for a standing desk mat. We could find models that don’t have the massage mound in the center, however, the steep power wedges in the back make it a reasonable investment for anyone who really wants to stretch out their legs.
 
  For a standing desk mat with some exercise features, the Ergodriven Topo is a fairly decent choice.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## **Topo Ergodriven vs. CubeFit TerraMat**
 
  We decided to compare the Ergodriven Topo against CubeFit’s TerraMat. Price-wise, they’re very similar, retailing around $100\. They also come with massage mounds and various power wedges. However, the TerraMat has more features on the mat itself, including a balance bar and plantar mounds off to the sides, as well as a massage mound in the front. None of the actual features are located in the TerraMat’s center, unlike the Topo mat.
@@ -105,6 +120,9 @@ Lifewire / Rebecca Isaacs
 
  For a standing desk mat with some exercise features, the Ergodriven Topo is a fairly decent choice. While we think there are other, better mats out there, but the Topo does hide dirt better, and the deep rear wedges stretch the hamstrings more than most other models on the market. If you want a solid stretch, then the Ergodriven Topo is the best choice for you.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Topo Standing Desk Mat

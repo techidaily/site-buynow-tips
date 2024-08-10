@@ -1,7 +1,7 @@
 ---
 title: In Depth Analysis of the Durable Fujitsu ScanSnap iX1600 Desktop Scanner for Businesses
-date: 2024-08-06 23:49:11
-updated: 2024-08-08 12:36:21
+date: 2024-08-09T00:56:18.610Z
+updated: 2024-08-10T00:56:18.610Z
 categories:
   - BestProducts
 description: This Article Describes In Depth Analysis of the Durable Fujitsu ScanSnap iX1600 Desktop Scanner for Businesses
@@ -13,6 +13,11 @@ thumbnail: https://www.lifewire.com/thmb/HFoWXaIQZxSyQFPDKBWUrbeoTCg=/400x300/fi
 
 3.9
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ## D-Link DHP-P701AV Powerline AV2000
 
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/nsaP3RakwQYiBJEb9bxIZJaE8yE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-HeroSquare-db3b8923e8f945e196de87932b00dc2a.jpg)
@@ -91,10 +96,16 @@ Lifewire / Jeremy Laukkonen
 
  Each Powerline AV2000 adapter also includes a button that you can press to establish a secure connection. This isn’t necessary, but it’s still very easy. To get started, you push the button on one adapter for two seconds. You then have two minutes to press the corresponding button on the other adapter. The adapters will then established a secure connection using 128-bit AES encryption.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/X0oLXEoZMMDp1yHZ4thpEvAY2Sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-05-29cdfecba8e74dc9a126aff93f29b3ce.jpg)
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Connectivity: HomePlug AV2 with MIMO**
 
  D-Link Powerline AV2000 adapters use the[HomePlug AV2 specification](https://www.lifewire.com/powerline-home-networking-and-homeplug-817720) , so they’re nominally compatible with other AV2 devices. In practice, and when using the secure network function, they work best with other D-Link Powerline AV2000 adapters.
@@ -103,10 +114,16 @@ Lifewire / Jeremy Laukkonen
 
  Since they use the HomePlug AV2 specification, these adapters are able to take advantage of[multi-in multi-out (MIMO)](https://www.lifewire.com/mimo-wifi-routers-818332) with beamforming. This represents a massive improvement over the other HomePlug AV1 specification, both in terms of speed and the maximum distance between adapters.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/BW7yDwtrIQMB3iE9oYnM3hvr-eQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-03-2e5f7ed23f674661896b72ed0710efff.jpg)
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Network Performance: Fast, but not the fastest**
 
  These adapters are built on the excellent Broadcom BCM60500 chipset, which is used in some of the best powerline adapters on the market. The theoretical maximum network transfer speed is 2Gbps, but these adapters are limited by their[1Gbps ethernet ports](https://www.lifewire.com/definition-of-gigabit-ethernet-816338) and also the realities of home wiring.
@@ -117,10 +134,34 @@ Lifewire / Jeremy Laukkonen
 
  When tested on data transfer within the network, we measured a maximum transfer speed of 350Mbps. That’s not exactly gigabit, and speeds drop off significantly when the adapters are plugged into different circuits, but it’s still one of the fastest powerline adapters we’ve tested.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/IXQZNi3pFRjm2tdKfPMhwxTE-DA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-06-5a298aa4450e4adfb249aeae86330406.jpg)
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: D-Link PLC utility available online**
 
  These devices are plug and play, so most users won’t ever have to worry about software, and there is no software included in the box. If you ever do need to change any settings or update the firmware, you can download a PLC utility from D-Link’s official website.
@@ -133,6 +174,9 @@ Lifewire / Jeremy Laukkonen
 
  The typical street price for these adapters is pretty close to the competition, but the MSRP is significantly more expensive. Since some competitors, like Extollo, make adapters that are even faster than these, it’s likely that you’re primarily paying for the brand name rather than better performance.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Competition: Beats most of the competition, but doesn’t come out on top**
 
  The D-Link Powerline AV2000 adapters beat most competitors in terms of sheer performance, and the slightly higher price tag is mostly justified by high transfer speeds and reliable connections. The main exception is the Extollo LANSocket 1500, which was a bit faster in our tests, and has an MSRP of just $90.

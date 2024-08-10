@@ -1,7 +1,7 @@
 ---
 title: DIY Robotics Made Easy with Makeblock's mBot Kit - Review and Project Insights
-date: 2024-08-06 19:40:55
-updated: 2024-08-07 10:50:22
+date: 2024-08-09T00:55:36.615Z
+updated: 2024-08-10T00:55:36.615Z
 categories:
   - BestProducts
 description: This Article Describes DIY Robotics Made Easy with Makeblock's mBot Kit - Review and Project Insights
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/7m4G61FJ_EhVTWC3BsDjxBloDXo=/400x300/fi
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Sealoc Outdoor TV Full Weatherized 55" UHD Smart Weatherproof LED Television
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![SkyVue 55-inch Sealoc Costal Silver TV](https://www.lifewire.com/thmb/uyIYN745zw-UJZ8sDjpcxk5bhqA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_HERO_Square-a5f526f61e0641158a8503d02b6058b1.jpg)
 
  Lifewire / Gannon Burgett
@@ -38,6 +44,9 @@ thumbnail: https://www.lifewire.com/thmb/7m4G61FJ_EhVTWC3BsDjxBloDXo=/400x300/fi
 
 ## Sealoc Outdoor TV Full Weatherized 55" UHD Smart Weatherproof LED Television
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ![SkyVue 55-inch Sealoc Costal Silver TV](https://www.lifewire.com/thmb/hfv-N-kUKUqrdbk4rO9ay7vh_to=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_HERO_Square-a5f526f61e0641158a8503d02b6058b1.jpg)
 
  Lifewire / Gannon Burgett
@@ -91,6 +100,9 @@ thumbnail: https://www.lifewire.com/thmb/7m4G61FJ_EhVTWC3BsDjxBloDXo=/400x300/fi
 
  Overall, unless you’re exposing this unit to salty seawater day in, day out, in the harshest environments, I have a hard time seeing how this TV won’t hold up for years to come.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![SkyVue 55-inch 4K Outdoor TV](https://www.lifewire.com/thmb/GJ1StKRMx12EggdPfSJWCSSS7aY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_02_Horiz-1df71300a60d421f848d96050a856fbe-d93884cf38ee40188089dc6d114570d3.jpg)
 
 Lifewire / Gannon Burgett
@@ -101,6 +113,9 @@ Lifewire / Gannon Burgett
 
  Once mounted and plugged in, it’s simply a matter of plugging in your peripherals and turning the TV on. On the topic of peripherals, it’s important to note that unless you’re using a compact stick-style device—such as a[Google Chromecast](https://www.lifewire.com/guide-to-chromecast-2438213) or[Amazon Fire TV Stick](https://www.lifewire.com/amazon-fire-tv-stick-4k-review-4691492) —you’ll want to find a way to run cables to another weatherproof location, as there isn’t any room on the TV itself to mount or hide the devices.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ![SkyVue 55-inch 4K Outdoor TV](https://www.lifewire.com/thmb/OnY0-xZAailZsOzbKDqy1Zy3Gaw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_03_Horiz-65682943818f4cb49f1fe614eaeb18e6.jpg)
 
  Lifewire / Gannon Burgett
@@ -117,10 +132,16 @@ Lifewire / Gannon Burgett
 
  Despite being entirely weather-sealed, the TV offers great sound quality. The mid-tones are clearly pushed up in the audio, but for most applications, particularly those where voices and commentary are more prominent, this didn’t prove to be an issue. Now, if you’re hoping to hear every nuance of a movie’s soundtrack you might be disappointed, but if your environment is anything like mine, the stray humming of a lawnmower or leaf blower somewhere in the neighborhood will likely negate any high-quality analysis anyway.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![SkyVue 55-inch 4K Outdoor TV](https://www.lifewire.com/thmb/5LTt3_JmSCZ2Cjd0ggeTdVK5pUc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_04_Horiz-f4876803f40845e7a399293e04b71906.jpg)
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: You get what you pay for**
 
  I’ll get straight to the point—this TV isn’t cheap. At $3,000, you could go through at least four of the standard LG 6-series units this model is based on. But not a single one of those would last through more than a single downpour.

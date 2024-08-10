@@ -1,7 +1,7 @@
 ---
 title: "Audio-Technica's Turntable Triumph: Digitizing with the AT-LP120XUSB"
-date: 2024-08-07 22:45:38
-updated: 2024-08-08 10:17:26
+date: 2024-08-09T00:55:49.146Z
+updated: 2024-08-10T00:55:49.146Z
 categories:
   - BestProducts
 description: "This Article Describes Audio-Technica's Turntable Triumph: Digitizing with the AT-LP120XUSB"
@@ -36,8 +36,14 @@ Lifewire / Jeff Dojillo
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Audio-Technica AT-LP120XUSB
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Audio-Technica AT-LP120XUSB-BK](https://www.lifewire.com/thmb/gUSGcxbX4twCFknmSc1Ok71bc1A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW4066854-HeroSquare-b64d56107a3247e685fc7fdbff3f1663.jpg)
 
 Lifewire / Jeff Dojillo
@@ -64,6 +70,9 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Modern but plastic**
 
  The Audio-Technica AT-LP120XUSB-BK is a lightweight turntable with a modern design. The all black, polished metal turntable comes with a professional-grade, anti-resonance, die-cast aluminum platter and a felt mat to help reduce vibration when playing records.
@@ -94,6 +103,9 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Sound Quality: Varies from system to system**
 
  The Audio-Technica AT-LP120XUSB-BK generally sounds great, but audio quality can vary significantly depending on the system to which the turntable is attached. When testing the AT-VM95E Dual Magnet phono cartridge with a dedicated stereo amp it created a wonderful soundstage with crisp high tones and rich bass. Even though our tests were positive, the sound produced from the turntable relies more on the quality of speakers, amp, and sound dynamics of the room than other models.
@@ -102,6 +114,10 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## **Digital to Analog Conversion: Quick and easy**
 
  According to the instructions that were provided with the Audio-Technica AT-LP120XUSB-BK, all we had to do to convert vinyl records to digital audio was to connect the turntable via[USB](https://www.lifewire.com/universal-serial-bus-usb-2626039) and download Audacity recording software. Converting analog audio to digital was then as simple as selecting the turntable as our input device. This turntable is perfect for those looking for a simple way to record their favorite records or archive a rare vinyl collection.
@@ -128,6 +144,9 @@ Lifewire / Jeff Dojillo
 * [Edifier R1280T Powered Bookshelf Speakers](https://www.lifewire.com/edifier-r1280t-powered-bookshelf-speakers-review-4780162)
 * [Polk T50](https://www.lifewire.com/polk-t50-review-4772109)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  AT-LP120XUSB

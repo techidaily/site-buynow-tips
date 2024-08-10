@@ -1,7 +1,7 @@
 ---
 title: "The Economical Choice: In-Depth Review of the TP-Link Archer C5([email Protected](tp-Link)"
-date: 2024-08-02 12:23:24
-updated: 2024-08-05 12:30:18
+date: 2024-08-09T00:56:05.445Z
+updated: 2024-08-10T00:56:05.445Z
 categories:
   - BestProducts
 description: "This Article Describes The Economical Choice: In-Depth Review of the TP-Link Archer C5([email Protected](tp-Link)"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/93e8b8eb6bc88169936766a6461fe23e663eb5979
 
 ## TP-Link Archer C50 Dual Band Wi-Fi Router
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TP-Link Archer C50](https://www.lifewire.com/thmb/e7HPSZZPrP9qXUble5RJ1tNdrOw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4038590-4_Hero-5c9107c7c9e77c00014a9e1d.jpg)
 
 Lifewire / Jordan Provost
@@ -71,10 +74,17 @@ Lifewire / Jordan Provost
 
  That said, it’s decent looking and you won’t feel compelled to obscure it. That’s a good thing because this is one router you don’t want to hold it back. Overall, we can’t really ask more out of a cheap router like the TP-Link Archer C50.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ![TP-Link Archer C50](https://www.lifewire.com/thmb/-HYK_pePWFqPtoMcwpzZF4gi5fs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4038590-4_1-5c91126ec9e77c00010e9758.jpg)
 
  Lifewire / Jordan Provost
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ## **Setup: Simple and breezy**
 
  Realizing that most of the people buying the Archer C50 likely haven’t bought routers too many times in the past, TP-Link made setup extremely easy. The instructions are printed on the side of the box, rather than in an easily-lost pamphlet.
@@ -93,6 +103,9 @@ Lifewire / Jordan Provost
 
  You can download Tether, TP-Link’s mobile app, but it’s pretty limited. You can view you your network map, change your Wi-Fi password and enable your guest network. There is an option to troubleshoot your network, as well, but you can’t test speeds, like some other routers’ mobile apps.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Connectivity: The bare essentials**
 
  When it comes to physical ports, the TP-Link Archer C50 features 4[LAN ports](https://www.lifewire.com/what-is-lan-4684071) and a[USB 2.0](https://www.lifewire.com/what-is-usb-2-0-2626037) port, for external devices like hard drives or printers. That’s a pretty limited list of ports, but with such a small router, there’s not really any room for more, so it’s hard to complain.
@@ -105,6 +118,9 @@ Lifewire / Jordan Provost
 
  Lifewire / Jordan Provost
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Network Performance: Don’t expect a miracle**
 
  In our testing, the TP-Link Archer C50 just couldn’t reach its rated speeds. We already mentioned that we tested this router over a 250Mbps connection, but we couldn’t get more than 85Mbps_over a wired connection_ . When we tested the wireless strength, we weren’t able to break past 65Mbps. At first, we thought Xfinity was having some trouble, but repeated tests throughout the day kept coming up with the same results.
@@ -121,14 +137,23 @@ Lifewire / Jordan Provost
 
  Frankly, we were surprised at how great the Archer C50’s range was.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Affordability over performance**
 
  The TP-Link Archer C50’s main saving grace is the price. You can pick it up for $59.99 MSRP, though at the time of this writing it’s sitting at $39 on Amazon. That’s an extraordinarily low price for a wireless router, but you get what you pay for. Spending just an extra $10-$20 will drastically improve your experience, especially if you’re using broadband. But, again, for DSL users that need to supply their own router, the range alone is worth the 40 bucks.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TP-Link Archer C50](https://www.lifewire.com/thmb/7XO9AlL7doeyciw0X33vk6MLWpk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4038590-4_6-5c911347c9e77c0001ff0b7f-c3e8a53350f74b9682d94e49bc0116f9.jpg)
 
 Lifewire / Jordan Provost
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ## **TP-Link Archer C50 vs. Netgear R6230**
 
  For just a few dollars more at the time of this writing, you can pick up the Netgear R6230 AC1200 router ($74.99 MSRP). For the most part, the specs are identical, but the Netgear R6230 has one feature that the Archer C50 is lacking: QoS, or Quality of Service. This feature will allow you to prioritize bandwidth to certain devices or applications, so you won’t have your stream interrupted by your roommate downloading a game.
