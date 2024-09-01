@@ -1,7 +1,7 @@
 ---
 title: Review of HoverAir X1 - The Innovative Selfie Drone with Intentional Design
-date: 2024-08-26 23:38:53
-updated: 2024-08-29 12:39:13
+date: 2024-08-31T16:34:22.053Z
+updated: 2024-09-01T16:34:22.053Z
 tags:
   - games
   - tv
@@ -104,6 +104,9 @@ Tyler Hayes / How-To Geek
 
 ![HoverAir X1 folded and being held in a hand](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/hoverair-x1-folded-and-being-held-in-a-hand.JPG) 
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Tyler Hayes / How-To Geek
 
  The problem with shooting more traditional drone photography is that it's usually a significant investment to get some random shots of your rooftop or trees at a local park. I’ve lost interest in several drones over the years because I’ve never had a regular use to justify their continued use after a few weeks.
@@ -132,6 +135,9 @@ Tyler Hayes / How-To Geek
 
 ![HoverAir X1 on the ground with its battery next to it](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/hoverair-x1-on-the-ground-with-its-battery-next-to-it.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Tyler Hayes / How-To Geek
 
  Before getting too far down the path of how great this drone is, it’s important to discuss the battery life. The flight time and overall battery life are the X1’s biggest hurdles and most obvious downsides. HoverAir says the flight time is 11 minutes, but in my experience, I think a more realistic estimate is 6 to 8 minutes.
@@ -144,10 +150,16 @@ Tyler Hayes / How-To Geek
 
  Thankfully, carrying a second or third battery doesn’t add much weight or size. You might not even feel the extra accessories. There is a USB-C port directly on the drone you can you for charging. I used that method some, but I preferred the two-port charger.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  The Mobile App Provides Helpful Animations
 
 ![HoverAir X1 folding on the ground](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/hoverair-x1-folding-on-the-ground.JPG) 
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Tyler Hayes / How-To Geek
 
  Although no controller is needed, you will need to use the app semi-frequently to tweak the flight paths and download the videos it captured.
@@ -164,6 +176,9 @@ Close
 
 ![underneath the HoverAir X1 in flight](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/underneath-the-hoverair-x1-in-flight.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Tyler Hayes / How-To Geek
 
  The [HoverAir X1](https://www.amazon.com/HOVERAir-X1-Self-Flying-Pocket-Sized-Intelligent/dp/B0CQJWDG5R?th=1&tag=hotoge-20&ascsubtag=UUhtgUeUpU2004587&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fhoverair-x1-review%2F&asc%5Fcampaign=Authority) self-flying drone has quickly become one of my favorite gadgets that I’ve used this year. Its simplicity made it easy to use quickly, while its photography skills captured stunning perspectives.
@@ -174,6 +189,9 @@ Tyler Hayes / How-To Geek
 
 ![HoverAir X1 Drone White](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/hoverair-x1-drone-white.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-rec-2024-2000-1.png) 
 
 #####  HoverAir X1
@@ -200,3 +218,58 @@ The HoverAir X1 self-flying camera is simple and user-friendly. It takes off fro
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-how-to-send-gif-on-snapchat-stey-by-stey-guide/"><u>[New] How to Send Gif on Snapchat [Stey-by-Stey Guide]</u></a></li>
+<li><a href="https://network-issues.techidaily.com/resolved-hdmi-conflict-between-laptop-and-tv/"><u>[Resolved] HDMI Conflict Between Laptop and TV</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-a-step-by-step-approach-to-ending-live-sharing-on-laptops-and-tablets/"><u>[Updated] In 2024, A Step-by-Step Approach to Ending Live Sharing on Laptops and Tablets</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-integrating-tiktok-content-with-facebook/"><u>[Updated] Integrating TikTok Content with Facebook</u></a></li>
+<li><a href="https://article-files.techidaily.com/5-highest-rated-vr-gear-for-uavs-for-2024/"><u>5 Highest-Rated VR Gear for UAVs for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-premium-sound-with-beehive-earbuds/"><u>Affordable, Premium Sound with BeeHive Earbuds</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apex-review-the-dji-mavic-2-pro-unmatched-royalty-of-professional-drone-flight/"><u>Apex Review: The DJI Mavic 2 Pro - Unmatched Royalty of Professional Drone Flight</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cheap-and-clear-petcube-hd-cam-for-pocket-friendly-watching/"><u>Cheap & Clear: Petcube HD Cam for Pocket-Friendly Watching</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/choosing-your-digital-aide-alexa-or-google-assistant-the-ultimate-showdown/"><u>Choosing Your Digital Aide: Alexa or Google Assistant - The Ultimate Showdown</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-gaming-portability-nintendo-switch-lite-vs-nintendo-switch-oled/"><u>Comparing Gaming Portability: Nintendo Switch Lite Vs. Nintendo Switch OLED</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-unveiling-the-samsung-galaxy-tab-s4-a-top-tier-android-device/"><u>Comprehensive Guide: Unveiling the Samsung Galaxy Tab S4 - A Top-Tier Android Device</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cutting-edge-headset-examination-the-midland-gxt100-(span)vp(span)(span)4-and-its-crystal-communication-features/"><u>Cutting-Edge Headset Examination: The Midland GXT100 <Span>VP</Span><span>4 and Its Crystal Communication Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decoding-pixel-slate-woes-a-deep-dive-into-chromeos-fiasco/"><u>Decoding Pixel Slate Woes: A Deep Dive Into ChromeOS Fiasco</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-ultimate-activity-partner-a-comprehensive-guide-to-the-samsung-galaxy-fit/"><u>Discovering the Ultimate Activity Partner: A Comprehensive Guide to the Samsung Galaxy Fit</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/effortless-way-to-capture-and-save-images-within-word-documents/"><u>Effortless Way to Capture and Save Images Within Word Documents</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/essential-gear-for-the-modern-explorers-dream/"><u>Essential Gear for the Modern Explorer's Dream</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-tp-link-archer-c9-an-affordable-wireless-router-champion/"><u>Evaluating the TP-Link Archer C9: An Affordable Wireless Router Champion</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-tips-to-restore-and-improve-your-discord-voice-call-experience/"><u>Expert Tips to Restore and Improve Your Discord Voice Call Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/explore-urban-adventures-with-mods-approachable-sidecar-e-bike-design/"><u>Explore Urban Adventures with Mod’s Approachable Sidecar E-Bike Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-vive-cosmos-exceptional-virtual-reality-set-in-a-crowded-marketplace/"><u>Exploring the Vive Cosmos: Exceptional Virtual Reality Set in a Crowded Marketplace</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-latest-firmware-for-your-hp-deskjet-2640-free-downloads-available/"><u>Get the Latest Firmware for Your HP Deskjet 2640 - Free Downloads Available!</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/get-windows-11-professional-now-at-an-amazing-discount-of-88/"><u>Get Windows 11 Professional Now at an Amazing Discount of 88%%</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/getting-started-with-the-latest-blink-outdoor-floodlight-camera-your-complete-guide-for-ultimate-security-and-peace-of-mind/"><u>Getting Started with the Latest Blink Outdoor Floodlight Camera - Your Complete Guide for Ultimate Security & Peace of Mind</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/hear-the-difference-airpods-pro-versus-samsung-buds-pro/"><u>Hear the Difference: AirPods Pro Versus Samsung Buds Pro</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-examining-the-potential-of-4-second-subscriptions/"><u>In 2024, Examining the Potential of 4-Second Subscriptions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-acer-chromebook-r-11-fashionable-and-featherlight-tech/"><u>In-Depth Analysis of the Acer Chromebook R 11 - Fashionable & Featherlight Tech</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-of-the-mobvoi-ticwatch-pro-3-advanced-gps-tracking-and-extended-life-from-dual-display-technology/"><u>In-Depth Evaluation of the Mobvoi TicWatch Pro 3: Advanced GPS Tracking and Extended Life From Dual Display Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-the-stylish-and-high-performance-netgear-nighthawk-rax80-wi-fi-6-router/"><u>In-Depth Review of the Stylish and High-Performance Netgear Nighthawk RAX80 Wi-Fi 6 Router</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-the-functionality-and-features-of-googles-wireless-nest-doorbell-battery/"><u>In-Depth Review: The Functionality and Features of Google's Wireless Nest Doorbell (Battery)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-walmartplus-a-wise-investment-herere-4-arguments/"><u>Is Walmart+ a Wise Investment? Here're 4 Arguments</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/join-forces-in-dying-light-a-thrilling-co-op-experience-of-parkour-and-survival-mastery-in-a-post-outbreak-world/"><u>Join Forces in 'Dying Light': A Thrilling Co-Op Experience of Parkour and Survival Mastery in a Post-Outbreak World</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-the-charge-a-guide-to-the-most-outstanding-game-systems-of-2econd-quarter-century/"><u>Leading the Charge: A Guide to the Most Outstanding Game Systems of 2Econd Quarter-Century</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/master-builders-rejoice-in-depth-analysis-of-the-captivating-city-planner-game/"><u>Master Builders Rejoice: In-Depth Analysis of the Captivating City Planner Game</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-traffic-signals-an-in-depth-look-at-the-intelligent-escort-ix-system/"><u>Mastering Traffic Signals: An In-Depth Look at the Intelligent Escort iX System</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/most-effective-family-security-routers-of-2024-features-comparisons-and-picks/"><u>Most Effective Family Security Routers of 2024: Features, Comparisons & Picks</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-mkvtoolnix-for-macos-a-beginners-guide-to-video-editing-2023-for-2024/"><u>New MKVtoolnix for macOS A Beginners Guide to Video Editing 2023 for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/next-level-gaming-with-dell-alienware-aurora-r9-the-cutting-edge-pc-review/"><u>Next-Level Gaming with Dell Alienware Aurora R9 - The Cutting Edge PC Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/pioneering-photo-printing-websites-top-10-to-watch/"><u>Pioneering Photo Printing Websites: Top 10 to Watch</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/premier-home-based-weather-systems-showdown-the-2024-lineup/"><u>Premier Home-Based Weather Systems Showdown: The 2024 Lineup</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/professional-comparisons-leading-document-and-image-scanner-picks-of-2024/"><u>Professional Comparisons: Leading Document and Image Scanner Picks of 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-the-fitbit-versa-lite-high-quality-health-tracking-without-breaking-the-bank/"><u>Review of the Fitbit Versa Lite: High-Quality Health Tracking Without Breaking the Bank</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/soundcore-life-q30-an-economic-journey-through-anc-headphones/"><u>Soundcore Life Q30 - An Economic Journey Through ANC Headphones</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-art-of-timing-your-smartphones-evolution-with-apple/"><u>The Art of Timing Your Smartphone's Evolution with Apple</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-beginners-guide-to-music-on-the-move-agptek-a01mp/"><u>The Beginners Guide to Music on the Move: AGPTEK A01MP</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-cutting-edge-in-vehicle-compass-systems-2e-2024/"><u>The Cutting Edge in Vehicle Compass Systems (2E 2024)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-ambient-weather-ws-1002-wifi-device-superior-quality-for-those-willing-to-pay-more/"><u>The Ultimate Guide to Ambient Weather WS-1002 WiFi Device: Superior Quality for Those Willing to Pay More</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-7-must-have-alarm-clock-applications-on-your-phone/"><u>Top 7 Must-Have Alarm Clock Applications on Your Phone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-mods-cutting-edge-sidecar-e-bike-an-in-depth-hands-on-exploration/"><u>Unveiling Mod's Cutting-Edge Sidecar E-Bike - An In-Depth Hands-On Exploration</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-lamicall-s-innovative-design-for-optimal-tablet-viewing-experience/"><u>Unveiling the Lamicall S: Innovative Design for Optimal Tablet Viewing Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-truth-an-experts-take-on-viber-out/"><u>Unveiling the Truth: An Expert's Take on Viber Out</u></a></li>
+</ul></div>

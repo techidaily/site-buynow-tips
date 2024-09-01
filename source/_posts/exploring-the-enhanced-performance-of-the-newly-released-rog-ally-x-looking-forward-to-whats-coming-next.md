@@ -1,7 +1,7 @@
 ---
 title: Exploring the Enhanced Performance of the Newly Released ROG Ally X - Looking Forward to What's Coming Next
-date: 2024-08-27 12:16:20
-updated: 2024-08-29 11:37:27
+date: 2024-08-31T16:37:13.409Z
+updated: 2024-09-01T16:37:13.409Z
 tags:
   - games
   - tv
@@ -55,6 +55,9 @@ ASUS
 
 ![ASUS ROG Ally Charging Clamp holding the charging cable, preventing it to exert force on the USB-C port.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/asus-rog-ally-charging-clamp-connected.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Goran Damnjanovic / How-To Geek
 
  The linked report also mentions a new “Precision D-Pad” and I’m all for it. The D-Pad on the Ally isn’t _bad_, but it isn’t great either. Any improvement is welcome since it will most likely find its way to the ROG Ally 2.
@@ -71,6 +74,9 @@ Goran Damnjanovic / How-To Geek
 
  I understand why the Ally X doesn’t feature a trackpad. To fit one, ASUS would have to completely redesign the chassis and rearrange the internal components. But the ROG Ally 2 should really come with one because having one makes navigating around Desktop Mode on my Steam Deck so much more enjoyable. I’m positive a trackpad would make navigating around Windows [almost pain-free](https://win-solutions.techidaily.com/overcoming-unexpected-shutdowns-in-cod-modern-warfare-3-game-application/), too, which is anything but on the ROG Ally.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ###  A Slightly Larger, OLED Screen
 
  ASUS copying Valve and equipping the ROG Ally X with an [OLED](https://review-topics.techidaily.com/mkv-to-sony-xperia-5-v-converter-convert-mkv-for-sony-xperia-5-v-by-aiseesoft-video-converter-play-mkv-on-android/) panel didn’t happen, but if they could pack one inside the ROG Ally 2, I wouldn’t mind. Especially if we get a slightly larger screen in the same body, only with thinner bezels, like on the [Steam Deck OLED](https://sim-unlock.techidaily.com/in-2024-how-to-unlock-atandt-iphone-14-with-3-methods-by-drfone-ios/).
@@ -81,6 +87,9 @@ Goran Damnjanovic / How-To Geek
 
  The triggers on the Ally are pretty good. They have just the right resistance and pretty generous travel, but they’re just a tad too short for my taste. Triggers being even a half centimeter (a fifth of an inch) taller on the next ROG Ally would be great.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ###  A Physical Button for Switching Between Desktop and Controller Modes
 
 ![GPD Win 4 Mouse Controller Switch button.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/gpd-mouse-controller-switch-button.png) 
@@ -95,6 +104,9 @@ GPD
 
  This means that I can only use one back button in most games. But if the ROG Ally 2 copies the Steam Deck and packs four buttons, I’ll be able to use three of those as regular back buttons, which would be yet another small yet super handy upgrade.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ###  Hall Effect Thumbsticks
 
  ASUS stated they couldn’t fit [Hall effect thumbsticks](https://youtube-blog.techidaily.com/esthetic-alignment-for-online-glamour-content-for-2024/) on the ROG Ally because the Hall effect triggers present on the Ally would interfere with the thumbstick sensors and vice versa if both were Hall effect-based.
@@ -107,6 +119,9 @@ GPD
 
  I’d like the ROG Ally 2 lineup to include a proper budget model—at least 30% more affordable than the high-end model, featuring a 900p screen instead of a 1080p panel.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ###  An APU That’s Designed for a Gaming Handheld
 
  The AMD Z1 Extreme is a solid APU, but it’s clear it wasn’t designed for a handheld. It’s basically a Ryzen 7 7840U with its AI cores disabled. Now that gaming handhelds have become somewhat popular, I’d like AMD to create a proper APU for gaming-focused portable devices.
@@ -127,16 +142,27 @@ Intel
 
  That way, we could reserve 10GB of memory for the iGPU and leave Windows and games with 22GB of RAM, which should be enough even for the most demanding games still set to arrive in this console generation.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ###  Multiple Color Options
 
  This is a first-world problem, but I’d like to see the ROG Ally 2 arrive in multiple flavors.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ###  A Plastic Cover on the Back to Allow for Easy SSD Replacement
 
  You can find this feature on some early GPD handheld PCs and some Microsoft Surface devices also come with an SSD cover. I don’t understand how this hasn't become a regular thing in handheld gaming PCs.
 
 ![Miscrosoft Surface with its SSD Cover removed.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/miscrosoft-surface-ssd-cover.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 Microsoft
 
  An SSD cover would mean we wouldn’t have to remove the entire back cover of our handhelds and instead just unscrew the SSD cover, replace the storage drive, screw the cover back, and continue with our day. This is yet another minor tweak that would make the lives of the ROG Ally 2 owners much easier.
@@ -159,3 +185,72 @@ Microsoft
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-dissecting-video-platform-features-youtube-vs-dailymention/"><u>[New] 2024 Approved  Dissecting Video Platform Features  YouTube Vs. DailyMention</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ow-to-safely-capture-your-favorite-youtube-audio-for-free/"><u>[New] How to Safely Capture Your Favorite YouTube Audio for Free</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-8-tips-on-how-to-vlog-confidently-like-popular-youtubers/"><u>[New] In 2024, 8 Tips on How to Vlog Confidently Like Popular YouTubers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-crafted-collections-of-ig-pics/"><u>[New] In 2024, Crafted Collections of IG Pics</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-crafting-ae-titles-with-maximum-impression/"><u>[New] In 2024, Crafting AE Titles with Maximum Impression</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-ultimate-guide-to-music-copyright-etiquette-on-ig/"><u>[New] In 2024, The Ultimate Guide to Music Copyright Etiquette on IG</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-streamline-your-songs-with-youtube-playlist-formats/"><u>[Updated] 2024 Approved  Streamline Your Songs with YouTube Playlist Formats</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-from-passive-to-active-a-3-step-framework-to-evaluate-your-youtube-financials/"><u>[Updated] From Passive to Active  A 3-Step Framework to Evaluate Your YouTube Financials</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-steady-shots-how-to-avoid-lens-cloudiness-for-2024/"><u>[Updated] Steady Shots  How to Avoid Lens Cloudiness for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-canon-cameras-vividness-with-free-and-paid-lut-sets/"><u>2024 Approved  Canon Cameras' Vividness with Free & Paid LUT Sets</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-puzzle-of-facebooks-status-emoji-unveiling-the-hidden-meaning/"><u>2024 Approved  The Puzzle of Facebook's Status Emoji  Unveiling the Hidden Meaning</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-checklist-important-considerations-when-shopping-for-vr-technology/"><u>A Checklist: Important Considerations When Shopping for VR Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-karaoke-options-across-the-us-quality-entertainment-under-150-reviewed/"><u>Best Karaoke Options Across the US – Quality Entertainment Under $150 Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/breakthrough-earbuds-best-of-the-year-2024/"><u>Breakthrough Earbuds - Best of the Year 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/capture-the-essence-in-cloud-mix-free-space-plus-charged-backup-sanctuaries-for-2024/"><u>Capture the Essence in Cloud  Mix Free Space + Charged Backup Sanctuaries for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparative-analysis-of-tablet-computers-based-on-processor-quality/"><u>Comparative Analysis of Tablet Computers Based on Processor Quality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-the-sumind-bt70b-fm-bluetooth-receiver-your-drivers-tech-ally/"><u>Comprehensive Guide to the Sumind BT70B FM Bluetooth Receiver - Your Driver's Tech Ally</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-netatmo-weather-station-analysis-ideal-smart-weather-device-for-mobile-enthusiasts/"><u>Comprehensive Netatmo Weather Station Analysis: Ideal Smart Weather Device for Mobile Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-how-the-netgear-nighthawk-rax80-revolutionizes-home-networking-with-wi-fi-6-capabilities/"><u>Comprehensive Review: How the Netgear Nighthawk RAX80 Revolutionizes Home Networking with Wi-Fi 6 Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cutting-edge-combination-a-closer-look-at-netgears-innovative-cable-modem-and-router-package/"><u>Cutting-Edge Combination: A Closer Look at Netgear's Innovative Cable Modem and Router Package</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/cyberlink-vs-alternatives-the-ultimate-recording-showdown/"><u>Cyberlink Vs. Alternatives  The Ultimate Recording Showdown</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/d-link-powerline-2000-reviewed-effortless-configuration-and-high-speed-connectivity-unveiled/"><u>D-Link Powerline 2000 Reviewed: Effortless Configuration & High-Speed Connectivity Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-sony-w800-a-camera-that-delivers-both-solidity-and-savings/"><u>Evaluating Sony W800: A Camera that Delivers Both Solidity & Savings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/examination-the-5-best-arguments-for-buying-an-ipad/"><u>Examination: The 5 Best Arguments for Buying an iPad</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-bookbook-v2-a-smart-choice-for-macbook-protection-twelve-south/"><u>Expert Analysis of the BookBook V2 - A Smart Choice for MacBook Protection (Twelve South)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-huion-kamvas-gt-191-pen-display-a-vast-space-for-creativity-unleashed/"><u>Expert Analysis of the Huion Kamvas GT-191 Pen Display – A Vast Space for Creativity Unleashed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-the-comprehensive-guide-to-mapmyride-features-and-functionality/"><u>Expert Analysis: The Comprehensive Guide to MapMyRide Features and Functionality</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/explaining-the-gopro-burst-mode-for-2024/"><u>Explaining the GoPro Burst Mode for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/fixing-constant-crashes-how-to-get-tormented-souls-running-smoothly-on-your-computer/"><u>Fixing Constant Crashes: How to Get Tormented Souls Running Smoothly on Your Computer</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-do-i-sim-unlock-my-apple-iphone-xr-by-drfone-ios/"><u>How Do I SIM Unlock My Apple iPhone XR?</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-launch-armored-core-vi-fires-of-rubicon-without-a-glitch-a-comprehensive-solution-guide/"><u>How to Launch Armored Core VI: Fires of Rubicon Without a Glitch – A Comprehensive Solution Guide</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-safeguard-your-files-discover-the-five-best-ways-to-back-up-and-protect-your-data/"><u>How to Safeguard Your Files: Discover the Five Best Ways to Back Up and Protect Your Data</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>How to Stop Life360 from Tracking You On Apple iPhone XR? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-iphone-14-pro-max-online-without-jailbreak-by-drfone-ios/"><u>How to Unlock SIM Card on iPhone 14 Pro Max online without jailbreak</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-lava-blaze-pro-5g-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Lava Blaze Pro 5G Without PUK Codes</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-samsung-galaxy-a15-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Samsung Galaxy A15 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-meizu-21-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Meizu 21 Phone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-the-ultimate-tiktok-video-locker-free-and-clear/"><u>In 2024, The Ultimate TikTok Video Locker - FREE & Clear</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-ringtones-for-pixels-where-to-download/"><u>In 2024, Top Ringtones for Pixels  Where to Download?</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/linksys-ae2500-driver-download-made-simple-fast-effective-tips-inside/"><u>Linksys AE2500 Driver Download Made Simple – Fast, Effective Tips Inside</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722853325454-mastering-pokemon-go-a-comprehensive-guide/"><u>Mastering 'Pokémon Go': A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximized-mileage-with-minimal-price-explore-the-best-economical-car-chargers-from-anker/"><u>Maximized Mileage with Minimal Price – Explore the Best Economical Car Chargers From Anker</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/most-popular-video-game-platforms-2024-edition/"><u>Most Popular Video Game Platforms - 2024 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-a51-5g-analysis-unbeatable-value-for-the-future-of-connectivity/"><u>Samsung Galaxy A51 5G Analysis - Unbeatable Value for the Future of Connectivity</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-basics-of-generative-artificial-intelligence-explained-simply/"><u>The Basics of Generative Artificial Intelligence Explained Simply</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-soundbot-sb210-winter-edition-reviewed-high-fidelity-sounds-delivered-efficiently/"><u>The Soundbot SB210 Winter Edition Reviewed: High-Fidelity Sounds Delivered Efficiently</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/the-ultimate-guide-to-picking-a-streamer-chromecast-vs-roku-face-off/"><u>The Ultimate Guide to Picking a Streamer: Chromecast vs Roku Face-Off.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-acer-chromebook-15-impressive-features-for-big-screen-users/"><u>The Ultimate Guide to the Acer Chromebook 15: Impressive Features for Big Screen Users</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-for-jackerys-powerbar-and-its-convenient-built-in-ac-socket/"><u>The Ultimate Review for Jackery's PowerBar and Its Convenient Built-In AC Socket</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-budget-routers-of-the-year-an-in-depth-look-at-the-tp-link-archer-c9/"><u>Top Budget Routers of the Year: An In-Depth Look at the TP-Link Archer C9</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-television-streaming-services/"><u>Top Rated Television Streaming Services</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-review-of-the-tp-link-archer-c80-budget-wifi-beast-unleashed/"><u>Top Review of the TP-Link Archer C80 - Budget WiFi Beast Unleashed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-choosing-a-google-wireless-nest-doorbell-with-battery-feature/"><u>Ultimate Guide to Choosing a Google Wireless Nest Doorbell with Battery Feature</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-list-of-oneplus-offers-during-amazons-hottest-shopping-event/"><u>Ultimate List of OnePlus Offers During Amazon's Hottest Shopping Event</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-power-supply-reviews-the-best-gaming-ups-systems-for-high-performance-pcs/"><u>Ultimate Power Supply Reviews: The Best Gaming UPS Systems for High-Performance PCs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unboxing-amazon-luna-a-breakdown-of-its-remarkably-smooth-streaming-capabilities/"><u>Unboxing Amazon Luna: A Breakdown of Its Remarkably Smooth Streaming Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unboxing-the-future-with-amazon-luna-a-revolutionary-game-streaming-platform/"><u>Unboxing the Future with Amazon Luna - A Revolutionary Game Streaming Platform</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleash-your-potential-on-track-and-trail-the-garmin/"><u>Unleash Your Potential on Track and Trail - The Garmin</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleashing-voice-potential-with-quick-charging-advantages-of-jabra-v25/"><u>Unleashing Voice Potential with Quick-Charging Advantages of Jabra V25</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unmatched-quality-for-less-the-zte-blade-a3y-smartphone-review-explored/"><u>Unmatched Quality for Less: The ZTE Blade A3Y Smartphone Review Explored</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-best-online-print-providers/"><u>Unveiling the Best Online Print Providers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-features-and-speeds-of-glion-dollys-fashionable-e-scooter-at-a-premium-cost/"><u>Unveiling the Features and Speeds of Glion Dolly’s Fashionable E-Scooter at a Premium Cost</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/vivomove-hr-by-garmin-the-fashionable-smartwatch-perfect-for-your-everyday-activity/"><u>Vivomove HR by Garmin - The Fashionable Smartwatch Perfect for Your Everyday Activity</u></a></li>
+<li><a href="https://driver-error.techidaily.com/wi-fi-80211n-broadcoms-solved-problem-on-windows-platform/"><u>Wi-Fi 802.11N: Broadcom's Solved Problem on Windows Platform</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ws-2902a-ambient-weather-station-overview-and-analysis-exceptional-value-with-rich-functionality/"><u>WS-2902A Ambient Weather Station Overview & Analysis - Exceptional Value with Rich Functionality</u></a></li>
+</ul></div>

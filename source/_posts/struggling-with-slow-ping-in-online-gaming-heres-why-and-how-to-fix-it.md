@@ -1,7 +1,7 @@
 ---
 title: Struggling with Slow Ping in Online Gaming? Here's Why and How to Fix It
-date: 2024-08-26 11:50:19
-updated: 2024-08-29 11:19:54
+date: 2024-08-31T16:37:29.267Z
+updated: 2024-09-01T16:37:29.267Z
 tags:
   - games
   - tv
@@ -31,6 +31,9 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
  It's Friday evening, and you're struggling to play online games with your friends because your ping is in the three digits. While everyone is focused on the game, you're stuck trying to figure out how to fix your internet connection. Don't worry, I got you.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Someone or Something on Your Network Is Using Up Bandwidth
 
  In terms of your internet connection, the main factor that affects your ping is actually [latency rather than bandwidth](https://instagram-videos.techidaily.com/updated-in-2024-crafting-cinematic-magic-essential-tips-for-creating-stunning-slow-motion-media-on-instagram/). I remember playing _Call of Duty 2_ back in the day with a 100Kbps internet connection, and I still had a ping of under 100ms, even when connecting to a different country.
@@ -47,10 +50,16 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![An Ethernet cable with green strain relief.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/09/52577263727_0b499d3d60_c.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 Hannah Stryker / How-To Geek  
   
  If you're gaming on a wireless-first device, such as a smartphone or the Steam Deck, try moving closer to the router. Measure your [Wi-Fi signal strength](https://win11.techidaily.com/addressing-ntoskrnlexe-overload-issue/) around the house and find a spot that works for you (or isolate black spots you can fix with a [Mesh network or range extender](https://easy-unlock-android.techidaily.com/in-2024-the-ultimate-guide-to-motorola-edge-2023-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/)). If this doesn't fix your high ping, at least you'll know it's not the wireless connection to blame.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ##  Try Experimenting with Command Prompt
 
  Command Prompt in Windows allows you to run commands that affect your network configuration settings. Namely, you can use it to [flush your DNS](https://article-helps.techidaily.com/updated-in-2024-sightline-synopsis-study/), obtain a new IP address if you have a [dynamic IP](https://extra-resources.techidaily.com/improving-the-endurance-of-your-gopro-power-source/), and reset changes made to your [Winsock Catalog](https://youtube-videos.techidaily.com/in-2024-elevate-your-video-visibility-ethically-one-million-in-views/).
@@ -75,10 +84,18 @@ ipconfig /flushdns`
 
 ![A Netgear Nighthawk MK93S mesh node on a table between a plant in an orange pot and a black water bottle.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/01/netgear-nighthawk-mesh-router-9-1.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 Jordan Gloor / How-To Geek
 
  If a simple reboot doesn't fix the issue, you could try doing a factory reset by taking a paper clip and pressing and holding the reset button on the back. Note that this will also wipe all of your router settings, so maybe it's best to try a few other fixes from this article before you resort to a factory reset. Also, if your router is very old, it might be time to [throw it away and buy a new router](https://screen-recording.techidaily.com/updated-2024-approved-savvy-obs-arrangement-for-economical-pcs/).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ##  You’re Too Far From the Server
 
  One of the biggest factors that affect your ping is the physical distance between you and the server you're connecting to. All online games require a host server. Some are hosted on the developer's or publisher's game servers, while others use a peer-to-peer connection where one player acts as the host.
@@ -87,6 +104,9 @@ Jordan Gloor / How-To Geek
 
  Still, most multiplayer games use dedicated game servers, and if you live far away from the server you're connecting to, you'll have a high ping. Depending on the game, you might be able to switch to a server that's physically closer to you. That's why games like _League of Legends_ and _World of Warcraft_ let you choose your region. Unfortunately, if the game doesn't let you select the server or region, there is not much you can do besides playing a different game... or relocating.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ##  The Server Is Overcrowded
 
  If you play the game regularly and don't typically get a high ping, perhaps the server is seeing a lot of traffic. This is a common occurrence when a game or major update has just been released, so everyone is trying to play the game at the same time.
@@ -125,3 +145,46 @@ Shutterstock/Gorodenkoff
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-tips.techidaily.com/torment-tides-of-numenera-overview-immersive-sci-fi-adventure-and-rich-worldbuilding-analysis/"><u>'Torment: Tides of Numenera' Overview: Immersive Sci-Fi Adventure and Rich Worldbuilding Analysis</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-in-game-capturing-titans/"><u>[New] 2024 Approved  In-Game Capturing Titans</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-best-6-instagram-reels-downloaders-for-android-and-iphone/"><u>[Updated] In 2024, Best 6 Instagram Reels Downloaders for Android and iPhone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-top-14-youtube-titles-to-skyrocket-your-gaming-channels-popularity/"><u>[Updated] Top 14 YouTube Titles to Skyrocket Your Gaming Channel's Popularity</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-dramatically-rewind-your-snaps-the-snapchat-way/"><u>2024 Approved  Dramatically Rewind Your Snaps  The Snapchat Way</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-performance-the-ultimate-z-edge-z3-plus-dashcam-evaluation/"><u>Affordable Performance: The Ultimate Z-Edge Z3 Plus Dashcam Evaluation</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/bypass-spotifys-predicted-podcast-selections-for-2024/"><u>Bypass Spotify's Predicted Podcast Selections for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/canons-powershot-sx530-easy-learning-in-a-tiny-package/"><u>Canon's PowerShot SX530: Easy Learning in a Tiny Package</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/choosing-your-streaming-device-roku-or-fire-tv-stick-a-comprehensive-guide-to-making-the-right-purchase-decision/"><u>Choosing Your Streaming Device: Roku or Fire TV Stick – A Comprehensive Guide to Making the Right Purchase Decision!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/compact-powerhouse-unboxing-the-raspberry-pi/"><u>Compact Powerhouse: Unboxing the Raspberry Pi 지킬러</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-the-anker-powerful-beam-lantern-rugged-adventure-gear/"><u>Comprehensive Guide to the Anker Powerful Beam Lantern: Rugged Adventure Gear</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/dissecting-performance-limitations-of-genius-widecam-f100-pixel-issues-and-sound-bounce-explained/"><u>Dissecting Performance Limitations of Genius WideCam F100 - Pixel Issues & Sound Bounce Explained</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/dive-into-immersive-experiences-with-insta360-one-x2/"><u>Dive Into Immersive Experiences with Insta360 One X2</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-msi-bluetooth-driver-for-windows-11-10/"><u>Download | MSI Bluetooth Driver for Windows 11, 10</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-on-the-most-suitable-apple-airtag-for-iphone-devotees/"><u>Expert Analysis on the Most Suitable Apple AirTag for iPhone Devotees</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expertly-curated-selection-of-top-cordless-handsets/"><u>Expertly Curated Selection of Top Cordless Handsets</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expertly-reviewed-top-parental-control-routers-choose-wisely/"><u>Expertly Reviewed Top Parental Control Routers - Choose Wisely</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-imperator-rome-a-game-of-power-and-conquest/"><u>Exploring Imperator: Rome - A Game of Power and Conquest</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-smooth-operations-of-amazon-luna-a-surprising-game-streamers-journey/"><u>Exploring the Smooth Operations of Amazon Luna: A Surprising Game Streamer's Journey</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/harnessing-the-power-of-color-difference-keying-methods-for-2024/"><u>Harnessing the Power of Color Difference Keying Methods for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-you-play-mp4-files-on-moto-g-stylus-5g-2023-by-aiseesoft-video-converter-play-mp4-on-android/"><u>How do you play MP4 files on Moto G Stylus 5G (2023)?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-oppo-a18-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Oppo A18 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-updated-3rd-gen-tiny-echo-dot-and-its-full-capabilities-with-alexa/"><u>In-Depth Analysis of the Updated 3Rd Gen Tiny Echo Dot and Its Full Capabilities with Alexa</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/innovative-connectivity-simplified-an-insightful-look-at-the-tp-link-deco-p9-router/"><u>Innovative Connectivity Simplified: An Insightful Look at the TP-Link Deco P9 Router</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-edge-top-tier-karaoke-devices-to-elevate-your-singing-experience/"><u>Leading Edge: Top-Tier Karaoke Devices to Elevate Your Singing Experience</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/mastering-the-art-of-ieframedll-error-rectification-a-detailed-approach/"><u>Mastering the Art of ieframe.dll Error Rectification – A Detailed Approach</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/rotibox-wireless-beanie-cap-evaluation-where-style-meets-quality-sound-for-ultimate-headphone-fun/"><u>Rotibox Wireless Beanie Cap Evaluation: Where Style Meets Quality Sound for Ultimate Headphone Fun</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-pros-and-cons-of-the-lg-k51-gorgeous-appearance-with-a-dragging-processor-pace/"><u>The Pros and Cons of the LG K51: Gorgeous Appearance with a Dragging Processor Pace</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-assessment-of-the-x4-model-from-x-chair-a-staple-in-modern-office-seating-solutions/"><u>The Ultimate Assessment of the X4 Model From X-Chair - A Staple in Modern Office Seating Solutions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-choosing-a-smart-speaker/"><u>The Ultimate Guide to Choosing a Smart Speaker</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-motorola-moto-g-power-long-lasting-charges-and-solid-phone-experience/"><u>The Ultimate Review of Motorola Moto G Power: Long-Lasting Charges and Solid Phone Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-zmi-powerpack-20000-revealed-an-authoritative-portable-power-unit-assessment/"><u>The ZMI PowerPack 20000 Revealed: An Authoritative Portable Power Unit Assessment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-choice-iphones-for-gamers-find-your-perfect-match/"><u>Top Choice iPhones for Gamers – Find Your Perfect Match!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-karaoke-systems-a-comprehensive-guide/"><u>Top Rated Karaoke Systems : A Comprehensive Guide</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/turn-your-memories-into-moments-share-pics-instantly/"><u>Turn Your Memories Into Moments  Share Pics Instantly</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleashing-durability-nikons-w100-explained/"><u>Unleashing Durability: Nikon's W100 Explained</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlocking-the-full-potential-of-your-viewing-experience-with-the-sony-bravia-xbr-49x900f-a-thorough-review/"><u>Unlocking the Full Potential of Your Viewing Experience with the Sony Bravia XBR-49X900F - A Thorough Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-secrets-behind-the-amazing-performance-and-affordability-of-the-asus-chromebook-flip-c302ca-reviews-inside/"><u>Unveiling the Secrets Behind the Amazing Performance and Affordability of the Asus Chromebook Flip C302CA - Reviews Inside!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-the-macbook-pro-16-inch-with-m1-chip-202n-is-apples-finest-laptop-yet/"><u>Why the MacBook Pro 16-Inch with M1 Chip (202N) Is Apple's Finest Laptop Yet</u></a></li>
+</ul></div>

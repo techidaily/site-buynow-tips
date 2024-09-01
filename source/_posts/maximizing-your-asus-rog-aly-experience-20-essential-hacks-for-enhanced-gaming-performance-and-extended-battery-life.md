@@ -1,7 +1,7 @@
 ---
 title: "Maximizing Your ASUS ROG ALY Experience: 20 Essential Hacks for Enhanced Gaming Performance & Extended Battery Life"
-date: 2024-08-27 21:43:34
-updated: 2024-08-29 12:38:10
+date: 2024-08-31T16:35:22.492Z
+updated: 2024-09-01T16:35:22.492Z
 tags:
   - games
   - tv
@@ -27,6 +27,9 @@ thumbnail: https://thmb.techidaily.com/6739390ee0fc340b9fd97277963ee8c4fb9d6425e
 
  After you turn on your [ASUS ROG Ally](https://some-guidance.techidaily.com/2024-approved-streamline-and-shine-the-top-5-video-quality-tools/) for the first time and go through the setup procedure, you should optimize Windows for use with your new handheld.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ###  Update Windows, MyASUS App, and Armoury Crate
 
  Windows will most likely start updating automatically during the setup process, as long as you’re connected to a wireless network. All you have to do is wait for the updates to install and for your handheld PC to restart, restart, and restart again.
@@ -41,6 +44,9 @@ thumbnail: https://thmb.techidaily.com/6739390ee0fc340b9fd97277963ee8c4fb9d6425e
 
 ![System update screen of the MyASUS App.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-02.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Next, open Armoury Crate. You can open the app with the physical Armoury Crate button located to the left of the "X" face button on your handheld.
 
 ![Armoury Crate button on an ASUS ROG Ally.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-022.jpg) 
@@ -51,16 +57,25 @@ Goran Damnjanovic / How-To Geek
 
 ![Armoury Crate Update Center option.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-03.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Next, you can update “Device and Component” items, which include BIOS and driver updates, as well as Armoury Crate updates. Wait for the “Device and Component” updates to finish (this will involve a couple of restarts) and then update all the items in the “UWP App & Core Service” tab.
 
 ![Armoury Crate Update Menu.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-04.jpg) 
 
  Once you’re done with that, it’s time to uninstall Windows bloatware.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ###  Uninstall Unnecessary Apps
 
  Windows 11 comes with a ton of unnecessary apps that take up precious storage and don’t belong on a handheld PC made for gaming. I recommend checking out [our in-depth guide on uninstalling Windows 11 apps](https://youtube-docs.techidaily.com/ed-in-2024-strategies-for-using-youtube-to-boost-classroom-engagement/) to purge bloatware off your Ally.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ###  Enable Metered Connection Option in Windows Wi-Fi Settings
 
  Windows 11 is quite eager to install both Windows and app updates automatically. I recommend setting your default Wi-Fi connection as metered to take control of Windows and app updates. Setting your connection as metered prevents automatic Windows updates, including security updates, but it also stops automatic app and Game Pass game updates. If you don’t want to update those manually, skip this step.
@@ -83,6 +98,9 @@ Goran Damnjanovic / How-To Geek
 
 ![Searching for Core Isolation in Windows 11 Search.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-05.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Next, toggle the “Memory Integrity” switch off and restart your ROG Ally.
 
 ![Disabling memory integrity on Windows 11.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-06.png) 
@@ -95,6 +113,9 @@ Goran Damnjanovic / How-To Geek
 
 ![Typing Windows Features in Windows 11 search box.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-07.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Untick the “Virtual Machine Platform” checkbox in the next window, perform a shutdown, and then turn your ROG Ally back on.
 
 ![Disabling the Virtual Machine Platform in Windows 11.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-08.png) 
@@ -103,6 +124,9 @@ Goran Damnjanovic / How-To Geek
 
  After you optimize Windows, it’s time to customize the thumbsticks and other buttons to your liking and change the power button behavior.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ###  Change the Power Button Action From Sleep to Hibernate
 
  By default, your ROG Ally’s power button puts the device to sleep. This is less than ideal for many reasons. Sleep uses battery power (not much, but it still slowly depletes the battery over time). Next, the issues with Windows Modern Standby are well documented, and I found my Ally multiple times with a depleted battery after putting it to sleep the day before. Finally, while technically you can pause your game, put the Ally to sleep, and continue where you left off after you turn it back on, this doesn’t work in practice. Either the game bugs out, or the performance drops to a crawl.
@@ -123,10 +147,16 @@ Goran Damnjanovic / How-To Geek
 
 ![System and Security tab in Windows 11 Control Panel.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-11.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
  The following menu has an option called “When I Press the Power Button.” Set “Hibernate” when your ROG Ally is on battery and plugged in, and click on “Save Changes.”
 
 ![Power button behavior menu in Windows 11 Control Panel.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-12.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ###  Assign Secondary Functions to Controller Buttons
 
  You can assign a secondary function to every button on your ROG Ally. I recommend assigning secondary functions both in "Gamepad" and "Desktop" controller modes, because it makes navigating Windows in Desktop mode much easier and comes in handy when playing games with the controller set to the Gamepad mode.
@@ -137,6 +167,9 @@ Goran Damnjanovic / How-To Geek
 
 ![Armoury Crate Settings tab.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-13.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
  Now, either select “Gamepad Mode” or “Desktop Mode” and press the A button.
 
 ![Control mode menu in Armoury Crate.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-14.jpg) 
@@ -149,18 +182,31 @@ Goran Damnjanovic / How-To Geek
 
 ![Armoury Crate button functions menu.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-16.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
  Now, you can assign any function you want to that button. You can pick certain Windows actions, such as showing the virtual keyboard or desktop, any keyboard or mouse key, and even create macros.
 
 ![ARMOURY CRATE secondary functions meny.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/armoury-crate-se-03_04_2024-1_21_00-pm.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
  Don’t forget that to access secondary button functions, you have to map at least one of the two bottom buttons—marked in Armoury Crate as M1 and M2—as a secondary function modifier. By default, both buttons play the role of modifiers, but if they don't, for some reason, select either of the two.
 
 ![Armoury Crate control scheme menu showing the M1 and M2 buttons and their functions.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-17.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
  Next, enable the “Set as Secondary Function” checkbox.
 
 ![Armoury Crate secondary function menu.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-18.jpg) 
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ###  Set Custom Control Profiles for Different Games
 
  Not only are you able to assign a secondary function to every button on the ROG Ally, but you can also create a custom controller profile for every game you play.
@@ -169,6 +215,9 @@ Goran Damnjanovic / How-To Geek
 
 ![Armoury Crate game launcher.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-19.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
  Once you access the game profile menu, you can reassign controls, map secondary functions to each button, and use templates you’ve created for other games by clicking the “Select Template” button.
 
 ###  Customize Thumbstick and Trigger Options in Armoury Crate
@@ -179,10 +228,16 @@ Goran Damnjanovic / How-To Geek
 
  You can also tweak these settings on a per-game basis by selecting a game in Armoury Crate and launching its profile by pressing the X button.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ##  Tips for Boosting ROG Ally Performance and Battery Life
 
  In this section, I’m sharing a few tips that can improve your ROG Ally’s battery life and make games run a bit better.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ###  Go to AMD Software and Tweak GPU Settings
 
  AMD Adrenaline Software app contains global and per-game [GPU](https://android-unlock.techidaily.com/unlock-vivo-s17-pro-phone-password-without-factory-reset-full-guide-here-by-drfone-android/)\-related settings. I recommend tweaking some global settings here and also making sure certain options are disabled, as they can impair your gaming experience.
@@ -201,6 +256,9 @@ Goran Damnjanovic / How-To Geek
 
 ![AMD Adrenalin software Games tab showing games installed on an ROG Ally.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-23.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ###  Keep CPU Boost Off by Default
 
  By default, Windows has the [CPU Boost](https://extra-resources.techidaily.com/vectors-for-novices-uncover-essentials-types-and-applications/) feature enabled, allowing the [CPU](https://facebook-clips.techidaily.com/echoes-of-now-strategies-for-downloading-current-events/) to achieve maximum boost clocks and use more power while doing so. That’s fine for a desktop PC or a gaming laptop, but for a device such as the ROG Ally, keeping CPU boost enabled means less power available for the GPU, more heat generation, and shorter battery life without any noticeable performance advantage in most games.
@@ -213,6 +271,9 @@ Goran Damnjanovic / How-To Geek
 
 ![The Command Center button on an ASUS ROG Ally.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-24.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Goran Damnjanovic / How-To Geek
 
  Once there, just locate the “CPU Boost” button and enable or disable the option.
@@ -227,6 +288,12 @@ Goran Damnjanovic / How-To Geek
 
 ![ASUS ROG Ally's Command Center toggles with the focus on the CPU Boost toggle.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-27.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ###  Limit In-Game FPS With Radeon Chill Instead of the Built-in Frame Limiter
 
  Limiting your frame rate is a better way to improve battery life than setting your ROG Ally’s refresh rate to 60Hz, because the latter disables [FreeSync](https://iphone-location.techidaily.com/how-to-change-your-location-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/). The issue here, is that the built-in frame limiter doesn’t work as it is supposed to in most cases.
@@ -237,6 +304,9 @@ Goran Damnjanovic / How-To Geek
 
 ![Driver-level GPU settings in AMD Adrenalin software for Dead Cells.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-28.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ###  Custom TDP Profiles Are Great for Improving Battery Life
 
  The ASUS ROG Ally comes with three pre-built performance profiles: Silent (10W), Performance (15W), and Turbo (25W on battery, 30W when plugged in). The fourth profile, Manual, lets you set a custom [TDP](https://tech-haven.techidaily.com/boost-your-pcs-speaker-performance-with-a-new-install-of-realtek-hd-audio-manager-in-win-1011/) to your liking. I recommend using the Manual profile to get the best battery life.
@@ -253,6 +323,9 @@ Goran Damnjanovic / How-To Geek
 
 ![Changing resolution on an ROG Ally.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-30.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ###  Turn Off Thumbstick RGB
 
  By default, the analog sticks on the ROG Ally light-up, but you can turn off RGB to save power or if you aren't a fan of RGB. You can find the setting in Armoury Crate > Settings > Lighting.
@@ -263,6 +336,9 @@ Goran Damnjanovic / How-To Geek
 
 ![Lighting options menu in Armoury Crate.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-32.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ###  Tweak VRAM Allocation
 
  Since the ROG Ally comes with an [integrated GPU](https://tech-savvy.techidaily.com/is-it-wise-to-delegate-money-matters-to-ai/), the GPU uses a portion of the [RAM](https://youtube-web.techidaily.com/ed-2024-approved-unlocking-youtube-success-top-video-strategies-to-explode-views/) as its video memory. The [VRAM](https://extra-support.techidaily.com/new-premium-selection-of-apple-and-android-camera-slow-motion-apps/) is set to 4GB by default, but some games don’t play nice with only 4GB of video memory. You can increase VRAM allocation up to 8GB if you experience issues with certain demanding titles.
@@ -271,6 +347,9 @@ Goran Damnjanovic / How-To Geek
 
 ![Settings tab in Armoury Crate with the operating mode button selected.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-33.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
  In the Operating Mode menu, select the “GPU Settings” tab, click the “Memory Assigned to GPU” drop down menu, and tweak the setting to your liking. Then restart your Ally to apply changes.
 
 ![GPU Settings menu in Armoury Crate.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/asus-rog-ally-tips-and-tricks-34.jpg) 
@@ -287,6 +366,9 @@ Goran Damnjanovic / How-To Geek
 
  However, my recommendation is to avoid using SD cards for storage expansion. If you need the extra storage, upgrading the SSD is fairly simple, and you can find a ton of SSD upgrade guides online.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ###  Press and Hold the Command Center for Ctrl+Alt+Del
 
  This is pretty self-explanatory. If you need access to the Ctrl+Alt+Del screen at any time just hold the Command Center button—left side, under the View button—for three seconds.
@@ -317,3 +399,66 @@ Goran Damnjanovic / How-To Geek
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-best-video-grabbers-for-windows-10-pc/"><u>[New] 2024 Approved  Best Video Grabbers for Windows 10 PC</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-fps-fanatics-compendium-selecting-superior-extensions/"><u>[New] FPS Fanatics' Compendium  Selecting Superior Extensions</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-pcs-gateway-to-the-past-selecting-top-5-ps1-game-emulators/"><u>[New] In 2024, PC's Gateway to the Past - Selecting Top 5 PS1 Game Emulators</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-perfect-pairing-sound-and-imagery-in-media-production/"><u>[New] Perfect Pairing  Sound & Imagery in Media Production</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-value-oriented-pc-screen-recorders-for-2024/"><u>[New] Value-Oriented PC Screen Recorders for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-how-do-i-access-the-full-range-of-shared-media-on-messenger/"><u>[Updated] 2024 Approved  How Do I Access the Full Range of Shared Media on Messenger?</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-the-gentle-art-of-stepping-back-from-discords/"><u>[Updated] 2024 Approved  The Gentle Art of Stepping Back From Discords</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-discovering-social-medias-top-5-innovations-in-fb/"><u>[Updated] Discovering Social Media’s Top 5 Innovations in FB</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-make-videos-play-swiftly/"><u>[Updated] Instagram  Make Videos Play Swiftly</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-strategic-showdowns-unleashed-exploring-7-best-games/"><u>2024 Approved  Strategic Showdowns Unleashed  Exploring 7 Best Games</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-closer-look-at-the-sonic-mastery-of-sony-wh-1000xm4/"><u>A Closer Look at the Sonic Mastery of Sony WH-1000XM4</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/acer-aspire-e-n-analysis-exceptional-performance-at-wallet-friendly-prices/"><u>Acer Aspire E N Analysis - Exceptional Performance at Wallet-Friendly Prices</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/altering-privilege-levels-for-non-administrators-on-windows-os/"><u>Altering Privilege Levels for Non-Administrators on Windows OS</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-mac-mini-m1-2020-review-surpassing-competitors-in-the-arm-powered-pc-arena/"><u>Apple Mac Mini (M1, 2020) Review: Surpassing Competitors in the ARM-Powered PC Arena</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/asus-vivobook-11-reviewed-an-ideal-blend-of-miniature-design-and-cost-efficiency-for-everyday-use/"><u>ASUS VivoBook 11 Reviewed: An Ideal Blend of Miniature Design and Cost-Efficiency for Everyday Use</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/big-screen-laptop-assessment-reviewing-pros-and-cons-of-asus-x441ba/"><u>Big-Screen Laptop Assessment: Reviewing Pros and Cons of Asus X441BA</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/bypass-reset-zte-blade-a73-5g-phone-screen-passcode-pattern-pin-by-drfone-android-unlock-android-unlock/"><u>Bypass/Reset ZTE Blade A73 5G Phone Screen Passcode/Pattern/Pin</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-electronics-top-notch-reviews-by-toms-hardware-experts/"><u>Exploring Electronics: Top-Notch Reviews by Tom's Hardware Experts</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/get-ahead-of-tech-news-price-point-and-specs-for-the-upcoming-samsung-galaxy-z-fold-6/"><u>Get Ahead of Tech News: Price Point & Specs for the Upcoming Samsung Galaxy Z Fold 6</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/get-the-best-bang-for-your-buck-with-these-fantastic-fossil-brand-reviews/"><u>Get The Best Bang For Your Buck with These Fantastic Fossil Brand Reviews!</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-se-passcode-screen-drfone-by-drfone-ios/"><u>How to Unlock iPhone SE Passcode Screen? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-oneplus-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of OnePlus Without PUK Codes</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Samsung Galaxy A54 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-vivo-v29-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Vivo V29 Phone? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-streamlining-color-grading-incorenasive-guide-to-lut-integration-in-obs/"><u>In 2024, Streamlining Color Grading  Incorenasive Guide to LUT Integration in OBS</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-cat-s42-superior-armor-for-your-communications-with-a-tradeoff-in-velocity/"><u>In-Depth Look at the CAT S42: Superior Armor for Your Communications with a Tradeoff in Velocity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-youtube-tv-worth-it-5-reasons-to-sign-up/"><u>Is YouTube TV Worth It? 5 Reasons to Sign Up</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/kindle-oasis-2019-evaluation-a-game-changer-in-mimicking-traditional-reading-experience/"><u>Kindle Oasis (2019) Evaluation: A Game-Changer in Mimicking Traditional Reading Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lg-k92-the-pros-and-cons-of-paying-up-for-its-5g-connectivity/"><u>LG K92 - The Pros and Cons of Paying Up for Its 5G Connectivity</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/r-content-analysis-discovering-the-best-7-budget-friendly-youtube-taggification-tools/"><u>Master Content Analysis  Discovering the Best 7 Budget-Friendly YouTube Taggification Tools</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-productivity-on-the-go-a-comprehensive-look-at-the-samsung-galaxy-tab-s6-s-pen-and-dex/"><u>Mastering Productivity on the Go: A Comprehensive Look at the Samsung Galaxy Tab S6 (S Pen & DeX)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/nanotechnology-enables-the-development-of-dental-materials-with-improved-mechanical-properties-and-antibacterial-activity-at-a-nanoscale-level/"><u>Nanotechnology Enables the Development of Dental Materials with Improved Mechanical Properties and Antibacterial Activity at a Nanoscale Level.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/netgear-ex3700-wi-fi-range-extender-ac750-review/"><u>Netgear EX3700 Wi-Fi Range Extender (AC750) Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/powerhouse-review-ankers-usb-30-superspeed-multi-device-charger-insight/"><u>Powerhouse Review: Anker's USB 3.0 Superspeed Multi-Device Charger Insight</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reliable-nutrition-on-schedule-with-the-petsafe-six-meal-auto-feeder/"><u>Reliable Nutrition on Schedule with the PetSafe Six-Meal Auto Feeder</u></a></li>
+<li><a href="https://blog-min.techidaily.com/revitalize-your-old-macbook-7-simple-strategies-for-repurposing/"><u>Revitalize Your Old MacBook: 7 Simple Strategies for Repurposing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-tab-s7plus-review/"><u>Samsung Galaxy Tab S7+ Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/second-gen-google-nest-hub-evaluation-longing-for-an-onboard-camera-feature/"><u>Second Gen Google Nest Hub Evaluation: Longing for an Onboard Camera Feature</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sonys-nw-ws623-design-review-aesthetic-vs-practicality/"><u>Sonys NW-WS623: Design Review - Aesthetic vs Practicality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-blend-of-tradition-and-tech-comprehensive-review-of-withings-move-smartwatch/"><u>The Blend of Tradition and Tech: Comprehensive Review of Withings Move Smartwatch</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-fitbit-versa-lite-unveiled-high-quality-health-monitoring-at-wallet-friendly-prices/"><u>The Fitbit Versa Lite Unveiled: High-Quality Health Monitoring at Wallet-Friendly Prices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-comparison-best-earbuds-2024-edition/"><u>The Ultimate Comparison: Best Earbuds, 2024 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-samsung-gear-s-3rd-gen-frontier-your-all-in-one-feature-rich-wrist-companion/"><u>The Ultimate Guide to Samsung Gear S 3Rd Gen Frontier - Your All-in-One, Feature-Rich Wrist Companion</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/to-embrace-or-not-the-sonoma-os-dilemma/"><u>To Embrace or Not: The Sonoma OS Dilemma</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-antenna-review-discover-the-combination-of-style-and-quality-in-antitower-at-127/"><u>Top Rated Antenna Review: Discover the Combination of Style & Quality in Antitower AT-127</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-score-unboxing-and-review-of-the-iconic-handheld-nintendos-super-mario-bros-edition/"><u>Top Score! Unboxing and Review of the Iconic Handheld: Nintendo's Super Mario Bros. Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-karaoke-systems-a-buyers-guide/"><u>Top-Rated Karaoke Systems : A Buyer's Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-mini-gaming-pcs-ideal-choices-for-gamers/"><u>Top-Rated Mini Gaming PCs: Ideal Choices for Gamers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-no-cost-multipurpose-graphics-program-evaluation-gimp-edition/"><u>Top-Rated No-Cost Multipurpose Graphics Program Evaluation - GIMP Edition</u></a></li>
+<li><a href="https://win11.techidaily.com/tricks-to-enable-touch-typing-on-windows-laptops/"><u>Tricks to Enable Touch Typing on Windows Laptops</u></a></li>
+<li><a href="https://facebook.techidaily.com/twitter-inspired-initiative-for-informed-sharing-on-facebook/"><u>Twitter-Inspired Initiative for Informed Sharing on Facebook</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-4k-test-hc-wxf991-camcorder/"><u>Ultimate 4K Test: HC-WXF991 Camcorder</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-evaluating-the-lenovo-yoga-a94e-performance/"><u>Ultimate Guide: Evaluating the Lenovo Yoga A94e Performance</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/unblock-video-streaming-at-error-code-xc00d36c4/"><u>Unblock Video Streaming at Error Code XC00D36C4</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unraveling-the-secrets-of-grand-escapades-on-yokus-fantastical-isle/"><u>Unraveling the Secrets of Grand Escapades on Yoku's Fantastical Isle</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-benefits-a-comprehensive-look-at-the-nook-glowlight-3-reader/"><u>Unveiling the Benefits: A Comprehensive Look at the Nook GlowLight 3 Reader.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-features-and-performance-of-the-hisense-40h5590f-tv-a-value-for-money-review/"><u>Unveiling the Features and Performance of the Hisense 40H5590F TV: A Value for Money Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-game-changing-power-of-the-apple-macbook-pro-with-m1-chip-2020-edition/"><u>Unveiling the Game-Changing Power of the Apple MacBook Pro with M1 Chip, 2020 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/what-should-be-your-priority-while-picking-out-a-non-carrier-locked-smartphone/"><u>What Should Be Your Priority While Picking Out a Non-Carrier Locked Smartphone?</u></a></li>
+</ul></div>
