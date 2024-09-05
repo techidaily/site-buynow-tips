@@ -1,7 +1,7 @@
 ---
 title: "Samsung QN55Q60RAFXZA 4K UHD Television Evaluation: Exceptional Performance with HDR10+ Technology"
-date: 2024-08-09T00:55:41.051Z
-updated: 2024-08-10T00:55:41.051Z
+date: 2024-09-04T19:51:21.853Z
+updated: 2024-09-05T19:51:21.853Z
 categories:
   - BestProducts
 description: "This Article Describes Samsung QN55Q60RAFXZA 4K UHD Television Evaluation: Exceptional Performance with HDR10+ Technology"
@@ -37,9 +37,6 @@ Lifewire / Danny Chadwick
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Rexing V1 DashCam
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/5zZ5bclZ7zJVo8nRB2Y33JNM3w4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_HeroSqaure-ac1bb2840cb04106b14f3838b80a3bf2.jpg)
@@ -67,13 +64,16 @@ Lifewire / Danny Chadwick
 
  It has all the additional features you’d expect from a[dashcam](https://www.lifewire.com/types-of-dash-cameras-534889) , like loop recording and crash detection, and even some unique ones like timelapse recording. If you’re in the market for a dashcam, the Rexing V1 is definitely worth considering.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/JfL4E5NnuBPl6-93Hv3PI4IJsV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_05-bcfff5f440b545378c9ee4e6b431ffac.jpg)
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Fits perfectly on your windshield**
 
  The Rexing V1 Dashcam has a more distinctive form factor than other models we reviewed. Unlike many popular dashcam models, the V1 doesn’t resemble a point-and-shoot camera that hangs from your windshield. Rather, it’s angled to fit the curve of the glass. This makes for a more integrated, smooth look.
@@ -88,11 +88,14 @@ Lifewire / Danny Chadwick
 
  It also has an internal accelerometer that can detect the impact of an accident, as well as[GPS capabilities](https://www.lifewire.com/what-is-gps-how-it-works-4688647) . Unfortunately, it doesn’t come with all the necessary equipment to use the GPS feature—if you want to enable these, you have to buy the[Rexing GPS Logger](https://www.amazon.com/Rexing-GPS-Logger-V1-V1P/dp/B01AKH377A/?tag=lifewire-onsite-prod-20&ascsubtag=4770571%7Cn9eae1cd5706347139b8b83241f9d42ea10%7C) separately.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/ztn3EsFqtKkWImvQhtgcr1vlHwI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_02-9ee3aa46e7394a1ab263a6b12b287314.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Danny Chadwick
 
 ## **Setup Process: Be sure that’s where you want to put it**
@@ -107,23 +110,53 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/df0_L-UzAk3OryqSCncsjfqi8QM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_03-2273fff3f71944368711b60f5da9687e.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Camera Quality: Basic**
 
  You can set this dash-mounted camera to capture footage in either 720p or 1080p resolution, which is pretty limited. Similar dashcams can capture footage up to 2560 x 1440 resolution, with others going all the way up to 4K. However, if all you’re looking for is a simple security device, 1080p will do just fine.
 
  When we reviewed the footage captured by the Rexing V1, we found it to be highly detailed and clear when the car was moving along city streets. However, when we hit the freeway, the picture became a little less clear. Signs were hard to read unless you stopped the recording, and small details such as license plates and bumper stickers on other cars couldn’t be made out at all. Nevertheless, the videos yield a good picture of what happens when you drive.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/9_1pHoEq74JWPJ8reothv8PeI8E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_04-c5d42af8ddfa4296a6c6b1e8551edef6.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Danny Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Performance: Set it and forget it**
 
@@ -143,9 +176,6 @@ Lifewire / Danny Chadwick
 
  The Rexing V1 retails for $130, but as of the time of this writing, can typically be purchased for closer to $100\. We feel like this is a perfectly appropriate price for this device—it falls right in the middle of the typical dashcam price range, providing better performance than super budget models, but without the high-tech features of the more expensive options out there. In short, it’s a good price for a solid, basic device.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: Z3 Plus vs. Rexing V1**
 
  If you’re wondering if you want to pay the extra $25 or so for the Z-Edge Z3 Plus dashcam (which retails for $125), the decision will come down to form factor and image quality—everything else is pretty much the same.
@@ -162,10 +192,6 @@ Lifewire / Danny Chadwick
 
  There isn’t much to complain about with the Rexing V1 DashCam. Its innovative form factor combined with a wide array of video capture features and decent picture quality means you won’t have any buyer’s remorse if you choose this dashcam.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  V1 DashCam
@@ -195,3 +221,48 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-tips.techidaily.com/battle-for-neighboreville-a-comical-clash-of-plants-and-zombies-game-review/"><u>'Battle for Neighboreville': A Comical Clash of Plants and Zombies - Game Review.</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-elevate-your-snap-game-with-pro-level-boomerang-expertise/"><u>[New] In 2024, Elevate Your Snap Game with Pro-Level Boomerang Expertise</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-stepwise-guide-to-documenting-team-sessions-desktopmobile/"><u>[New] In 2024, Stepwise Guide to Documenting Team Sessions (Desktop/Mobile)</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-seamless-video-chats-on-xbox-one-with-zoom/"><u>[New] Seamless Video Chats on Xbox One with Zoom</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-what-are-youtube-tags-and-how-can-you-find-great-tags-for-your-videos-for-2024/"><u>[New] What Are YouTube Tags and How Can You Find Great Tags For Your Videos for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-crafting-impressive-instagram-story-bokeh-art/"><u>[Updated] In 2024, Crafting Impressive Instagram Story Bokeh Art</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtubes-financial-frontier-maximizing-your-content-revenue/"><u>[Updated] YouTube's Financial Frontier  Maximizing Your Content Revenue</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-accelerate-channels-youtubes-top-collaborative-growth-tips/"><u>2024 Approved  Accelerate Channels  YouTube's Top Collaborative Growth Tips</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-top-picks-for-efficient-and-durable-rechargeable-battery-chargers/"><u>2024'S Top Picks for Efficient and Durable Rechargeable Battery Chargers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/an-updated-look-at-the-samsung-galaxy-tab-s3-is-it-a-smart-purchase-today/"><u>An Updated Look at the Samsung Galaxy Tab S3 – Is It a Smart Purchase Today?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-watch-series-4-evaluation-an-enhanced-leader-raises-the-bar/"><u>Apple Watch Series 4 Evaluation: An Enhanced Leader Raises the Bar</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/assessing-the-value-of-a-fitbit-charge-3-purchase-does-it-hold-up-over-time/"><u>Assessing the Value of a Fitbit Charge 3 Purchase: Does It Hold Up Over Time?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/charting-a-course-for-youtube-success-viewer-numbers-and-income-for-2024/"><u>Charting a Course for YouTube Success  Viewer Numbers and Income for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-cp24-criacr-bluetooth-fm-transmitter-evaluation-size-and-shortcomings-examined/"><u>Comprehensive CP24 CRIACR Bluetooth FM Transmitter Evaluation: Size and Shortcomings Examined</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-lenovo-x12-detachable-excelling-as-a-2-in-1-device-with-an-exceptional-keyboard-design/"><u>Comprehensive Guide to Lenovo X12 Detachable: Excelling as a 2-in-1 Device with an Exceptional Keyboard Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-lenovo-tab-n-pro-review-great-value-minor-drawbacks/"><u>Comprehensive Lenovo Tab N Pro Review - Great Value, Minor Drawbacks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-netgear-nighthawk-rax80-unleashing-the-power-of-wi-fi-6/"><u>Comprehensive Review of Netgear Nighthawk RAX80: Unleashing the Power of Wi-Fi 6</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/drive-boosting-essential-storage-solutions/"><u>Drive Boosting: Essential Storage Solutions</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-repair-techniques-for-windows-n-utilizing-system-file-checker-and-deployment-image-services/"><u>Effective Repair Techniques for Windows N: Utilizing System File Checker & Deployment Image Services</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-powerhouse-that-is-the-stanley-j5c09-a-mighty-tool-with-ample-capacity/"><u>Evaluating the Powerhouse that Is the Stanley J5C09 - A Mighty Tool with Ample Capacity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-evaluation-unveiling-the-intelligence-of-ring-video-doorbell-pro/"><u>Expert Evaluation: Unveiling the Intelligence of Ring Video Doorbell Pro</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-download-and-install-epson-artisan-1430-drivers-on-modern-windows-systems-11108/"><u>How to Download and Install Epson Artisan 1430 Drivers on Modern Windows Systems (11/10/8)</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-fix-vanguard-not-initialized-issue-on-valorant/"><u>How to Fix 'Vanguard Not Initialized' Issue on Valorant</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlink-your-apple-iphone-13-pro-from-your-apple-id-by-drfone-ios/"><u>How To Unlink Your Apple iPhone 13 Pro From Your Apple ID</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Tecno Pop 7 Pro | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Samsung Galaxy A24 | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-on-apple-iphone-13-pro-with-or-without-password-drfone-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID on Apple iPhone 13 Pro With or Without Password | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-alcatel-joy-tab-2-assessment-the-affordable-lte-tablet-option/"><u>In-Depth Alcatel Joy Tab 2 Assessment: The Affordable LTE Tablet Option</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-unveiling-the-capabilities-and-limitations-of-google-phone-service/"><u>In-Depth Review: Unveiling the Capabilities and Limitations of Google Phone Service</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-why-the-flexispot-theodore-is-setting-new-standards-for-chic-office-workstations/"><u>In-Depth Review: Why the Flexispot Theodore Is Setting New Standards for Chic Office Workstations</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/maximize-performance-with-cooler-masters-breakthrough-in-thermal-management-aio-and-air-coolers-designed-to-handle-300wplus-heat-load/"><u>Maximize Performance with Cooler Master's Breakthrough in Thermal Management: AIO and Air Coolers Designed to Handle 300W+ Heat Load</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/nostalgia-packed-guide-unveiling-the-timeless-charm-of-super-mario-bros-in-a-vintage-game-and-watch-device/"><u>Nostalgia-Packed Guide: Unveiling the Timeless Charm of Super Mario Bros. In a Vintage Game & Watch Device</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723026158322-revolutionizing-home-internet-with-amplifi-hd-no-wi-fi-zone-left-behind/"><u>Revolutionizing Home Internet with Amplifi HD - No Wi-Fi Zone Left Behind!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/showdown-of-giants-how-s23-ultra-stacks-up-against-s21-ultra/"><u>Showdown of Giants: How S23 Ultra Stacks Up Against S21 Ultra</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-all-inclusive-guide-to-the-best-new-release-samsung-galaxy-s2n-fe-with-cutting-edge-5g-capabilities/"><u>The All-Inclusive Guide to the Best New Release: Samsung Galaxy S2n FE with Cutting-Edge 5G Capabilities</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-10-master-plugins-for-final-cut-pro/"><u>Top 10 Master Plugins for Final Cut Pro</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-5-underwater-gopro-accessories/"><u>Top 5 Underwater Gopro Accessories</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-philips-hf3520-timepiece-top-rated-for-affordability-and-functionality/"><u>Unveiling the Philips HF3520 Timepiece: Top Rated for Affordability and Functionality</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-watermark-less-video-combining-7-expert-approved-tools/"><u>Updated 2024 Approved Watermark-Less Video Combining 7 Expert-Approved Tools</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-choose-pro-on-linkedin-heres-why/"><u>Why Choose Pro on LinkedIn? Here's Why!</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/why-zerogpt-and-similar-ai-detectors-may-fail-insightful-cases/"><u>Why ZeroGPT & Similar AI Detectors May Fail: Insightful Cases</u></a></li>
+</ul></div>

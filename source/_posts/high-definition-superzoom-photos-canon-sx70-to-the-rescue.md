@@ -1,7 +1,7 @@
 ---
 title: High-Definition Superzoom Photos? Canon SX70 to the Rescue
-date: 2024-08-09T00:55:39.726Z
-updated: 2024-08-10T00:55:39.726Z
+date: 2024-09-04T19:49:01.984Z
+updated: 2024-09-05T19:49:01.984Z
 categories:
   - BestProducts
 description: This Article Describes High-Definition Superzoom Photos? Canon SX70 to the Rescue
@@ -13,14 +13,8 @@ thumbnail: https://thmb.techidaily.com/0ee1c1c5a9be407cbf065c21cefa3d097b024c8bd
 
 4.3
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Canon PowerShot SX70
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/NltNTWtb6Y6gHFCHDQXlLsrWKTI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
 
 Lifewire / Andy Zahn
@@ -45,9 +39,6 @@ Lifewire / Andy Zahn
 
 4.3
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
@@ -97,12 +88,27 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
@@ -110,7 +116,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Display and Viewfinder: Saturated and clear**
 
@@ -144,9 +153,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -162,7 +168,16 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Video Quality: A mixed bag**
 
@@ -178,6 +193,12 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -211,8 +232,16 @@ Lifewire / Andy Zahn
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
@@ -253,3 +282,60 @@ Lifewire / Andy Zahn
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-building-your-digital-identity-start-a-youtube-channel-today/"><u>[New] In 2024, Building Your Digital Identity  Start a YouTube Channel Today</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-snapchat-chronicles-unveiled-an-array-of-more-than-a-hundred-inspiring-title-concepts/"><u>[New] In 2024, Snapchat Chronicles Unveiled  An Array of More Than a Hundred Inspiring Title Concepts</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-vimeo-mastery-choosing-between-free-and-paid-video-download-solutions-for-2024/"><u>[New] Vimeo Mastery  Choosing Between Free and Paid Video-Download Solutions for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-from-novice-to-geometric-master-crafting-perfect-circular-and-spherical-objects/"><u>[Updated] From Novice to Geometric Master  Crafting Perfect Circular & Spherical Objects</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-advanced-strategies-for-no-sound-recording/"><u>[Updated] In 2024, Advanced Strategies for No-Sound Recording</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-photoshop-basics-for-beginners-10-must-know-tricks-for-2024/"><u>[Updated] Photoshop Basics for Beginners  10 Must-Know Tricks for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-starting-strategies-for-an-engaging-fb-giveaway/"><u>[Updated] Starting Strategies for an Engaging FB Giveaway</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagram-success-stories-adopting-viral-techniques-from-tiktok/"><u>2024 Approved  Instagram Success Stories  Adopting Viral Techniques From TikTok</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-leading-game-laptops-reviewed-find-the-perfect-match-for-gamers/"><u>2024'S Leading Game Laptops Reviewed - Find the Perfect Match for Gamers!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-leading-smart-home-devices-a-comprehensive-guide-to-the-most-advanced-hubs/"><u>2024'S Leading Smart Home Devices: A Comprehensive Guide to the Most Advanced Hubs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-premiere-guardians-for-the-google-pixel-6-device-a-curated-list-of-exceptional-cases/"><u>2024'S Premiere Guardians for the Google Pixel 6 Device: A Curated List of Exceptional Cases</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-nokia-c12-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Nokia C12 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/astonishing-critique-and-comparable-products/"><u>Astonishing Critique & Comparable Products</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-value-sound-systems-top-picks-under-50/"><u>Best Value Sound Systems: Top Picks Under $50</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/boost-your-tech-experience-with-top-text-interpretation-tools-on-mac-for-2024/"><u>Boost Your Tech Experience with Top Text Interpretation Tools on Mac for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-cutting-edge-viewing-experiences-our-selection-for-the-finest-curved-screens-of-2024/"><u>Exploring Cutting-Edge Viewing Experiences: Our Selection for the Finest Curved Screens of 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-elite-selection-premier-ipads-leading-tech-trends/"><u>Exploring the Elite Selection: Premier iPads Leading Tech Trends</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-guide-to-unlock-your-infinix-smart-8-by-drfone-android/"><u>Full Guide to Unlock Your Infinix Smart 8</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-motorola-moto-g73-5g-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Motorola Moto G73 5G in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/identifying-the-target-keywords-and-phrases-to-optimize-for-search-engines/"><u>Identifying the Target Keywords and Phrases to Optimize for Search Engines.</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-infinix-note-30i-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Infinix Note 30i to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-15-pro-max-without-passcode-4-easy-methods-by-drfone-ios/"><u>In 2024, How To Unlock Apple iPhone 15 Pro Max Without Passcode? 4 Easy Methods</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/inject-photos-with-focal-spread-outer-radius-adobe-psx/"><u>Inject Photos with Focal Spread Outer Radius Adobe PSX</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lake-holt-park/"><u>Lake Holt Park</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-honor-magic5-ultimate-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Honor Magic5 Ultimate</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-ipad-protection-covers-your-ultimate-buying-guide/"><u>Top Rated iPad Protection Covers : Your Ultimate Buying Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-playstation-5-peripherals-a-comprehensive-guide/"><u>Top Rated PlayStation 5 Peripherals : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-smart-shower-systems/"><u>Top Rated Smart Shower Systems</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-streaming-gadgets-for-ultimate-viewing-in-2/"><u>Top Rated Streaming Gadgets for Ultimate Viewing in 2#</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-wi-fi-adapters-a-comprehensive-guide/"><u>Top Rated Wi-Fi Adapters : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-dslr-camera-models-for-photography-enthusiasts/"><u>Top-Rated DSLR Camera Models for Photography Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-gaming-rigs-revealed-the-ultimate-pc-case-picks/"><u>Top-Rated Gaming Rigs Revealed: The Ultimate PC Case Picks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-heat-sink-compounds-a-comprehensive-guide/"><u>Top-Rated Heat Sink Compounds : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-instant-image-producers-the-ultimate-guide-to-the-fastest-printing-devices-in-2n24/"><u>Top-Rated Instant Image Producers: The Ultimate Guide to the Fastest Printing Devices in 2N24</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-laptop-coolers-for-optimal-performance/"><u>Top-Rated Laptop Coolers for Optimal Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-portable-displays-the-ultimate-guide/"><u>Top-Rated Portable Displays : The Ultimate Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-protection-the-premier-selection-of-samsung-galaxy-s23-ultra-phone-covers/"><u>Top-Rated Protection: The Premier Selection of Samsung Galaxy S23 Ultra Phone Covers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-protective-covers-for-samsung-galaxy-s23-plus/"><u>Top-Rated Protective Covers for Samsung Galaxy S23 Plus</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-ring-lighting-solutions-for-optimal-video-quality-in-202amo/"><u>Top-Rated Ring Lighting Solutions for Optimal Video Quality in 202Amo</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-samsung-galaxy-s24-phone-covers-ultimate-selection/"><u>Top-Rated Samsung Galaxy S24 Phone Covers: Ultimate Selection</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-security-solutions-for-home-and-business/"><u>Top-Rated Security Solutions for Home and Business</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-television-backlighting-options/"><u>Top-Rated Television Backlighting Options</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-video-capture-solutions/"><u>Top-Rated Video Capture Solutions</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-steps-for-rainbow-six-extractions-no-compatible-driver-error/"><u>Troubleshooting Steps for Rainbow Six Extraction's 'No Compatible Driver Error'</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-choosing-the-finest-sleeves-for-the-new-iphone-15-2023-edition/"><u>Ultimate Guide to Choosing the Finest Sleeves for the New iPhone 15 - 2023 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-top-gaming-technology-gifts-of-the-season-holiday-2021/"><u>Ultimate Guide: Top Gaming Technology Gifts of the Season (Holiday 2021)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-list-of-premium-vpn-solutions-dominating-the-market/"><u>Ultimate List of Premium VPN Solutions Dominating the Market</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-of-durable-phone-cases-for-the-google-pixel-8-pro-find-the-perfect-match/"><u>Ultimate Selection of Durable Phone Cases for the Google Pixel 8 Pro - Find the Perfect Match!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-the-finest-65-inch-smart-tv-models-reviewed/"><u>Ultimate Selection: The Finest 65 Inch Smart TV Models Reviewed</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unveiling-the-asus-mg28uq-the-future-of-4k-gaming-screens/"><u>Unveiling the ASUS MG28UQ  The Future of 4K Gaming Screens</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/walnut-grove-park/"><u>Walnut Grove Park</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-realme-12-proplus-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/windows-smart-unlock-hacked-is-it-safe-to-use/"><u>Windows Smart Unlock Hacked – Is It Safe to Use?</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Head-to-Head Review: The New Era of Smartphones - S24 Vs. S23 Ultra"
-date: 2024-08-09T00:55:42.071Z
-updated: 2024-08-10T00:55:42.071Z
+date: 2024-09-04T19:53:08.171Z
+updated: 2024-09-05T19:53:08.171Z
 categories:
   - BestProducts
 description: "This Article Describes Head-to-Head Review: The New Era of Smartphones - S24 Vs. S23 Ultra"
@@ -15,11 +15,6 @@ thumbnail: https://thmb.techidaily.com/84aaf27f955a6ba5c37b777f8ab3f4dc75b3cebc1
 
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/GshnCnk_G-hNSwDTRjGVB28Nl-o=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
 
  Lifewire / Andrew Hayward
@@ -45,9 +40,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/AfRhNgqeOD7JfcVqpjzm5LwPSB4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
 
  Lifewire / Andrew Hayward
@@ -75,7 +67,10 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Design: Pretty awkward**
 
@@ -86,7 +81,10 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
  It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Setup Process: Avoid the app**
 
@@ -100,6 +98,12 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
 ## **Connectivity: Smooth sailing**
@@ -116,11 +120,20 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  Given the high max speeds, it wasn’t surprising to see strong gaming performance, as well. While playing Rocket League, I saw smooth gameplay across the wired Ethernet connection as well as both wireless networks, with a ping as low as 33 via the wired connection. The wireless ping was only a few points higher.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -136,7 +149,10 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
  Should you really spend that much on an extender? If you don’t already have a new Wi-Fi 6 router, then probably not. You might see higher peaks of speed as I did, but rather than trying to mix and match old and new tech, you’re probably better off investing in a new Wi-Fi mesh system that can cover the entire house. Netgear’s Orbi is a favorite, as is Google’s similar Nest Wi-Fi system.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Netgear Nighthawk AX8 vs. Netgear Nighthawk X6S (EX8000)**
 
@@ -148,6 +164,18 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
@@ -173,3 +201,53 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-access-unlimited-stock-photos-via-four-noteworthy-youtubes/"><u>[New] 2024 Approved  Access Unlimited Stock Photos via Four Noteworthy YouTubes</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-easy-video-calls-with-googles-hangouts-on-your-android/"><u>[New] 2024 Approved  Easy Video Calls with Google's Hangouts on Your Android</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-flawless-video-calls-from-laptop-using-the-desktop-whatsapp-browser/"><u>[New] Flawless Video Calls From Laptop Using the Desktop WhatsApp Browser</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-apeaksofts-screen-tech-revolution-2023-review/"><u>[New] In 2024, Apeaksoft's Screen Tech Revolution  2023 Review</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-digital-disarmament-regaining-fb-power/"><u>[Updated] 2024 Approved  Digital Disarmament  Regaining FB Power</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-synchronizing-teams-mastering-device-agnostic-zoom-events/"><u>2024 Approved  Synchronizing Teams  Mastering Device-Agnostic Zoom Events</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/5-important-points-for-buyers-of-previously-owned-apple-ipads/"><u>5 Important Points for Buyers of Previously Owned Apple iPads</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/antop-at-127-antenna-a-modern-solution-for-uninterrupted-broadcast-television-comprehensive-review/"><u>ANTOP AT-127 Antenna: A Modern Solution for Uninterrupted Broadcast Television - Comprehensive Review</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/camera-for-videos-mirrorless-vs-dslr-showdown-for-2024/"><u>Best Camera for Videos  Mirrorless Vs. DSLR Showdown for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-asus-ax6000-rt-ax88u-wireless-router-analysis-elevate-your-home-network-with-wi-fi-6/"><u>Comprehensive Asus AX6000 RT-AX88U Wireless Router Analysis - Elevate Your Home Network with Wi-Fi 6</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-and-evaluation-of-ankers-premium-26800mah-battery-pack-setup/"><u>Comprehensive Guide and Evaluation of Anker's Premium 26800mAh Battery Pack Setup</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-on-seatech-external-usb-30-blu-ray-burner-a-look-at-its-variable-efficiency/"><u>Comprehensive Review on SeaTech External USB 3.0 Blu-Ray Burner: A Look at Its Variable Efficiency</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/dhcp-server-unreachable-heres-the-resolved-technique/"><u>DHCP Server Unreachable? Here's the Resolved Technique</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Samsung Galaxy A14 4G? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/essential-guide-to-recording-gotomeet-sessions-for-2024/"><u>Essential Guide to Recording GoToMeet Sessions for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-apples-iphone-xs-max-the-exquisite-and-most-costly-option-available-in-the-lineup/"><u>Evaluating Apple's iPhone XS Max - The Exquisite and Most Costly Option Available in the Lineup</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/examining-the-sharpness-of-panasonic-hc-wxf991/"><u>Examining the Sharpness of Panasonic HC-WXF991</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-lightning-fast-connectivity-with-the-netgear-nighthawk-x1am-ad7200-in-depth-analysis-and-review/"><u>Experience Lightning-Fast Connectivity with the Netgear Nighthawk X1am AD7200: In-Depth Analysis and Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-genius-widecam-f100-dealing-with-blurry-images-and-reverberating-audio/"><u>Expert Analysis of the Genius WideCam F100: Dealing with Blurry Images & Reverberating Audio</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-on-apple-ipad-pro-11-inch-why-it-dominates-in-201eight/"><u>Expert Analysis on Apple iPad Pro (11-Inch) - Why It Dominates in 201Eight</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-fun-filled-world-of-robotics-with-makeblocks-mbot-kit-a-detailed-overview-and-user-experience/"><u>Exploring the Fun-Filled World of Robotics with Makeblock's mBot Kit - A Detailed Overview and User Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/from-hdd-to-hd-in-a-blink-supercharge-your-mac-with-an-ssd/"><u>From HDD to HD in a Blink: Supercharge Your Mac with an SSD</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/from-tweets-to-tomes-the-full-year-in-video/"><u>From Tweets to Tomes  The Full Year in Video</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-from-novice-to-expert-mastering-movie-maker-in-windows-8-systems/"><u>In 2024, From Novice to Expert  Mastering Movie Maker in Windows 8 Systems</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Samsung Galaxy A15 5G | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-most-memorable-tiktok-videos-and-their-twitter-spreads/"><u>In 2024, Most Memorable TikTok Videos & Their Twitter Spreads</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-asus-rog-gt-ac5300-the-perfect-choice-for-gamers-and-tech-experts/"><u>In-Depth Analysis of Asus ROG GT-AC5300: The Perfect Choice for Gamers & Tech Experts</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/innovative-minds-clash-comparing-llama-3-and-gpt-4-for-superiority/"><u>Innovative Minds Clash: Comparing Llama 3 and GPT-4 for Superiority</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/inside-the-oculus-quest-2-affordable-premium-vr-gaming-and-entertainment/"><u>Inside the Oculus Quest 2 - Affordable Premium VR Gaming and Entertainment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-edge-network-raise-and-cabinets-a-buyers-handbook/"><u>Leading Edge Network Raise & Cabinets : A Buyer's Handbook</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lenovo-tab-4-analyzed-great-value-for-money-with-some-trade-offs/"><u>Lenovo Tab 4 Analyzed: Great Value for Money with Some Trade-Offs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/microsoft-surface-go-review/"><u>Microsoft Surface Go Review</u></a></li>
+<li><a href="https://extra-information.techidaily.com/prime-10-gif-maker-services-transforming-jpgs-at-no-cost/"><u>Prime 10 GIF Maker Services  Transforming JPGs at No Cost</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-twelve-souths-compact-traveler-a-masterclass-in-portable-camping-gear/"><u>Review of Twelve South's Compact Traveler - A Masterclass in Portable Camping Gear</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/seamless-switch-how-to-update-to-windows-11-easily/"><u>Seamless Switch: How to Update to Windows 11 Easily</u></a></li>
+<li><a href="https://win-able.techidaily.com/step-by-step-solutions-to-get-your-witcher-3-game-running-smoothly-again/"><u>Step-By-Step Solutions To Get Your Witcher 3 Game Running Smoothly Again</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-apple-ipad-air-201/"><u>The Ultimate Guide to the Apple iPad Air (201</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-insignia-ns-4-43-df-710-na-19-smart-affordable-and-ultra-hd-fire-tv-with-alexa/"><u>The Ultimate Guide to the Insignia NS-4 43 DF 710 NA 19: Smart, Affordable & Ultra HD Fire TV with Alexa</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-vivo-s17e-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Vivo S17e without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-6-iphone-security-software-the-ultimate-list-of-antivirus-applications/"><u>Top 6 iPhone Security Software: The Ultimate List of Antivirus Applications</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/unlock-slow-momentum-a-filmmakers-tale-on-instagram-for-2024/"><u>Unlock Slow Momentum  A Filmmaker’s Tale on Instagram for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-features-of-the-new-kobo-clara-colour/"><u>Unveiling the Features of the New Kobo Clara Colour</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/value-and-convenience-combined-in-depth-review-of-fitbit-versa-timepiece/"><u>Value and Convenience Combined: In-Depth Review of Fitbit Versa Timepiece</u></a></li>
+<li><a href="https://fox-http.techidaily.com/vigorous-voyages-the-longest-flight-drone-elite-for-2024/"><u>Vigorous Voyages  The Longest Flight Drone Elite for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/weatherproof-excellence-in-viewing-discover-the-sunbritetv-55-inch-veranda-4k-hdr-tv/"><u>Weatherproof Excellence in Viewing - Discover the SunBriteTV 55-Inch Veranda 4K HDR TV</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-the-tp-link-archer-c9-stands-out-in-budget-routers-market/"><u>Why the TP-Link Archer C9 Stands Out in Budget Routers Market</u></a></li>
+</ul></div>

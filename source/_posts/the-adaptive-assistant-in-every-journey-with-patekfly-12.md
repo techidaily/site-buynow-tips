@@ -1,7 +1,7 @@
 ---
 title: The Adaptive Assistant in Every Journey with Patekfly 12
-date: 2024-08-09T00:55:38.661Z
-updated: 2024-08-10T00:55:38.661Z
+date: 2024-09-04T19:47:15.680Z
+updated: 2024-09-05T19:47:15.680Z
 categories:
   - BestProducts
 description: This Article Describes The Adaptive Assistant in Every Journey with Patekfly 12
@@ -13,10 +13,6 @@ thumbnail: https://www.lifewire.com/thmb/8FvBYNDOJSBUbPGXqjYT1bza6Z4=/400x300/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
 ![Max Oak](https://www.lifewire.com/thmb/CeiJTW7zTopZdtR_zhtXz9_P-Mw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
@@ -41,9 +37,6 @@ Lifewire / Gannon Burgett
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
 ![Max Oak](https://www.lifewire.com/thmb/0sYGw-7sF6j5aqPA13sWjU-Y2b4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
@@ -70,18 +63,18 @@ Lifewire / Gannon Burgett
 
  While there's no shortage of options on the market, there aren’t many that can keep you going for days. That’s not the case with the MaxOak 50000mAh, an absolutely massive and robust charger that attempts to be the jack of all when it comes to charging gadgets on the go. It’s power comes at the cost of massive size and the charging ports aren’t too fast, but if you need tons of power, this is the battery pack to get.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## **Design: Bulky for travelers**
 
  First and foremost, this thing is a tank. At 2.77 pounds, it weighs many times more than most smartphones and nearly as much as most compact laptops. It also measures in at 8.1 x 5.3 x 1.3 inches (HWD), making it quite the behemoth to lug around. A small detail regarding the weight of the MaxOak is that it isn't balanced. The side without the ports holds a fair bit more weight than the side with the various ports. It's not a significant detail, but one you might notice with time.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Max Oak](https://www.lifewire.com/thmb/SHsB9QkFaBbOrU6sw55TzNOqC7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_4Web-5c8ff4adc9e77c0001ff0b36.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Gannon Burgett
 
  As for the materials, the metal enclosure and place ends give it a fairly solid feel, but the metal doesn't sit perfectly flush with the plastic ends, at least not in our model. It could be a one-off quality control issue or it might simply be the way in which the charger is constructed, but it's definitely noticeable.
@@ -92,6 +85,12 @@ Lifewire / Gannon Burgett
 
  Charging the device is done via a small 16.8-volt 2.5A plug-in style port on the opposite side of the power button. Overall, the design is roughly what you'd expect from a 50000mAh laptop battery charger. Yes, it's heavy, yes it's quite beefy in size, but it comes with the territory.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Simple to start, but yet another adapter to carry around**
 
  Setting up the MaxOak laptop battery charger is as simple as it gets. After removing it from its unbranded cardboard box, it's simply a matter of plugging it in and getting it charged up completely. Our device came charged at roughly 50% based on the onboard[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) battery indicator, but to complete our tests we wanted it charged entirely, which leads us to our biggest complaint about this charger.
@@ -104,6 +103,12 @@ Lifewire / Gannon Burgett
 
 ![Max Oak](https://www.lifewire.com/thmb/FlP4JZUVLoJ3DjKoSRUIFuf1peY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_6Web-5c8ff3e6c9e77c0001a926ff.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Gannon Burgett
 
  One nice bonus is the power bank can be charged while also giving a charge to a laptop or mobile device, adding an extra element of convenience.
@@ -117,11 +122,16 @@ Lifewire / Gannon Burgett
  Moving onto laptops, our ASUS X555LA was able to be charged four and a half times from 0% with the MaxOak power bank, with an average charge time of three hours or so. The ASUS X555LA has a relatively small battery compared to most laptops, which means it falls in line with MaxOak’s claims that its power bank can charge a laptop two times over give or take a little.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Price: Right down the middle**
 
@@ -144,7 +154,16 @@ No advertising on the website.
  Overall, the MaxOak 50000mAh is a decent power bank with massive capacity. However, it isn't designed with newer computers and devices in mind. If you have an older laptop on hand that isn't a MacBook (the MaxOak doesn't support any MagSafe connectors) or doesn't use USB Type-C for charging, it'll get the job done. But if your smartphone or laptop is newer and relies on more recent and powerful connections, you're going to want to look elsewhere.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
@@ -152,6 +171,12 @@ No advertising on the website.
 * [ChargeTech 27000mAh Battery Pack](https://www.lifewire.com/chargetech-27000mah-battery-pack-review-4589409)
 * [Anker PowerCore+ 26800 Battery Pack Bundle](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  185Wh/50000mAh External Battery Power Bank
@@ -182,3 +207,37 @@ No advertising on the website.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-frame-by-frame-the-smartphone-storytellers-path-to-youtubes-thumbnails/"><u>[New] 2024 Approved  Frame by Frame  The Smartphone Storyteller's Path to YouTubes Thumbnails</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unveiling-top-ten-os-agnostic-video-players/"><u>[New] Unveiling Top Ten OS-Agnostic Video Players</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2023s-ultimate-selection-expertly-curated-list-of-leading-video-doorbells/"><u>2023'S Ultimate Selection: Expertly Curated List of Leading Video Doorbells</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024-ultimate-selection-of-high-quality-webcams-reviewed-and-ranked/"><u>2024 Ultimate Selection of High-Quality Webcams Reviewed and Ranked</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-premiere-lineup-elite-sleeves-and-shields-for-your-ipad-pro-13-inch/"><u>2024'S Premiere Lineup: Elite Sleeves and Shields for Your iPad Pro 13-Inch</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-ambition-selecting-top-6-free-downloader-apps-from-youtube-vaults/"><u>Audio Ambition  Selecting Top 6 Free Downloader Apps From YouTube Vaults</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/check-manufacturer-websites-directly-as-they-may-offer-exclusive-rebates-or-incentives-not-available-through-third-party-sellers/"><u>Check Manufacturer Websites Directly as They May Offer Exclusive Rebates or Incentives Not Available Through Third-Party Sellers.</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/chromebook-screen-capture-simplified-into-four-methods/"><u>Chromebook Screen Capture  Simplified Into Four Methods</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-discover-the-premier-2023-2-in-1-convertible-laptops-for-maximum-efficiency/"><u>Comprehensive Review: Discover the Premier 2023 2-in-1 Convertible Laptops for Maximum Efficiency</u></a></li>
+<li><a href="https://solve-news.techidaily.com/cookiebot-enhanced-site-experience-boost-your-traffic-with-smart-tracking/"><u>Cookiebot-Enhanced Site Experience: Boost Your Traffic with Smart Tracking</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-listen-to-fm-stations-directly-on-your-smartphone-iosandroid/"><u>How To Listen To FM Stations Directly On Your Smartphone (iOS/Android)</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-the-savvy-seekers-guide-to-spotting-superb-photos-on-pexels/"><u>In 2024, The Savvy Seeker's Guide to Spotting Superb Photos on Pexels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-streaming-made-simple-with-obs-guidebook/"><u>In 2024, Youtube Streaming Made Simple with OBS Guidebook</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/stream-all-your-favorites-with-xfinity-access-netflix-peacock-and-apple-tvplus-in-one-handy-package/"><u>Stream All Your Favorites with Xfinity: Access Netflix, Peacock & Apple TV+ in One Handy Package!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/streaming-service-updates-how-youtube-music-now-offers-an-ai-curation-experience-like-spotifys-dynamic-radio/"><u>Streaming Service Updates: How YouTube Music Now Offers an AI Curation Experience Like Spotify's Dynamic Radio</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-impending-demise-of-spotifys-car-thing-a-comprehensive-analysis/"><u>The Impending Demise of Spotify's 'Car Thing': A Comprehensive Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-latest-update-picture-in-picture-revamped-on-android-tv-version-14-launches-now/"><u>The Latest Update: Picture-in-Picture Revamped on Android TV Version 14 Launches Now</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-unbeatable-benefits-of-acquiring-pc-titles-directly-through-microsoft/"><u>The Unbeatable Benefits of Acquiring PC Titles Directly Through Microsoft</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-10-narrative-rich-video-games-with-memorable-stories-youll-replay-time-and-again/"><u>Top 10 Narrative-Rich Video Games With Memorable Stories You'll Replay Time and Again</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/unexpected-computer-restarts-causes-and-solutions-for-a-steady-performance/"><u>Unexpected Computer Restarts – Causes & Solutions for a Steady Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlocking-the-past-with-playstation-plus-premium-a-necessity-for-classic-game-lovers/"><u>Unlocking the Past with PlayStation Plus Premium - A Necessity for Classic Game Lovers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/upgrade-your-mobile-battle-experience-with-logitechs-chic-and-functional-g-pro-x/"><u>Upgrade Your Mobile Battle Experience with Logitech's Chic and Functional G Pro X</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/upgrading-made-simple-a-compreomedmacsierra-guide/"><u>Upgrading Made Simple  A CompreomedmacSierra Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/venu-sports-unveiled-what-can-we-expect-from-its-market-debut/"><u>Venu Sports Unveiled: What Can We Expect From Its Market Debut?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/whats-mia-from-playstation-5-essential-ps4-features-that-arent-there-yet/"><u>What's MIA From PlayStation 5? Essential PS4 Features That Aren't There Yet.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-google-play-pass-is-an-amazing-offer-that-could-still-improve/"><u>Why Google Play Pass Is an Amazing Offer That Could Still Improve</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-microsofts-upscaler-elevates-gaming-experience-in-the-new-copilotplus-era/"><u>Why Microsoft's Upscaler Elevates Gaming Experience in the New Copilot+ Era</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-the-latest-release-of-my-ideal-gamepad-holds-a-special-place-in-my-heart/"><u>Why the Latest Release of My Ideal Gamepad Holds a Special Place in My Heart</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-you-shouldnt-miss-out-the-top-10-ps4ps5-games-for-playstation-plus-members/"><u>Why You Shouldn't Miss Out: The Top 10 PS4/PS5 Games for PlayStation Plus Members</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/xfires-rival-reimagined-the-next-evolution-in-chat-apps-for-gamers-post-discord-era/"><u>XFire's Rival Reimagined: The Next Evolution in Chat Apps for Gamers Post-Discord Era</u></a></li>
+</ul></div>

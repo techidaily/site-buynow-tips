@@ -1,7 +1,7 @@
 ---
 title: "Venturing Through the Narrative Universe: An In-Depth Review of 'Torment: Tides of Numenera'"
-date: 2024-08-09T00:55:39.410Z
-updated: 2024-08-10T00:55:39.410Z
+date: 2024-09-04T19:48:30.325Z
+updated: 2024-09-05T19:48:30.325Z
 categories:
   - BestProducts
 description: "This Article Describes Venturing Through the Narrative Universe: An In-Depth Review of 'Torment: Tides of Numenera'"
@@ -58,15 +58,36 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
  This whole introduction is slow moving and boring, and getting through it is rough. But even past this, things don’t necessarily pick up and get more interesting. The game has such a heavy hand with its narration, telling you the game’s visuals even though you can see them right there on your screen. The whole game reads like someone wrote a novel, couldn’t publish it, and then decided making a[video game](https://www.lifewire.com/best-gaming-consoles-4154610) was a better idea, and instead of trimming the fat, they left every unnecessary description and detail in the game’s prompt.
@@ -75,15 +96,18 @@ Lifewire / Kelsey Simon
 
  You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Gameplay: Dialogue prompts and effort**
 
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
  Beyond this, the other major gameplay mechanic is a system of effort and inspiration. Every action you take will prompt you to use effort. This effort allows for your character to work harder at the chosen action, and thus gives your character a better chance of accomplishing their goal.
@@ -99,7 +123,10 @@ Lifewire / Kelsey Simon
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Graphics: Outdated and simplistic**
 
@@ -107,24 +134,21 @@ Lifewire / Kelsey Simon
 
  The one positive is the originality in the world the developers have created. The setting feels unique―a mix of strange alien tech within a fantasy city. A wide range of characters will fill the game, and they respond and react in creative ways. It’s also a fun experience to run around and talk to these various characters and explore the game’s world and the lore of Numenera.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Price: Only worth it if you’re keen on the story**
 
@@ -146,9 +170,6 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Torment: Tides of Numenera
@@ -172,3 +193,44 @@ Lifewire / Kelsey Simon
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-access-your-favorites-anytime-the-leading-6-free-video-downloaders/"><u>[New] Access Your Favorites Anytime  The Leading 6 Free Video Downloaders</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-integrating-soundscape-with-video-narrative-in-premiere-pro/"><u>[New] Integrating Soundscape With Video Narrative in Premiere Pro</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unleashing-creativity-in-drone-video-post-production/"><u>[New] Unleashing Creativity in Drone Video Post-Production</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-nanofilm-whiz/"><u>[Updated] In 2024, NanoFilm Whiz</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-revamp-your-social-media-presence-essential-online-image-makers-for-fb-covers/"><u>[Updated] Revamp Your Social Media Presence  Essential Online Image Makers for FB Covers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-reverse-video-magic-online-step-by-step-guides/"><u>[Updated] Reverse Video Magic Online  Step-by-Step Guides</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-key-to-profit-youtube-shorts-insights-for-2024/"><u>[Updated] The Key to Profit  YouTube Shorts Insights for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-your-route-to-revisiting-fbs-recently-viewed-gems/"><u>2024 Approved  Your Route to Revisiting Fb’s Recently Viewed Gems</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-value-sound-systems-top-picks-under-50/"><u>Best Value Sound Systems: Top Picks Under $50</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-video-repair-tool-to-fix-and-repair-corrupt-mp4movavi-video-files-of-c51-by-stellar-video-repair-mobile-video-repair/"><u>Best Video Repair tool to Fix and Repair Corrupt MP4,MOV,AVI video files of C51</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/download-big-screen-fb-video-quality/"><u>Download Big Screen FB Video Quality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-cutting-edge-viewing-experiences-our-selection-for-the-finest-curved-screens-of-2024/"><u>Exploring Cutting-Edge Viewing Experiences: Our Selection for the Finest Curved Screens of 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-elite-selection-premier-ipads-leading-tech-trends/"><u>Exploring the Elite Selection: Premier iPads Leading Tech Trends</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fix-discord-overlay-issues-simple-solutions-you-can-apply-today/"><u>Fix Discord Overlay Issues: Simple Solutions You Can Apply Today!</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-most-recent-nvidia-quadro-rtx-8000-drivers-for-win-10-8-and-7-direct-download-links/"><u>Get the Most Recent Nvidia Quadro RTX 8000 Drivers for Win 10, 8 & 7 - Direct Download Links</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-call-logs-from-your-phantom-v-fold-by-fonelab-android-recover-call-logs/"><u>How to recover old call logs from your Phantom V Fold?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/identifying-the-target-keywords-and-phrases-to-optimize-for-search-engines/"><u>Identifying the Target Keywords and Phrases to Optimize for Search Engines.</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-realme-narzo-60-5g-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lake-holt-park/"><u>Lake Holt Park</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-printer-picks-expert-roundup/"><u>Leading Printer Picks: Expert Roundup</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-professional-photo-studio-lights-expertly-curated-selections/"><u>Leading Professional Photo Studio Lights : Expertly Curated Selections</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-ultrawide-screens-reviewed-premiere-models-for-the-modern-user-2024-edition/"><u>Leading UltraWide Screens Reviewed: Premiere Models for the Modern User, 2024 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/smart-blinds-and-2023-which-are-relevant-to-the-original-title-while-adding-value-with-additional-descriptive-words-like-top-rated-comprehensive-guide-and-u10/"><u>Smart Blinds and 2023, Which Are Relevant to the Original Title, While Adding Value with Additional Descriptive Words Like Top-Rated, Comprehensive Guide, and Ultimate Selection.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-affordable-technology-gadgets-less-than-50-for-holiday-season/"><u>The Ultimate Guide to Affordable Technology Gadgets - Less Than $50 for Holiday Season</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-choosing-leading-ups-systems-for-202n4/"><u>The Ultimate Guide to Choosing Leading UPS Systems for 202N4</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-list-of-high-performance-mobile-gaming-pcs-for-2nnd-year/"><u>The Ultimate List of High-Performance Mobile Gaming PCs for 2Nnd Year</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-picks-expert-recommended-gadget-presents-for-the-festive-season-of-2021/"><u>Top Picks: Expert Recommended Gadget Presents for the Festive Season of 2021</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-blu-ray-and-dvd-home-theater-systems/"><u>Top Rated Blu-Ray & DVD Home Theater Systems</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-music-streaming-platforms-a-comprehensive-guide/"><u>Top Rated Music Streaming Platforms : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-nikon-dslr-optics-ranked/"><u>Top Rated Nikon DSLR Optics Ranked</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-ranked-gaming-monitors-and-televisions-a-comprehensive-guide/"><u>Top-Ranked Gaming Monitors & Televisions : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-ranked-surveillance-systems-a-comprehensive-buyers-guide/"><u>Top-Ranked Surveillance Systems : A Comprehensive Buyer's Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-drone-models-set-to-dominate-the-skies/"><u>Top-Rated Drone Models Set to Dominate the Skies</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-laptop-docking-solutions/"><u>Top-Rated Laptop Docking Solutions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-photography-gear-totes-the-ultimate-list/"><u>Top-Rated Photography Gear Totes: The Ultimate List</u></a></li>
+<li><a href="https://win-dash.techidaily.com/upgrade-your-game-with-the-newest-amd-vega-driver-versions-user-friendly-tutorial-inside/"><u>Upgrade Your Game with the Newest AMD Vega Driver Versions - User-Friendly Tutorial Inside</u></a></li>
+<li><a href="https://apple-account.techidaily.com/your-account-has-been-disabled-in-the-app-store-and-itunes-from-apple-iphone-15-by-drfone-ios/"><u>Your Account Has Been Disabled in the App Store and iTunes From Apple iPhone 15?</u></a></li>
+</ul></div>

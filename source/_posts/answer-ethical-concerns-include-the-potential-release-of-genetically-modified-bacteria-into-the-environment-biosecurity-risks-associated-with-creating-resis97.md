@@ -1,7 +1,7 @@
 ---
 title: "Answer: Ethical Concerns Include the Potential Release of Genetically Modified Bacteria Into the Environment, Biosecurity Risks Associated with Creating Resistant Strains, and Ensuring that Applications Are Safe and Beneficial to Society."
-date: 2024-08-09T00:55:40.073Z
-updated: 2024-08-10T00:55:40.073Z
+date: 2024-09-04T19:49:37.920Z
+updated: 2024-09-05T19:49:37.920Z
 categories:
   - BestProducts
 description: "This Article Describes Answer: Ethical Concerns Include the Potential Release of Genetically Modified Bacteria Into the Environment, Biosecurity Risks Associated with Creating Resistant Strains, and Ensuring that Applications Are Safe and Beneficial to Society."
@@ -39,9 +39,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
 [Jump to Review](https://www.lifewire.com/#toc-easiest-on-the-budget-garmin-vivoactive-5)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Just Buy This (All Around Best)
 
 [Apple Watch Series 9 GPS + Cellular 45mm](https://www.amazon.com/Apple-Cellular-Smartwatch-Midnight-Aluminum/dp/B0CHXFH656?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0CHXFH656)
@@ -54,9 +51,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
 **TL;DR:** Highly customizable for any situation, simple to use, and regularly updated, the Apple Watch Series 9 is the one to beat.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Why We Recommend This
 
  I’ve been using Apple Watches since they first launched in 2015\. Over the years, the format has been refined, and the Apple Watch Series 9 is easily the best yet for most people.
@@ -92,6 +86,12 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **Who else recommends it?** Digital Trends, TechRadar, CNET, ZDNet, and PCMag all recommend the Apple Watch Series 9.
 * **What do buyers think?** The Apple Watch Series 9 has over 2,400 ratings on Amazon, with 83% of those giving the watch five stars for an average rating of 4.7 out of 5.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best Android Smartwatch
 
 [Samsung Galaxy Watch 6](https://www.amazon.com/SAMSUNG-Bluetooth-Smartwatch-Personalized-Advanced/dp/B0C792QRW6/?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0C792QRW6)
@@ -104,6 +104,12 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
 **TL;DR:** Sleek and stylish, the Samsung Galaxy Watch 6 has some great features provided you’re an Android phone owner. Its body composition tool is a particular highlight.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Why We Recommend This
 
  The Samsung Galaxy Watch 6 looks and feels lovely to use. Its circular watch face feels more natural than the angular edges of the Apple Watch. The AMOLED screen lights up nicely but in a warm and inviting way rather than harsh.
@@ -135,8 +141,10 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **What do buyers think?** The Samsung Galaxy Watch 6 has over 3,900 ratings on Amazon, with 88% of those rating the watch either five or four stars. The overall average rating is 4.5 out of 5.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Easiest on the Budget
 
@@ -150,9 +158,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 **TL;DR:** More affordable than most Garmin watches, the Garmin Vivoactive 5 offers all the key features while not looking too sporty.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ### Why We Recommend This
 
  A Garmin Watch is the dream for active types, but they often cost a lot and rarely look great when fine dining. The Garmin Vivoactive 5 is an affordable option that won’t look too out of place while out to impress.
@@ -186,7 +191,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * **What do buyers think?** The Garmin Vivoactive 5 has over 1,800 ratings on Amazon, with 76% of them rating it five or four stars. Its average rating is 4.4 out of 5.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How We Test
 
@@ -203,7 +211,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  I used all the devices for several weeks, with some smartwatches used for months. I wore them daily while working, exercising, relaxing, and asleep.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## What to Look For
 
@@ -217,6 +228,18 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 [The Best Fitness Trackers of 2024](https://www.lifewire.com/best-fitness-trackers-8656291)
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Other Smartwatches We Reviewed
 
  The[Google Pixel Watch 2](https://www.amazon.com/Google-Pixel-Watch-Best-Fitbit/dp/B0CCQ7DNQL?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7C) is potentially the most beautiful smartwatch, so it can’t cope with a rugged lifestyle. It is a bit limited at times and pricey, which means it isn’t the best around, but it’s certainly eye-catching.
@@ -251,3 +274,59 @@ Tell us why!
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-social-media-symphony-coordinating-video-sharing/"><u>[New] 2024 Approved  Social Media Symphony  Coordinating Video Sharing</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-imovie-why-does-it-alter-my-videos/"><u>[New] IMovie  Why Does It Alter My Videos?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-monitoring-instagram-disconnects-immediately-for-2024/"><u>[New] Monitoring Instagram Disconnects Immediately for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-best-6-android-video-capture-apps-for-screen-recording/"><u>[Updated] 2024 Approved  Best 6 Android Video Capture Apps for Screen Recording</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-breaking-down-the-finest-liquid-simulation-games/"><u>[Updated] 2024 Approved  Breaking Down the Finest Liquid Simulation Games</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-must-have-offline-mobile-games-to-keep-you-entertained-on-android/"><u>[Updated] 2024 Approved  Must-Have Offline Mobile Games to Keep You Entertained on Android</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-streamlabs-rival-tools-unveiled/"><u>[Updated] In 2024, Streamlabs' Rival Tools Unveiled</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-the-complete-user-manual-how-to-use-screen-recording-on-mac/"><u>[Updated] In 2024, The Complete User Manual  How To Use Screen Recording on Mac</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-revolutionizing-broadcast-media-with-chroma-key-expertise/"><u>[Updated] Revolutionizing Broadcast Media with Chroma Key Expertise</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-the-ultimate-playbook-techniques-to-archive-your-unique-vr-adventures/"><u>[Updated] The Ultimate Playbook  Techniques to Archive Your Unique VR Adventures</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-cutting-edge-tools-the-best-9-gif-recorders-for-animated-windows-content/"><u>2024 Approved  Cutting-Edge Tools  The Best 9 GIF Recorders for Animated Windows Content</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-banish-spotifys-recommended-podcasts/"><u>2024 Approved  How to Banish Spotify's Recommended Podcasts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-elevate-your-digital-self-with-memetic-skills-in-the-metaverse/"><u>2024 Approved  How to Elevate Your Digital Self with Memetic Skills in the Metaverse</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-leading-nas-units-reviewed-choose-the-perfect-data-management-solution/"><u>2024'S Leading NAS Units Reviewed - Choose the Perfect Data Management Solution</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/amd-radeon-hd-6350-driver-downloads-and-updates-how-to-optimize-your-windows-experience/"><u>AMD Radeon HD 6350 Driver Downloads & Updates: How to Optimize Your Windows Experience</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/cutting-edge-vr-tools-for-drones/"><u>Cutting-Edge VR Tools for Drones</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/determine-how-much-youre-willing-to-spend-on-your-gaming-setup-keeping-in-mind-potential-upgrades-or-peripherals-you-might-want-later-on/"><u>Determine How Much You're Willing to Spend on Your Gaming Setup, Keeping in Mind Potential Upgrades or Peripherals You Might Want Later On.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elite-selection-of-iphone-13-sleeves-expert-picks-protection-and-style/"><u>Elite Selection of iPhone 13 Sleeves: Expert Picks Protection and Style</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-premium-pick-for-samsung-galaxy-s22-guard-films/"><u>Expert Review: Premium Pick for Samsung Galaxy S22 Guard Films</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/eyecatcher-studio-wx-series-for-2024/"><u>EyeCatcher Studio WX Series for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/how-abbyys-smart-data-extraction-is-reshaping-the-future-of-service-businesses/"><u>How ABBYY's Smart Data Extraction Is Reshaping the Future of Service Businesses</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Vivo Y27 4G | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-samsung-galaxy-m34-5g-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Samsung Galaxy M34 5G FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagram-story-whats-not-in-public-knowledge-in-2024/"><u>Instagram Story  What's Not in Public Knowledge, In 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/most-advanced-wi-fi-devices-2024-reviews-and-picks/"><u>Most Advanced Wi-Fi Devices: 2024 Reviews and Picks</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/realtek-net-adapter-non-operational-post-win11-update-fixed/"><u>Realtek Net Adapter Non-Operational Post Win11 Update (Fixed)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/smartest-value-for-money-tvs-on-the-market-this-year-our-expert-picks/"><u>Smartest Value-for-Money TVs on the Market This Year - Our Expert Picks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-thumbnails-guide-what-size-yields-success-in-2024/"><u>The Ultimate Thumbnails Guide  What Size Yields Success, In 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-blu-ray-and-dvd-home-theater-systems/"><u>Top Rated Blu-Ray & DVD Home Theater Systems</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-music-streaming-platforms-a-comprehensive-guide/"><u>Top Rated Music Streaming Platforms : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-nikon-dslr-optics-ranked/"><u>Top Rated Nikon DSLR Optics Ranked</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-ps5-storage-drives-a-comprehensive-guide/"><u>Top Rated PS5 Storage Drives - A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-smart-home-controllers-the-ultimate-selection/"><u>Top Rated Smart Home Controllers : The Ultimate Selection</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-ranked-gaming-monitors-and-televisions-a-comprehensive-guide/"><u>Top-Ranked Gaming Monitors & Televisions : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-ranked-surveillance-systems-a-comprehensive-buyers-guide/"><u>Top-Ranked Surveillance Systems : A Comprehensive Buyer's Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-drone-models-set-to-dominate-the-skies/"><u>Top-Rated Drone Models Set to Dominate the Skies</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-laptop-docking-solutions/"><u>Top-Rated Laptop Docking Solutions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-photography-gear-totes-the-ultimate-list/"><u>Top-Rated Photography Gear Totes: The Ultimate List</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-protective-covers-for-google-pixel-7-2023-edition/"><u>Top-Rated Protective Covers for Google Pixel 7 - 2023 Edition</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transforming-titles-best-ai-powered-podcast-name-makers-for-2024/"><u>Transforming Titles  Best AI-Powered Podcast Name Makers for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitters-reactive-content-unveiled-for-2024/"><u>Twitter's Reactive Content Unveiled for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-the-most-efficient-usb-c-adapters-available/"><u>Ultimate Guide to the Most Efficient USB-C Adapters Available</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-premium-storage-solutions-the-leading-external-hdds/"><u>Ultimate Guide: Premium Storage Solutions – The Leading External HDDs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-list-most-effective-ergonomic-keyboards-for-optimal-typing-this-year/"><u>Ultimate List: Most Effective Ergonomic Keyboards for Optimal Typing This Year</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-ranking-leading-liquid-metal-greases-for-cpu-cooling-2024-edition/"><u>Ultimate Ranking: Leading Liquid Metal Greases for CPU Cooling - 2024 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-elite-pick-for-ipad-pro-11-case-protection/"><u>Ultimate Selection: Elite Pick for iPad Pro 11 Case Protection</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-the-leading-7g-wi-fi-routers-for-optimal-performance/"><u>Ultimate Selection: The Leading 7G Wi-Fi Routers for Optimal Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-showdown-the-leading-flat-screen-tv-models-of-2023-unveiled/"><u>Ultimate Showdown: The Leading Flat Screen TV Models of 2023 Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-tech-presents-top-picks-for-hardcore-enthusiasts-holiday-haul/"><u>Ultimate Tech Presents: Top Picks for Hardcore Enthusiasts' Holiday Haul</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/utilize-reputable-gaming-performance-benchmarks-like-cinebench-passmark-and-3dmark-to-compare-different-hardware-configurations-within-your-budget-range/"><u>Utilize Reputable Gaming Performance Benchmarks Like Cinebench, PassMark, and 3DMark to Compare Different Hardware Configurations Within Your Budget Range.</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-realme-gt-5-pro-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Realme GT 5 Pro Has Black Screen of Death? | Dr.fone</u></a></li>
+</ul></div>
