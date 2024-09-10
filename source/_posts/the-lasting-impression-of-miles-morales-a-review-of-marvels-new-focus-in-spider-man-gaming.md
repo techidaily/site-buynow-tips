@@ -1,7 +1,7 @@
 ---
 title: The Lasting Impression of 'Miles Morales' - A Review of Marvel's New Focus in Spider-Man Gaming
-date: 2024-09-04T19:56:34.226Z
-updated: 2024-09-05T19:56:34.226Z
+date: 2024-09-09T06:18:57.420Z
+updated: 2024-09-10T06:18:57.420Z
 categories:
   - BestProducts
 description: This Article Describes The Lasting Impression of 'Miles Morales' - A Review of Marvel's New Focus in Spider-Man Gaming
@@ -9,6 +9,18 @@ excerpt: This Article Describes The Lasting Impression of 'Miles Morales' - A Re
 thumbnail: https://www.lifewire.com/thmb/Gmmqy1VLknBieeUTjW0l-DSIKo4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Marvels-Spider-Man-Miles-Morales_HeroHoriz-471d3e30fb2e4360b23df72c6e045477.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Samsung RU7300 55-Inch Curved TV in 4K - Is It the Best Smart Television of Its Class? Find Out Here
 
 4.2
@@ -17,6 +29,12 @@ thumbnail: https://www.lifewire.com/thmb/Gmmqy1VLknBieeUTjW0l-DSIKo4=/400x300/fi
 
 ![Samsung 55-inch RU7300](https://www.lifewire.com/thmb/hgPXHUQeV9E5klykKWvMW2itzH4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_CurvedTVs_RU7300_HeroSquare-361d1958f9884b29ae9c9fb72824c549.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
  What We Like
@@ -39,10 +57,22 @@ thumbnail: https://www.lifewire.com/thmb/Gmmqy1VLknBieeUTjW0l-DSIKo4=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Samsung UN55RU7300FXZA 55-Inch 4KUHD 7 Series
 
 ![Samsung 55-inch RU7300](https://www.lifewire.com/thmb/ddedGp-jeYkQ5Qz9QdGOUAr46Ko=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_CurvedTVs_RU7300_HeroSquare-361d1958f9884b29ae9c9fb72824c549.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
 [View On Amazon $1,000](https://www.amazon.com/dp/B07NC925FR?tag=lifewire-onsite-prod-20&ascsubtag=4844961%7Cnddc60352e1054c0882826904e3e9ced414%7CB07NC925FR)
@@ -73,6 +103,12 @@ thumbnail: https://www.lifewire.com/thmb/Gmmqy1VLknBieeUTjW0l-DSIKo4=/400x300/fi
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: An appealing arc**
 
  The Samsung 55-inch RU7300 has a bit more visual pop than your average[large-screen 4K HDR set](https://www.lifewire.com/best-tvs-to-buy-4061107) because it is physically popping out towards you on the right and left sides, unlike a standard flat television. It’s a subtle curve overall, but enough to be just noticeable—especially from the sides. That might make it an awkward fit for wall mounting, but it has a distinctive edge that’s unlike nearly every other TV you’ll find in stores.
@@ -91,12 +127,6 @@ thumbnail: https://www.lifewire.com/thmb/Gmmqy1VLknBieeUTjW0l-DSIKo4=/400x300/fi
 
  Initial software setup can take a few minutes, as you’ll be prompted to log into a Wi-Fi network if you don’t have an Ethernet cable plugged into an active connection, and you may have to download updates to Samsung’s built-in interface. It was a pretty quick process for me.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Image Quality: Crisp, but could be bolder**
 
  At 3840x2160 (4K Ultra HD) resolution, Samsung’s RU7300 has sharpness covered, delivering crisply detailed visuals across the board. Native 4K media looks fantastic, as expected, and lower-resolution media scales up pretty smoothly. And low input lag means that games feel responsive, making this set well-suited for gaming.
@@ -108,35 +138,17 @@ thumbnail: https://www.lifewire.com/thmb/Gmmqy1VLknBieeUTjW0l-DSIKo4=/400x300/fi
 ![Samsung 55-inch RU7300](https://www.lifewire.com/thmb/GaFmEEESPt4pM-0PAQ3JifVZPOw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_CurvedTVs_RU7300_03-e3e60b2553d84a6cb6a03c52a94073a0.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Audio Quality: Totally solid sound**
 
  The Samsung 55-inch RU7300 has a pair of stereo speakers with a total output of 20W, and they’ll get the job done for everyday viewing of streaming shows and movies, and playing games. Playback is clear and full, although it’s not heavy on bass—and unlike a lot of other modestly-priced televisions, I wasn’t immediately itching for a soundbar. You’ll see an improvement from external speakers, certainly, but it doesn’t feel as necessary here.
 
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: Clean, but incomplete**
 
  Samsung’s own[Tizen OS-based](https://www.lifewire.com/what-is-tizen-4580383) Smart Hub interface is used on this curved smart TV, providing easy access to streaming video apps and settings. Most of the heavy hitters are here, either already installed or available via the built-in app marketplace, including Netflix, Hulu, Amazon Prime Video, YouTube, and even[Apple TV](https://www.lifewire.com/what-is-apple-tv-1994193) . There are some omissions, however: both Twitch and Bravo were missing in action when I searched for them. Samsung also offers a number of free streaming channels in partnership with Pluto TV, in case you miss the sensation of flipping channels for something to watch.
@@ -149,18 +161,6 @@ thumbnail: https://www.lifewire.com/thmb/Gmmqy1VLknBieeUTjW0l-DSIKo4=/400x300/fi
 
  There aren’t many curved televisions currently on the market, so it’s difficult to do an apples-to-apples comparison. However, looking at other mid-range 4K HDR Smart TVs with flat screens, you can find numerous models for less cash than the $550 asking price of the RU7300\. Still, the RU7300 has been selling for around $480 as of this writing, which is easier to stomach if you’re set on a curved screen.
 
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Samsung 55-inch RU7300 Curved TV vs. Vizio M-Series Quantum 50-inch TV**
 
  Here’s one example of how you can save a fair amount of cash by skipping the curved screen—and get a better TV in the process. Vizio’s[M-Series Quantum 50-inch 4K HDR TV](https://www.lifewire.com/vizio-m-series-quantum-50-inch-4k-smart-tv-m507-g1-review-4842757) (see on[Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fvizio-50-class-led-m-series-quantum-series-2160p-smart-4k-uhd-tv-with-hdr%2F6345462.p%3FskuId%3D6345462) ) is a little smaller in size, sure, but not significantly so. Better yet, it delivers a brighter and more vibrant picture, with local dimming zones boosting the black levels.
@@ -176,10 +176,10 @@ thumbnail: https://www.lifewire.com/thmb/Gmmqy1VLknBieeUTjW0l-DSIKo4=/400x300/fi
  If you’re sold on a curved screen, whether it’s due to the distinctive nature or purported added level of immersiveness, then the Samsung 55-inch RU7300 Curved 4K HDR Smart TV is a pretty good mid-range choice. It’s more expensive than similarly-specced flat 4K HDR sets, but that’s the price you’ll pay for a significant niche feature. Samsung’s curved set comes up a little short on brightness, which impacts the quality of the HDR experience, but otherwise provides a nice-looking picture, responsive inputs, and a slick-looking interface.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Specs
 

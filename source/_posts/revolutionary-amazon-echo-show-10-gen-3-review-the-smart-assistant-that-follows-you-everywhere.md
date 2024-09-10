@@ -1,7 +1,7 @@
 ---
 title: "Revolutionary Amazon Echo Show 10 (Gen 3) Review: The Smart Assistant That Follows You Everywhere"
-date: 2024-08-09T00:55:48.246Z
-updated: 2024-08-10T00:55:48.246Z
+date: 2024-09-09T06:17:14.067Z
+updated: 2024-09-10T06:17:14.067Z
 categories:
   - BestProducts
 description: "This Article Describes Revolutionary Amazon Echo Show 10 (Gen 3) Review: The Smart Assistant That Follows You Everywhere"
@@ -9,14 +9,32 @@ excerpt: "This Article Describes Revolutionary Amazon Echo Show 10 (Gen 3) Revie
 thumbnail: https://thmb.techidaily.com/de67db97111b230778d53cfacb51bb9c7a1356b2082aff96997373a5633f37e3.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cutting the Cord: A Comprehensive Review of the Amazon Basics Flat Antenna for Free TV Enthusiasts
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/rS-RQyeAxU8gdzYheTg1qi5PFEY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Lifewire / Erika Rawes
 
  What We Like
@@ -41,6 +59,12 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Lifewire / Erika Rawes
 
 [View On Amazon](https://www.amazon.com/dp/B075ZQXB26/?tag=lifewire-onsite-prod-20&ascsubtag=4845569%7Cn4bcb8b1996c24cd3b14f62e195599b0615%7CB075ZQXB26)
@@ -62,9 +86,6 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -74,7 +95,10 @@ Lifewire / Erika Rawes
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Setup: Relatively easy**
 
@@ -84,28 +108,24 @@ Lifewire / Erika Rawes
 
  Next, you change your TV to the correct input (usually TV, antenna, or Coax). Then, go to your TV’s menus and start the auto-programming process, which[scans for available channels](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) . The process takes a few minutes, and sometimes your TV won’t start to locate channels until about halfway through the auto-programming process.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## **Performance: Almost two dozen channels (in a rural area)**
 
  So many things[affect an antenna’s performance](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) —location, household electronics, tree cover, tower location, and more. The antenna displays channels of high quality. However, sometimes the channels would take a few seconds to load, and other times, I’d see a pixelated effect when I first changed the channel that would clear up after a few seconds. Once the picture was fully loaded, it was in clear high definition. The antenna is capable of displaying a clear HD picture, so I couldn’t tell the difference between the antenna’s picture and the picture from streaming services like Hulu or Netflix.
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ## **Range: 35 miles**
 
  The AmazonBasics antenna has a 35-mile range, which isn’t very far considering 50 plus miles is becoming more common. It is omnidirectional, however, so you don’t need to point it in a specific direction. It supports UHF/VHF, so I was able to get a decent selection of channels.
@@ -114,18 +134,18 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
@@ -169,3 +189,54 @@ Lifewire / Erika Rawes
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-from-silent-videos-to-engaging-content-swiftly-add-captions-on-fb/"><u>[New] 2024 Approved From Silent Videos to Engaging Content Swiftly Add Captions on FB</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-25-top-rated-gratis-online-photography-tools/"><u>[New] 25 Top-Rated, Gratis Online Photography Tools</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-clearsnap-guide-how-to-exclude-distracting-picture-borders/"><u>[New] ClearSnap Guide How to Exclude Distracting Picture Borders</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-silent-voices-in-the-social-media-arena-ig-live-edition/"><u>[New] Silent Voices in the Social Media Arena - IG Live Edition</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-vloggers-retreat-excellence-unleashed/"><u>[New] The Vloggers' Retreat Excellence Unleashed</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-social-trends-in-visual-forms-23-edition/"><u>[Updated] Social Trends in Visual Forms, '23 Edition</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-lava-storm-5g-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Lava Storm 5G Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/20-must-have-devices-for-a-perfect-holiday/"><u>20 Must-Have Devices for a Perfect Holiday</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-examining-the-financial-success-strategies-of-t-series-on-youtube/"><u>2024 Approved Examining the Financial Success Strategies of T-Series on YouTube</u></a></li>
+<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-realme-narzo-60-pro-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Realme Narzo 60 Pro 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-closer-look-at-the-heimvision-sunrise-alarm-a80s-a-basic-yet-effective-light-therapy-solution/"><u>A Closer Look at the HeimVision Sunrise Alarm A80S - A Basic Yet Effective Light Therapy Solution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-comprehensive-look-at-hitman-trilogys-climactic-third-installment/"><u>A Comprehensive Look at Hitman Trilogy's Climactic Third Installment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-critical-look-at-the-sound-blaster-zxr-how-does-it-stack-up-as-creatives-pinnacle-model-of-2013/"><u>A Critical Look at the Sound Blaster ZXR: How Does It Stack Up as Creative's Pinnacle Model of 2013?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-aerial-fun-comprehensive-guide-to-the-syma-107g-remote-control-helicopter/"><u>Affordable Aerial Fun: Comprehensive Guide to the Syma 107G Remote Control Helicopter</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/aggressive-glow-for-aspiring-set-designers/"><u>Aggressive Glow for Aspiring Set Designers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/audio-technica-at-lp120xusb-bk-review/"><u>Audio-Technica AT-LP120XUSB-BK Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/balancing-price-and-performance-in-the-vixia-hf-r800/"><u>Balancing Price & Performance in the VIXIA HF R800</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/best-practices-where-to-download-text-overlays-for-2024/"><u>Best Practices Where to Download Text Overlays for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/calculating-the-storage-space-of-24-hour-videos/"><u>Calculating the Storage Space of 24-Hour Videos</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/classic-meets-modern-in-the-latest-ratchet-and-clank-overhaul-a-comprehensive-review/"><u>Classic Meets Modern in the Latest Ratchet & Clank Overhaul – A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-kindle-and-fire-tablet-identifying-key-distinctions/"><u>Comparing Kindle and Fire Tablet: Identifying Key Distinctions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-insight-into-samsung-galaxy-fit-a-revolutionary-wearable-for-workouts-and-wellness/"><u>Comprehensive Insight Into Samsung Galaxy Fit: A Revolutionary Wearable for Workouts and Wellness</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/cyberlink-screen-recorder-review-and-the-best-alternative-for-2024/"><u>Cyberlink Screen Recorder Review and the Best Alternative for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/economical-ears-journey-through-the-world-of-oneplus-buds/"><u>Economical Ears: Journey Through the World of OnePlus Buds</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-energizing-charge-and-bright-performance-of-romers-searchlight/"><u>Evaluating the Energizing Charge & Bright Performance of Romer's Searchlight</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-mighty-zmi-powerpack-2nkwh-the-authoritative-guide-to-your-go-to-compact-charger/"><u>Evaluating the Mighty ZMI PowerPack 2nkWh: The Authoritative Guide to Your Go-To Compact Charger</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exceptional-signal-quality-with-clearstream-eclipse-antenna-streamlined-design-and-easy-setup/"><u>Exceptional Signal Quality with ClearStream Eclipse Antenna - Streamlined Design & Easy Setup!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-on-using-gimp-multiplatform-image-editor-without-spending-a-penny/"><u>Expert Review on Using GIMP Multiplatform Image Editor Without Spending a Penny</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-speed-and-efficiency-of-google-nest-wi-fi-a-comprehensive-review/"><u>Exploring the Speed and Efficiency of Google Nest Wi-Fi - A Comprehensive Review</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/failed-to-play-mp4-movies-with-samsung-galaxy-f14-5g-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Failed to play MP4 movies with Samsung Galaxy F14 5G</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/find-your-treasures-with-oodle-exceptional-deals-on-community-items/"><u>Find Your Treasures with Oodle - Exceptional Deals on Community Items</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-latest-sony-vaio-drivers-installed-on-windows-step-by-step-tutorial/"><u>Get the Latest Sony Vaio Drivers Installed on Windows - Step by Step Tutorial</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/get-up-close-discover-the-flexus-200-by-klipsch/"><u>Get Up Close: Discover the Flexus 200 by Klipsch</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/google-tv-chromecast-unveiled-a-fresh-take-on-streaming-say-goodbye-to-firetv/"><u>Google TV Chromecast Unveiled: A Fresh Take on Streaming - Say Goodbye to FireTV</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-does-fitbit-charge-6-stack-up-expert-appraisal-and-comparison/"><u>How Does Fitbit Charge 6 Stack Up? Expert Appraisal & Comparison</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-offworld-trading-company-mastering-ruthless-trade-and-expansion/"><u>In-Depth Analysis of Offworld Trading Company: Mastering Ruthless Trade and Expansion</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolve-your-windows-10-bluetooth-connectivity-issues-instantly-step-by-step-guide/"><u>Resolve Your Windows 10 Bluetooth Connectivity Issues Instantly - Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/strategic-approaches-to-dominating-spotifys-ad-space-for-2024/"><u>Strategic Approaches to Dominating Spotify's Ad Space for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722970767150-the-ultimate-tutorial-for-arduino-nano-setup-on-windows-easy-fixed/"><u>The Ultimate Tutorial for Arduino Nano Setup on Windows - Easy, Fixed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unboxing-the-future-of-television-a-detailed-review-of-the-elegant-yet-functional-clearstream-amoled-hdtv-antenna-for-indooroutdoor-use/"><u>Unboxing the Future of Television: A Detailed Review of the Elegant Yet Functional ClearStream Amoled HDTV Antenna for Indoor/Outdoor Use</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlocking-value-with-your-next-m3-macbook-air-purchase/"><u>Unlocking Value with Your Next M3 MacBook Air Purchase</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unpacking-the-tiny-beast-in-depth-analysis-of-the-acer/"><u>Unpacking the Tiny Beast: In-Depth Analysis of the Acer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unraveling-differences-between-ipad-versions-regular-vs-air-model/"><u>Unraveling Differences Between iPad Versions: Regular Vs. Air Model</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-darkness-the-ultimate-guide-to-understanding-bloodborne/"><u>Unveiling Darkness: The Ultimate Guide to Understanding Bloodborne</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-knack-when-originality-meets-a-familiar-face/"><u>Unveiling the Knack: When Originality Meets a Familiar Face</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/wondering-about-chatgpt-plus-discover-if-joining-offers-value-with-these-key-points/"><u>Wondering About ChatGPT Plus? Discover If Joining Offers Value with These Key Points</u></a></li>
+<li><a href="https://techidaily.com/xiaomi-music-recovery-recover-deleted-music-from-xiaomi-by-fonelab-android-recover-music/"><u>Xiaomi Music Recovery - Recover Deleted Music from Xiaomi</u></a></li>
+</ul></div>

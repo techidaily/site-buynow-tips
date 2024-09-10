@@ -1,7 +1,7 @@
 ---
 title: Top Rated Nikon DSLR Optics Ranked
-date: 2024-08-31T16:30:40.715Z
-updated: 2024-09-01T16:30:40.715Z
+date: 2024-09-09T06:19:03.319Z
+updated: 2024-09-10T06:19:03.319Z
 tags:
   - buying-guides
 categories:
@@ -9,6 +9,12 @@ categories:
 thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/06/52832431049_0453289f76_o.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Top Rated Nikon DSLR Optics Ranked
 
 ###### [Read update](https://screen-recording.techidaily.com/in-2024-premium-windows-11-webcam-recorder-lineup/) 
@@ -31,6 +37,12 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023
 * [](https://www.amazon.com/dp/B0037KM0X0?tag=hotoge-20&ascsubtag=UUhtgUeUpU204802&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F826716%2Fbest-nikon-dslr-lenses%2F&asc%5Fcampaign=Short-Term)  
 ![41FPqwAS+vL._SL500_-2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/41fpqwas-vl-_sl500_-2.jpg)  
 #####  Nikon AF-S FX NIKKOR 24mm f/1.4G ED  
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Best Nikon DSLR Wide-Angle Lens  
 [$1399 at Amazon](https://www.amazon.com/dp/B0037KM0X0?tag=hotoge-20&ascsubtag=UUhtgUeUpU204802&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F826716%2Fbest-nikon-dslr-lenses%2F&asc%5Fcampaign=Short-Term)
 * [](https://www.amazon.com/Nikon-AF-S-NIKKOR-14-24mm-2-8G/dp/B000VDCTCI?tag=hotoge-20&ascsubtag=UUhtgUeUpU204802&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F826716%2Fbest-nikon-dslr-lenses%2F&asc%5Fcampaign=Short-Term)  
@@ -61,6 +73,12 @@ Best Nikon DSLR Portrait Lens
 Best Nikon DSLR Macro Lens  
 [See at Amazon](https://www.amazon.com/Nikon-NIKKOR-105mm-Focus-Cameras/dp/B01J4S9YRI?tag=hotoge-20&ascsubtag=UUhtgUeUpU204802&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F826716%2Fbest-nikon-dslr-lenses%2F&asc%5Fcampaign=Short-Term)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Why We Chose These Nikon DSLR Lenses
 
  Whatever brand you buy, you'll probably hold onto your lens (or glass) far longer than whatever camera body you're using. It's smart to invest in high-quality glass that will hold up over time.
@@ -102,6 +120,12 @@ Close
 
 ![41FPqwAS+vL._SL500_-2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/41fpqwas-vl-_sl500_-2.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Best Nikon DSLR Wide-Angle Lens
 
 #####  Nikon AF-S FX NIKKOR 24mm f/1.4G ED
@@ -116,12 +140,27 @@ A high-end wide-angle prime from Nikon that's perfect for architectural shots an
 
 [![Nikon 14-24mm on purple background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/10/Nikon-AF-S-NIKKOR-14-24mm.jpg) Nikon](https://www.amazon.com/Nikon-AF-S-NIKKOR-14-24mm-2-8G/dp/B000VDCTCI?tag=hotoge-20&ascsubtag=UUhtgUeUpU204802&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F826716%2Fbest-nikon-dslr-lenses%2F&asc%5Fcampaign=Short-Term)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [](https://www.amazon.com/Nikon-AF-S-NIKKOR-14-24mm-2-8G/dp/B000VDCTCI?tag=hotoge-20&ascsubtag=UUhtgUeUpU204802&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F826716%2Fbest-nikon-dslr-lenses%2F&asc%5Fcampaign=Short-Term) 
 
 ![](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/badges/2023-HOWTOGEEK-Best-Of.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Close 
 
@@ -139,6 +178,12 @@ Close
 
 ![41fZkP2LS5L._SL500_-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/41fzkp2ls5l-_sl500_-1.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Best Nikon DSLR Ultra-Wide-Angle Lens
 
 #####  Nikon AF-S NIKKOR 14-24mm f/2.8G ED
@@ -148,7 +193,10 @@ A high-quality Nikon ultrawide zoom that combines a fast large aperture with a s
 [See at Amazon](https://www.amazon.com/Nikon-AF-S-NIKKOR-14-24mm-2-8G/dp/B000VDCTCI?tag=hotoge-20&ascsubtag=UUhtgUeUpU204802&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F826716%2Fbest-nikon-dslr-lenses%2F&asc%5Fcampaign=Short-Term) [Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnikon__afs_nikkor_14%2F1434383.p%3FskuId%3D1434383) [Adorama](https://adorama.rfvk.net/c/156932/51926/1036?subId1=UUhtgUeUpU204802&subId2=ehtg&u=https%3A%2F%2Fwww.adorama.com%2Fnk1424afsu.html) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##  Best Nikon DSLR Telephoto Lens: [Nikon AF-S NIKKOR 70-200mm f/2.8E FL ED VR](https://www.amazon.com/Nikon-AF-S-NIKKOR-70-200mm-2-8E/dp/B01M4L36RJ?tag=hotoge-20&ascsubtag=UUhtgUeUpU204802&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F826716%2Fbest-nikon-dslr-lenses%2F&asc%5Fcampaign=Short-Term) 
 
@@ -176,6 +224,12 @@ Close
 
 ![41UhNzCR8jL._SL500_-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/41uhnzcr8jl-_sl500_-1.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Best Nikon DSLR Telephoto Lens
 
 #####  Nikon AF-S NIKKOR 70-200mm f/2.8E FL ED VR
@@ -184,9 +238,6 @@ The latest iteration of a legendary lens, Nikon's 70-200mm zoom is great for a v
 
 [See at Amazon](https://www.amazon.com/Nikon-AF-S-NIKKOR-70-200mm-2-8E/dp/B01M4L36RJ?tag=hotoge-20&ascsubtag=UUhtgUeUpU204802&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F826716%2Fbest-nikon-dslr-lenses%2F&asc%5Fcampaign=Short-Term) [Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnikon__afs_nikkor_70%2F5681600.p%3FskuId%3D5681600) [Crutchfield](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.crutchfield.com%2FI-rNARc11K7%2Fp_05420063%2FNikon-AF-S-NIKKOR-70-200mm-F-2-8E-FL-ED-VR.html) 
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Best Nikon DSLR for Street Photography: [Nikon AF FX NIKKOR 35mm f/1.4G](https://www.amazon.com/Nikon-NIKKOR-Fixed-Length-Cameras/dp/B0042X9LB0?tag=hotoge-20&ascsubtag=UUhtgUeUpU204802&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F826716%2Fbest-nikon-dslr-lenses%2F&asc%5Fcampaign=Short-Term) 
 
 [](https://www.amazon.com/Nikon-NIKKOR-Fixed-Length-Cameras/dp/B0042X9LB0?tag=hotoge-20&ascsubtag=UUhtgUeUpU204802&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F826716%2Fbest-nikon-dslr-lenses%2F&asc%5Fcampaign=Short-Term)
@@ -194,12 +245,27 @@ The latest iteration of a legendary lens, Nikon's 70-200mm zoom is great for a v
 [![Nikon 35mm on orange background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/10/Nikon-AF-FX-NIKKOR-35mm.jpg) Nikon](https://www.amazon.com/Nikon-NIKKOR-Fixed-Length-Cameras/dp/B0042X9LB0?tag=hotoge-20&ascsubtag=UUhtgUeUpU204802&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F826716%2Fbest-nikon-dslr-lenses%2F&asc%5Fcampaign=Short-Term)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 [](https://www.amazon.com/Nikon-NIKKOR-Fixed-Length-Cameras/dp/B0042X9LB0?tag=hotoge-20&ascsubtag=UUhtgUeUpU204802&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F826716%2Fbest-nikon-dslr-lenses%2F&asc%5Fcampaign=Short-Term) 
 
 ![](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/badges/2023-HOWTOGEEK-Best-Of.png) 
 
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Close 
 
 | Pros                                     | Cons             |
@@ -219,6 +285,12 @@ Close
 
 ![51M1nZ8lQoL._SL500_-2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/51m1nz8lqol-_sl500_-2.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Best Nikon DSLR Lens for Street Photography
 
 #####  Nikon AF FX NIKKOR 35mm f/1.4G
@@ -227,9 +299,6 @@ One of Nikon's best, this 35mm lens produces great images on the street or anywh
 
 [$1670 at Amazon](https://www.amazon.com/Nikon-NIKKOR-Fixed-Length-Cameras/dp/B0042X9LB0?tag=hotoge-20&ascsubtag=UUhtgUeUpU204802&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F826716%2Fbest-nikon-dslr-lenses%2F&asc%5Fcampaign=Short-Term) [Adorama](https://adorama.rfvk.net/c/156932/51926/1036?subId1=UUhtgUeUpU204802&subId2=ehtg&u=https%3A%2F%2Fwww.adorama.com%2Fnk3514u.html) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ##  Best Nikon DSLR Portrait Lens: [AF-S NIKKOR 85mm f/1.4G](https://www.nikonusa.com/en/nikon-products/product/camera-lenses/2195/af-s-nikkor-85mm-f%252f1.4g.html) 
 
 [](https://www.nikonusa.com/en/nikon-products/product/camera-lenses/2195/af-s-nikkor-85mm-f%252f1.4g.html)
@@ -237,15 +306,15 @@ One of Nikon's best, this 35mm lens produces great images on the street or anywh
 [![Nikon 85mm on grey background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/10/AF-S-NIKKOR-85mm.png) Nikon](https://www.nikonusa.com/en/nikon-products/product/camera-lenses/2195/af-s-nikkor-85mm-f%252f1.4g.html)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 [](https://www.nikonusa.com/en/nikon-products/product/camera-lenses/2195/af-s-nikkor-85mm-f%252f1.4g.html) 
 
 ![](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/badges/2023-HOWTOGEEK-Best-Of.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Close 
 
 | Pros                                 | Cons     |
@@ -260,9 +329,6 @@ Close
 
 ![85mmnikon-e1660754930260-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/85mmnikon-e1660754930260-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 Best Nikon DSLR Portrait Lens
 
 #####  AF-S NIKKOR 85mm f/1.4G
@@ -277,16 +343,15 @@ Nikon's 85mm lens produces beautifully blurred backgrounds and sharp subjects, a
 
 [![Nikon 105mm on pink and yellow background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/10/Nikon-AF-S-FX-NIKKOR-105mm.jpg) Nikon](https://www.amazon.com/Nikon-NIKKOR-105mm-Focus-Cameras/dp/B01J4S9YRI?tag=hotoge-20&ascsubtag=UUhtgUeUpU204802&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F826716%2Fbest-nikon-dslr-lenses%2F&asc%5Fcampaign=Short-Term)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 [](https://www.amazon.com/Nikon-NIKKOR-105mm-Focus-Cameras/dp/B01J4S9YRI?tag=hotoge-20&ascsubtag=UUhtgUeUpU204802&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F826716%2Fbest-nikon-dslr-lenses%2F&asc%5Fcampaign=Short-Term) 
 
 ![](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/badges/2023-HOWTOGEEK-Best-Of.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Close 
 
@@ -307,7 +372,10 @@ Related: [What Is Bokeh in Photography, and How Do You Create It?](https://youtu
 ![41AbBqy1wHL._SL500_-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/41abbqy1whl-_sl500_-1.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Best Nikon DSLR Macro Lens
 

@@ -1,7 +1,7 @@
 ---
 title: "Leading Professional Photo Studio Lights : Expertly Curated Selections"
-date: 2024-08-31T16:30:25.180Z
-updated: 2024-09-01T16:30:25.180Z
+date: 2024-09-09T06:19:02.940Z
+updated: 2024-09-10T06:19:02.940Z
 tags:
   - buying-guides
 categories:
@@ -35,6 +35,12 @@ Best Budget Photography Lighting Kit
 * [](https://www.amazon.com/Elinchrom-Lighting-D-LITE-SOFTBOX-EL20839-2/dp/B01CJWWWIY?tag=hotoge-20&ascsubtag=UUhtgUeUpU206363&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F796099%2Fbest-photography-lighting-kit%2F&asc%5Fcampaign=Commerce)  
 ![Elinchrom D-Lite RX Studio Flash to Go Kit](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/elinchrom-d-lite-rx-studio-flash-to-go-kit.png)  
 #####  Elinchrom Lighting Kit D-LITE RX 4/4 SOFTBOX  
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Best Flash Kit  
 [$750 at Amazon](https://www.amazon.com/Elinchrom-Lighting-D-LITE-SOFTBOX-EL20839-2/dp/B01CJWWWIY?tag=hotoge-20&ascsubtag=UUhtgUeUpU206363&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F796099%2Fbest-photography-lighting-kit%2F&asc%5Fcampaign=Commerce)
 * [](https://www.amazon.com/dp/B07ZTV9PZF?tag=hotoge-20&ascsubtag=UUhtgUeUpU206363&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F796099%2Fbest-photography-lighting-kit%2F&asc%5Fcampaign=Commerce)  
@@ -45,9 +51,21 @@ Best Location Photography Lighting Kit
 * [](https://adorama.rfvk.net/c/156932/51926/1036?subId1=UUhtgUeUpU206363&subId2=ehtg&u=https%3A%2F%2Fwww.adorama.com%2Fbcb3175107.html)  
 ![Broncolor Siros 800 2-Monolight Kit](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/broncolor-siros-800-2-monolight-kit.png)  
 #####  Broncolor Siros 800 L Kit 2  
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Best Photography Lighting Kit for Outdoors  
 [See at adorama](https://adorama.rfvk.net/c/156932/51926/1036?subId1=UUhtgUeUpU206363&subId2=ehtg&u=https%3A%2F%2Fwww.adorama.com%2Fbcb3175107.html)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  How to Choose a Photography Lighting Kit
 
  The lighting kit you choose will depend on how you work and what you shoot, so start by narrowing down those criteria. If you need something small you can take with you on location, for example, you won't want to carry around a massive multi-light kit. If, on the other hand, you shoot mostly studio fashion work, a bulkier setup with accessories like gels and modifiers might be perfect.
@@ -70,11 +88,10 @@ Best Photography Lighting Kit for Outdoors
  How-To Geek's product recommendations come from the same team of experts that have helped people fix their gadgets over one billion times. We only recommend the best products based on our research and expertise. We never accept payment to endorse or review a product. [Read More »](https://win-howtos.techidaily.com/resolving-unresponsive-mousepad-problems-on-windows-systems-windows-7810/) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##  Best Photography Lighting Kit Overall: [Godox SL60IID LED Light Kit](https://www.amazon.com/SL60IID-Effects-Control-Softbox-Stainless/dp/B087PG3QP5/?tag=hotoge-20&ascsubtag=UUhtgUeUpU206363&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F796099%2Fbest-photography-lighting-kit%2F&asc%5Fcampaign=Commerce) 
 
@@ -98,6 +115,12 @@ Godox
 
 ![Godox Lighting kit on a white background showing the lights, stands, travel case and various accessories](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/godox-transparent.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 Best Photography Lighting Kit Overall
@@ -108,12 +131,27 @@ Coming in at a sensible price with quality and features that don't disappoint, t
 
 [See at Amazon](https://www.amazon.com/SL60IID-Effects-Control-Softbox-Stainless/dp/B087PG3QP5/?tag=hotoge-20&ascsubtag=UUhtgUeUpU206363&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F796099%2Fbest-photography-lighting-kit%2F&asc%5Fcampaign=Commerce) 
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Best Budget Photography Lighting Kit: [Neewer 600W Battery Powered Lighting Kit](https://www.amazon.com/dp/B075RR25TV?tag=hotoge-20&ascsubtag=UUhtgUeUpU206363&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F796099%2Fbest-photography-lighting-kit%2F&asc%5Fcampaign=Commerce) 
 
 ![Neewer on pink and yellow background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/04/neewer.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Neewer
 
@@ -136,8 +174,20 @@ Neewer
 
 ![Neewer 600W Battery Powered Outdoor Studio Flash Strobe Lighting Kit](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/neewer-600w-battery-powered-outdoor-studio-flash-strobe-lighting-kit.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Best Budget Photography Lighting Kit
 
 #####  Neewer 600W Battery Powered Outdoor Studio Flash Strobe Lighting Kit
@@ -147,15 +197,15 @@ If you need lighting but don't have a big budget, Newer offers a solid, inexpens
 [See at Amazon](https://www.amazon.com/dp/B075RR25TV?tag=hotoge-20&ascsubtag=UUhtgUeUpU206363&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F796099%2Fbest-photography-lighting-kit%2F&asc%5Fcampaign=Commerce) 
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##  Best Flash Kit: [Elinchrom Lighting Kit D-LITE RX 4/4 SOFTBOX](https://www.amazon.com/Elinchrom-Lighting-D-LITE-SOFTBOX-EL20839-2/dp/B01CJWWWIY?tag=hotoge-20&ascsubtag=UUhtgUeUpU206363&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F796099%2Fbest-photography-lighting-kit%2F&asc%5Fcampaign=Commerce) 
 
 ![Elichrom ELC on green background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/04/elinchrom.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 Elinchrom
 
 | Pros                                                          | Cons                                              |
@@ -175,12 +225,20 @@ Elinchrom
 
 ![Elinchrom D-Lite RX Studio Flash to Go Kit](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/elinchrom-d-lite-rx-studio-flash-to-go-kit.png) 
 
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 Best Flash Kit
 
 #####  Elinchrom Lighting Kit D-LITE RX 4/4 SOFTBOX
@@ -189,9 +247,6 @@ This flash kit is a great entry point into the world of pro flash photography at
 
 [$750 at Amazon](https://www.amazon.com/Elinchrom-Lighting-D-LITE-SOFTBOX-EL20839-2/dp/B01CJWWWIY?tag=hotoge-20&ascsubtag=UUhtgUeUpU206363&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F796099%2Fbest-photography-lighting-kit%2F&asc%5Fcampaign=Commerce) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ##  Best Location Photography Lighting Kit: [Westcott FJ400 Strobe 1-Light Backpack Kit](https://www.bhphotovideo.com/c/product/1728999-REG/westcott%5F4712s%5Ffj400%5Fstrobe%5F1%5Flight%5Fbackpack.html/BI/22163/KBID/28708/SID/UUhtgUeUpU206363) 
 
 ![Westcott on blue and purple background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/04/westcott.jpg) 
@@ -215,11 +270,14 @@ Westcott
 
 ![Westcott FJ400 Strobe 1-Light Backpack Kit](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/westcott-fj400-strobe-1-light-backpack-kit.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Best Location Photography Lighting Kit
 
 #####  Westcott FJ400 Strobe 1-Light Backpack Kit 
@@ -228,15 +286,15 @@ Westcott has a high-quality pro lighting option that's easy to take with you.
 
 [See at B&H Photo Video](https://www.bhphotovideo.com/c/product/1728999-REG/westcott%5F4712s%5Ffj400%5Fstrobe%5F1%5Flight%5Fbackpack.html/BI/22163/KBID/28708/SID/UUhtgUeUpU206363) [$880 at Amazon](https://www.amazon.com/dp/B07ZTV9PZF?tag=hotoge-20&ascsubtag=UUhtgUeUpU206363&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F796099%2Fbest-photography-lighting-kit%2F&asc%5Fcampaign=Commerce) 
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Best Photography Lighting Kit for Outdoors: [Broncolor Siros 800 2-Monolight Kit](https://adorama.rfvk.net/c/156932/51926/1036?subId1=UUhtgUeUpU206363&subId2=ehtg&u=https%3A%2F%2Fwww.adorama.com%2Fbcb3175107.html) 
 
 ![Broncolor kit on grey background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/04/broncolor.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Broncolor
 
@@ -257,6 +315,12 @@ Broncolor
 
 ![Broncolor Siros 800 2-Monolight Kit](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/broncolor-siros-800-2-monolight-kit.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 Best Photography Lighting Kit for Outdoors
@@ -270,15 +334,15 @@ This lighting kit from Broncolor has everything you need to set up a pro studio 
 ## FAQ
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### How do I set up photography lighting?
 
  The setup process for your photography lighting ultimately depends on the kind of lights you have, what you're trying to shoot, and where you're shooting it. For instance, if you have a softbox, you may want to place it close to your subject for lighter shadows---perfect for a head and shoulders portrait. For a full picture, it's best to consult user manuals and tips for the specific type of equipment you're using.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ### Do I want to use light reflectors with my photography lighting?
 
  Reflectors are useful for balancing and redirecting light sources in your environment. If you want to reduce the shadows that result from a single, prominent light source, reflectors are a solid go-to option. If you're after hard lighting and strong shadows to create contrasting elements, you can probably do without reflectors.
@@ -287,9 +351,6 @@ This lighting kit from Broncolor has everything you need to set up a pro studio 
 
  Lighting is important in photography for a number of reasons; it changes how we view colors, creates or snuffs shadows, sets moods, and reveals details otherwise muddled by darkened edges and shaded crevices. Light is one of the most versatile tools in all of photography, and learning its ins and outs will improve every shot you take.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Can I use photography lighting to fake natural light?
 
  Absolutely. It may not look 100% accurate, but mimicking natural light for a photo is easy enough with the right tools. You'll want [umbrellas and softboxes](https://www.bhphotovideo.com/explora/photography/buying-guide/guide-choosing-umbrellas-and-softboxes) to create the largest well-lit area you can (this will also help eliminate hard shadows).
