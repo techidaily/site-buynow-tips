@@ -1,7 +1,7 @@
 ---
 title: "The Featherlight Game Changer: A Deep Dive Review Into the Exceptional Battery Life & Mobility of the LG Gram 15.6 Laptop (2018 Edition)"
-date: 2024-09-09T06:19:00.790Z
-updated: 2024-09-10T06:19:00.790Z
+date: 2024-09-14T08:22:42.378Z
+updated: 2024-09-14T20:41:30.852Z
 categories:
   - BestProducts
 description: "This Article Describes The Featherlight Game Changer: A Deep Dive Review Into the Exceptional Battery Life & Mobility of the LG Gram 15.6 Laptop (2018 Edition)"
@@ -17,12 +17,6 @@ thumbnail: https://thmb.techidaily.com/11bd493dd0576b5128c521759756af9ef04692489
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/SBirmVys72S63lQd4lWukO_gXRw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Zach Sweat
 
  What We Like
@@ -43,22 +37,10 @@ Lifewire / Zach Sweat
 
 3.3
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Alienware Aurora R9
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/BiBvvSXCg5l15o1T-fJmijAM9PQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Zach Sweat
 
 [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Falienware-aurora-r9-gaming-desktop-intel-core-i7-9700-16gb-memory-nvidia-geforce-rtx-2080-super-1tb-hdd-512gb-ssd-white-lunar-light%2F6373818.p%3FskuId%3D6373818) [View On Dell](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.dell.com%2Fen-us%2Fshop%2Fcty%2Fpdp%2Fspd%2Falienware-aurora-r9-desktop)
@@ -144,11 +126,12 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Gaming: From ok to amazing, if you have the cash**
 
  Much like performance in everyday tasks, your performance in gaming is based on what hardware your Aurora features. You can go all the way up to a monsterous gaming rig with a GTX 2080, or all the way down to our little base model with a GTX 1650, so it’s up to you how much performance you’re willing to pay for.
@@ -178,17 +161,12 @@ Lifewire / Zach Sweat
  Although true audiophiles will still want to stick with a DAC, or digital-to-analog converter, the Aurora R9 packs in pretty decent audio options for most users.
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Network: Solid Ethernet, average Wi-Fi**
 
  In the age of the internet, network speeds and performance are paramount for most users, especially so if you’re a gamer. This fact not only applies to those who love online multiplayer games, but also those who prefer singleplayer since most people now download their software online.
@@ -206,25 +184,20 @@ Lifewire / Zach Sweat
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wMnVqt6RV24C1Vfncnf2J3E0fAg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-15-fe70fca5ffd04da6abd8c0ef8f026eef-f6d5eaf9efcb461a902fc750a192dd0c.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: Windows 10 with some bloatware and extras**
 
  Whether or not you love Windows 10, the somewhat infamous OS is what you’ll inevitably get from Dell when you purchase an Aurora R9\. If you’re new to the system, it takes a bit of getting used to, but it’s simple enough for everyone to navigate once you get going.
@@ -237,12 +210,6 @@ Lifewire / Zach Sweat
 
  For RGB fans, the AlienFX hardware and software provides tons of potential combinations with up to 16.8 million color options. Users can take full control of the external RGB along the front and sides of the tower in addition to supported peripherals. Themes you create can also be saved and assigned to specific games, which is a pretty sweet perk.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Not the best bang for your buck**
 
  PC gaming is notoriously expensive to initially get into, but the prices of many components have continued to dwindle over the decades. Although the old adage that building your own computer from scratch is cheaper still holds true, prebuilt computers have also become much more comparable. So how does this Alienware match up?
@@ -274,11 +241,12 @@ Lifewire / Zach Sweat
  With a distinct design that only Alienware can pull off, the Aurora R9 is a futuristic-looking prebuilt PC with a lot of good, but a bit of extra cost. If you love Alienware or the look of the R9, it’s not a bad option, but it’s certainly not the most frugal.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Aurora R9
@@ -298,8 +266,6 @@ Lifewire / Zach Sweat
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -309,38 +275,18 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-expert-insights-efficiently-adding-subtitles-to-vimeo-videos/"><u>[New] 2024 Approved  Expert Insights  Efficiently Adding Subtitles to Vimeo Videos</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-light-up-your-media-select-5-excellent-apps/"><u>[New] 2024 Approved  Light Up Your Media  Select 5 Excellent Apps</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-stepwise-approach-to-voice-recognition-integration-in-powerpoint-presentations/"><u>[New] The Stepwise Approach to Voice Recognition Integration in PowerPoint Presentations</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-cultivating-eco-diversity-in-metropolitan-land-use-for-2024/"><u>[Updated] Cultivating Eco-Diversity in Metropolitan Land Use for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-get-thousands-of-youtube-views-in-30-days-for-2024/"><u>[Updated] How To Get Thousands of YouTube Views in 30 Days for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-top-30-webcams-built-for-windows-os/"><u>[Updated] In 2024, Top 30 Webcams Built for Windows OS</u></a></li>
-<li><a href="https://techtrends.techidaily.com/a-comprehensive-fix-to-solve-the-ui-800-3-problem-on-netflix-platform/"><u>A Comprehensive Fix to Solve the 'UI-800-3' Problem on Netflix Platform</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apeman-c450-budget-dashcam-in-depth-review-for-savvy-shoppers/"><u>Apeman C450 Budget Dashcam: In-Depth Review for Savvy Shoppers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-the-sony-xbr65x850f-premium-features-for-a-competitive-price/"><u>Comprehensive Analysis of the Sony XBR65X850F: Premium Features for a Competitive Price</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-why-the-samsung-galaxy-tab-a-2er-2020-falls-short-with-one-crucial-feature/"><u>Comprehensive Analysis: Why the Samsung Galaxy Tab A (2Er 2020) Falls Short with One Crucial Feature</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-ring-video-doorbell-pros-brilliant-capabilities/"><u>Comprehensive Evaluation of the Ring Video Doorbell Pro's Brilliant Capabilities</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-huawei-mediapad-m5-evaluation-emphasizing-visuals-and-audio-experience/"><u>Comprehensive Huawei MediaPad M5 Evaluation: Emphasizing Visuals & Audio Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-hitman-3-masterpiece-finale-unveiled/"><u>Comprehensive Review of Hitman 3 - Masterpiece Finale Unveiled</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-experiencing-quality-in-every-aspect-of-the-lenovo-ideapad-series/"><u>Comprehensive Review: Experiencing Quality in Every Aspect of the Lenovo IdeaPad Series</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/effective-storytelling-through-youtube-and-facebook-for-2024/"><u>Effective Storytelling Through YouTube and Facebook for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-unbrick-a-dead-oppo-find-x6-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Oppo Find X6 | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-color-consistency-comparing-srgb-and-rgb-formats/"><u>In 2024, Color Consistency  Comparing Srgb and Rgb Formats</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-the-top-10-apple-iphone-13-emualtors-for-windows-mac-and-android-drfone-by-drfone-ios/"><u>In 2024, The Top 10 Apple iPhone 13 Emualtors for Windows, Mac and Android | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/no1-video-recorders-headset-display-enhanced-for-2024/"><u>No.1 Video Recorders  Headset Display Enhanced for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/post-resurrecting-made-simple-for-2024/"><u>Post Resurrecting Made Simple for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-of-the-moto-g-stylus-a-cost-effective-choice-for-enthusiasts-seeking-an-inbuilt-pen-functionality/"><u>Review of the Moto G Stylus - A Cost-Effective Choice for Enthusiasts Seeking an Inbuilt Pen Functionality</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-communication-on-a-budget-with-tangos-free-chat-calls-and-more/"><u>Revolutionize Your Communication on a Budget With Tango’s Free Chat, Calls, and More!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/should-you-invest-in-spotifys-elite-membership/"><u>Should You Invest in Spotify's Elite Membership?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/teac-pd-301-cd-player-review/"><u>Teac PD-301 CD Player Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-all-new-samsung-ru7300-a-revolutionary-leap-in-4k-uhd-smart-tv-technology-reviewed/"><u>The All-New Samsung RU7300: A Revolutionary Leap in 4K UHD Smart TV Technology – Reviewed!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-best-value-for-your-wallet-a-detailed-look-at-the-topmate-c30s-laptop-cooling-pad/"><u>The Best Value for Your Wallet: A Detailed Look at the TopMate C30ˈs Laptop Cooling Pad</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-definitive-comparison-of-apple-airtags-ideal-for-those-with-an-iphone/"><u>The Definitive Comparison of Apple AirTags - Ideal For Those With an iPhone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-verdict-on-huion-inspiroy-g10t-drawing-pad-top-notch-quality-tested/"><u>The Ultimate Verdict on Huion Inspiroy G10T Drawing Pad - Top-Notch Quality Tested!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-unbeatable-combination-of-power-and-strength-with-sunbritetvs-55-outdoor-4k-hd-set/"><u>The Unbeatable Combination of Power and Strength with SunBriteTV's 55 Outdoor 4K HD Set</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/transform-your-workflow-essential-tips-for-taskbar-users/"><u>Transform Your Workflow: Essential Tips for Taskbar Users</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-unveiling-the-power-of-dji-mavic-air-2-a-comprehensive-overview/"><u>Ultimate Guide: Unveiling the Power of DJI Mavic Air 2 - A Comprehensive Overview</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/uncovering-the-essence-of-obss-screen-capture-features/"><u>Uncovering the Essence of OBS's Screen Capture Features</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/understanding-youtube-tvs-strength-key-membership-points/"><u>Understanding YouTube TV's Strength – Key Membership Points</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/why-you-should-consider-switching-to-chatgpt-plus-a-closer-look-at-its-value/"><u>Why You Should Consider Switching to ChatGPT Plus - A Closer Look at Its Value</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-staying-pure-hearted-amidst-the-ruse-of-ratings-and-likes-for-2024/"><u>[New] Staying Pure-Hearted Amidst the Ruse of Ratings and Likes for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-essential-methods-for-documenting-overwatch-games/"><u>[Updated] 2024 Approved Essential Methods for Documenting Overwatch Games</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-interactive-stories-in-real-time-with-fb-screen-features/"><u>[Updated] 2024 Approved Interactive Stories in Real-Time with FB Screen Features</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/complete-step-by-step-guide-for-acer-monitor-driver-installation/"><u>Complete Step-by-Step Guide for Acer Monitor Driver Installation</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/crafting-captivating-reels-musical-integration-strategies/"><u>Crafting Captivating Reels Musical Integration Strategies</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-speed-and-sleek-design-in-wi-fi-6-with-a-thorough-review-of-the-netgear-nighthawk-rax80/"><u>Discovering Speed and Sleek Design in Wi-Fi 6 with a Thorough Review of the Netgear Nighthawk RAX80</u></a></li>
+<li><a href="https://fox-that.techidaily.com/escaping-the-midnight-mode-troubleshooting-techniques-for-your-iphones-darkness-saga/"><u>Escaping The Midnight Mode: Troubleshooting Techniques for Your iPhone's Darkness Saga</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-oppo-a18-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Oppo A18 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-samsung-un65nu8000fxza-is-its-premium-cost-justified/"><u>In-Depth Analysis of Samsung UN65NU8000FXZA - Is Its Premium Cost Justified?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/inside-the-compact-canon-sx720hs-superzoom-photo-wonder/"><u>Inside the Compact Canon SX720HS Superzoom Photo Wonder</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lg-gram-17-review/"><u>LG Gram 17 Review</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-motorola-edge-40-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Motorola Edge 40 Phones</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/zoom-down-to-size-canons-powerful-sx420-compact-camera-review/"><u>Zoom Down to Size: Canon’s Powerful SX420 Compact Camera Review</u></a></li>
 </ul></div>
+

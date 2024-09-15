@@ -1,7 +1,7 @@
 ---
 title: "Review: Why the Samsung UN65NU8000FXZA Feels Mediocre for Its Cost"
-date: 2024-08-09T00:55:51.340Z
-updated: 2024-08-10T00:55:51.340Z
+date: 2024-09-12T16:43:46.874Z
+updated: 2024-09-14T23:24:59.339Z
 categories:
   - BestProducts
 description: "This Article Describes Review: Why the Samsung UN65NU8000FXZA Feels Mediocre for Its Cost"
@@ -15,9 +15,6 @@ thumbnail: https://thmb.techidaily.com/0e439fcdc7bdbc260e3f597d59e8a26c3f2c08b51
 
 ## Bose Frames Audio Sunglasses
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Bose Frames](https://www.lifewire.com/thmb/4mVgayPIEia4VY4AvaJAoHfTyAc=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_01LW4051794-1-5af9a422af2d4d92b187e87b1bcbb1e7.jpg)
 
 Lifewire / Yoona Wagener
@@ -43,14 +40,8 @@ Lifewire / Yoona Wagener
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ## Bose Frames Audio Sunglasses
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Bose Frames](https://www.lifewire.com/thmb/BuvZl2QelYzm4BKj83DqAyy0SR8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_01LW4051794-1-5af9a422af2d4d92b187e87b1bcbb1e7.jpg)
 
 Lifewire / Yoona Wagener
@@ -79,9 +70,6 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Sleek, but not as refined as you’d expect**
 
  Bose Frames are available in two styles: Alto and Rondo. The Alto option is larger, with lenses that measure about two inches across, a distance of 0.7 inches between the lenses, and an overall length (from the lenses to the end of the arms) of 6.4 inches.
@@ -100,6 +88,13 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Comfort: Wearable but slightly heavy**
 
  The Bose Frames offer a fairly comfortable fit. While they’re not at all bulky or hefty in the hands, we did notice that wearing them for over an hour did start to feel heavy on the face. We experienced some discomfort particularly in the nose bridge area where the frames pressed into the skin, but this is not an uncommon fit issue with regular sunglasses or glasses.
@@ -109,6 +104,13 @@ Lifewire / Yoona Wagener
  In terms of overall lens quality, we appreciated how rugged they were. They picked up smudges, but scratching was a non-issue even when we dropped the frames on a hardwood floor and left them loose in a bag with keys.
 
  Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Sound Quality: Warm but not immersive**
 
@@ -122,9 +124,6 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ## **Software: An app that doesn’t do much**
 
  The Bose Frames require setup through the Bose Connect app, which is available for both[Android](https://www.lifewire.com/what-is-google-android-1616887) and[iOS](https://www.lifewire.com/what-is-ios-1994355) devices. It functions first and foremost as a way to pair and manage devices your connecting devices. Bose says you can establish up to eight device connections, but only one connection can be used at a time.
@@ -145,9 +144,6 @@ Lifewire / Yoona Wagener
 
  While the Bose AR functionality is a sort of hidden perk of these frames, it still feels like its very much in the early stages. It’s best to temper any high expectations at this point, but the quality of experience and offerings are likely to expand with further development.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ## **Price** :**Not exorbitant compared to smart sunglasses**
 
  Both the Bose Rondo and Alto frames are priced at $199.99 MSRP. While this is a bit pricey for a regular sunglasses, these obviously have a lot of additional features. But the price would feel even fairer if the lenses were polarized or could be swapped out with prescription lenses.
@@ -180,6 +176,13 @@ Lifewire / Yoona Wagener
 * [Bose SoundSport Wireless Headphones](https://www.lifewire.com/bose-soundsport-wireless-headphones-review-4589230)
 * [Bose Noise Cancelling Headphones 700](https://www.lifewire.com/bose-noise-cancelling-headphones-700-review-4770549)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Frames Audio Sunglasses
@@ -202,11 +205,27 @@ Lifewire / Yoona Wagener
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/updated-unlocking-the-full-potential-of-googles-podcast-tools/"><u>[Updated] Unlocking the Full Potential of Google's Podcast Tools</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/acoustic-imprinting-pc-noises-logged-for-2024/"><u>Acoustic Imprinting PC Noises Logged for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/conquer-the-game-fixing-dev-error-5573-in-warzone-for-console-and-pc-users/"><u>Conquer the Game: Fixing Dev Error 5573 in Warzone for Console & PC Users</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/expert-analysis-the-ultimate-guide-to-the-samsung-qn55q6f-stunning-4k-uhd-smart-television/"><u>Expert Analysis: The Ultimate Guide to the Samsung QN55Q6F - Stunning 4K UHD Smart Television</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/hp-scanjet-driver-updates-available-compatible-with-windows-7-8-and-11-install-today/"><u>HP Scanjet Driver Updates Available: Compatible with Windows 7, 8, and 11 – [Install Today!]</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-inception-filming-review-examination/"><u>In 2024, Inception Filming Review Examination</u></a></li>
+<li><a href="https://win-able.techidaily.com/navigate-through-naraka-bladesport-lag-proven-fixes-and-advice/"><u>Navigate Through Naraka Bladesport Lag: Proven Fixes and Advice</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-and-solving-win-os-device-errors/"><u>Navigating and Solving Win OS Device Errors</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/secrets-avoiding-hd-video-errors/"><u>Secrets: Avoiding HD Video Errors</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-reviews-for-the-netgear-nighthawk-c7000-leading-the-pack-in-wireless-modem-technology/"><u>Top Reviews for the Netgear Nighthawk C7000 - Leading the Pack in Wireless Modem Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unpacking-the-power-a-comprehensive-look-at-the-chargetech-27000mah-battery-pack-reviews/"><u>Unpacking the Power: A Comprehensive Look at the ChargeTech 27000mAh Battery Pack Reviews</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-elegance-and-performance-a-closer-look-at-the-apple-imacs-27-4k-display-technology/"><u>Unveiling Elegance & Performance: A Closer Look at the Apple iMac's 27 4K Display Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-be6apc-backup-system-robust-battery-surge-guard-with-convenient-usb-charging-feature/"><u>Unveiling the BE6#APC Backup System: Robust Battery Surge Guard with Convenient USB Charging Feature</u></a></li>
+</ul></div>
+

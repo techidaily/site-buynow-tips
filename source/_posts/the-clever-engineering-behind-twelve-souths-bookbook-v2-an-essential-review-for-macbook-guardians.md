@@ -1,7 +1,7 @@
 ---
 title: "The Clever Engineering Behind Twelve South's BookBook V2: An Essential Review for MacBook Guardians"
-date: 2024-08-09T00:55:52.571Z
-updated: 2024-08-10T00:55:52.571Z
+date: 2024-09-09T17:21:35.436Z
+updated: 2024-09-15T01:43:07.612Z
 categories:
   - BestProducts
 description: "This Article Describes The Clever Engineering Behind Twelve South's BookBook V2: An Essential Review for MacBook Guardians"
@@ -13,14 +13,8 @@ thumbnail: https://thmb.techidaily.com/9e992eeefd8e84a59a07a57a0f98ead45d9f4acef
 
 4.9
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Apple MacBook Pro 13-inch (M1, 2020)
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![MacBook Pro 13-inch](https://www.lifewire.com/thmb/wgDqqSKgbk3vMOZODaC0J9eWK-I=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Macbook_Pro_M1_2020_04-4d24391cc1a74240a35da5017f4f6a79.jpg)
 
 Alice Newcome-Beill / Lifewire
@@ -44,15 +38,8 @@ Alice Newcome-Beill / Lifewire
 
 4.9
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ## Apple MacBook Pro 13-inch (M1, 2020)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![MacBook Pro 13-inch](https://www.lifewire.com/thmb/TqAmFtyGvc2unYMhCqBwCNA1p1o=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Macbook_Pro_M1_2020_04-4d24391cc1a74240a35da5017f4f6a79.jpg)
 
 Alice Newcome-Beill / Lifewire
@@ -93,9 +80,6 @@ _We purchased the MacBook Pro_   _so our reviewer could test out the laptop. Kee
 
  The MacBook Pro features two Thunderbolt/USB 4 ports that support charging, DisplayPort, Thunderbolt 3, and USB 3.1 Gen 2\. If you want additional slots like an SD card reader of USB ports, you’ll need to use a USB-C hub.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## Keyboard: A great typing and productivity experience
 
  If you've used a MacBook keyboard recently, you'll know what to expect here as they still use the scissor-type switches. The keys are a backlit chiclet-style design with low travel distance. I initially thought that the keyboard might be too crowded, and while making the leap from a[17-inch laptop](https://www.lifewire.com/best-17-inch-laptops-832683) layout to a 13-inch initially seemed pretty drastic, my fingers quickly acclimated to the smaller layout without too many missteps.
@@ -103,6 +87,19 @@ _We purchased the MacBook Pro_   _so our reviewer could test out the laptop. Kee
  One key addition is so small that you'd miss it unless the touch bar deliberately pointed it out when you needed to log in. That is the new fingerprint sensor planted on the top-right corner of the keyboard that allows you to quickly log in, or use Apple Pay without the need for a password. While the functionality ends there, it does thankfully work quite well. I never encountered any issues trying to get the scanner to read, and using it quickly became second nature.
 
 ![MacBook Pro 13-inch](https://www.lifewire.com/thmb/lK3rf00vNHfwVLaFF5D2swcqn_k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Macbook_Pro_M1_2020_02-a8fa9e03fafd477fb2423dfa9453b1bb.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Alice Newcome-Beill / Lifewire
 
@@ -123,6 +120,13 @@ _We purchased the MacBook Pro_   _so our reviewer could test out the laptop. Kee
  The display can hit an impressive 500 nits of brightness, features rich, accurate colors, and great viewing angles. Another noteworthy improvement is the remarkably slim bezel on the 13-inch display, which lends a slick futuristic look to the laptop and gives you just a little more usable real-estate on your screen without increasing the size of the device itself.
 
 ![MacBook Pro 13-inch](https://www.lifewire.com/thmb/-G_75srm3Qddt1nvHSP6rMO7yyc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Macbook_Pro_M1_2020_05-10007afca69547238297d4135852b975.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Alice Newcome-Beill / Lifewire
 
@@ -155,13 +159,24 @@ _We purchased the MacBook Pro_   _so our reviewer could test out the laptop. Kee
  This shift represents an effort on the part of Apple to prove that it can once again innovate in the realm of computing now that it has more control over the overall architecture being used in its systems. While this new silicon boasts some truly impressive boosts to performance overall, there is a small drawback in that some apps that you lean on for productivity may not be fully optimized to work with the M1, even with the improvements brought by Big Sur.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Battery: This fruit has juice
 
  Another of the more noticeable improvements to the MacBook Pro is the extended battery life. I’m happy to report that in my testing, running a[4K](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) movie at maximum brightness on loop, it took the MacBook a little over 18 hours to deplete its charge. This makes Apple's latest laptop one of the best laptops for battery life currently available. What's even more amazing is how quickly it can be topped off. From being completely drained, we were able to boot up and get fully charged using the included adapter in just under an hour and a half.
 
  I was surprised to find the MacBook more than holding its own in gaming benchmarks, matching or exceeding the performance offered by many Windows ultrabooks like the HP Spectre x360.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Software: Big Sur optimized better than ever
 
@@ -175,10 +190,6 @@ _We purchased the MacBook Pro_   _so our reviewer could test out the laptop. Kee
 
  For instance, an HP x360 Spectre with a similar performance configuration will cost around the same as an M1 MacBook. This isn't carte blanche to just bin the MacBook you bought last year but this year's MacBook represents the best value we've seen in an Apple laptop for some time.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![MacBook Pro 13-inch](https://www.lifewire.com/thmb/laPPg5mKf354wXXqoaU3Vz_jRuM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Macbook_Pro_M1_2020_04-4d24391cc1a74240a35da5017f4f6a79.jpg)
 
  Alice Newcome-Beill / Lifewire
@@ -202,17 +213,18 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  With the smattering of performance improvements that Apple has brought to the table this year, it begs the question, should you upgrade? While there are some significant changes to last year's model, you won't be missing out on much if you've bought a new MacBook in the past year or two. However, if you've been biding your time for several generations, waiting for a substantial upgrade for your MacBook Pro, we can unequivocally say that the time is now.
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Apple 16-inch MacBook Pro](https://www.lifewire.com/best-laptops-to-buy-4043650)
 * [Apple 13-inch MacBook Air (2020)](https://www.lifewire.com/best-laptops-to-buy-4043650)
 * [Apple iPad Air 4](https://www.lifewire.com/apple-ipad-air-4-review-5091874)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  MacBook Pro 13-inch (M1, 2020)
@@ -231,14 +243,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Battery Capacity  58.2 Wh
 * Ports  2x Thunderbolt 4 (USB-C), 3.5mm headphone jack
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -246,3 +255,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-discovering-the-best-in-screen-recording-for-2024/"><u>[New] Discovering the Best in Screen Recording for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-pixel-capture-reimagined/"><u>[New] In 2024, Pixel Capture Reimagined</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-screen-capture-central-apowsort-vs-competitors-explored/"><u>[New] In 2024, Screen Capture Central Apowsort vs Competitors Explored</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitters-visuals-on-the-social-media-giant-fb/"><u>[New] In 2024, Twitters' Visuals on the Social Media Giant FB</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-navigating-tiktok-lives-as-a-virtual-attendee/"><u>[Updated] 2024 Approved Navigating TikTok Lives as a Virtual Attendee</u></a></li>
+<li><a href="https://media-tips.techidaily.com/ad-free-streaming-verizon-introduces-bundle-with-netflix-and-amcplus/"><u>Ad-Free Streaming: Verizon Introduces Bundle with Netflix & AMC+</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-hp-scanjet-drivers-download-guide-compatible-with-windows-1087/"><u>Latest HP Scanjet Drivers Download Guide - Compatible with Windows 10/8/7</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/real-time-unfollowers-detection-on-insta-for-2024/"><u>Real-Time Unfollowers Detection on Insta for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unlocking-cost-effective-clouds-for-the-budget-conscious-for-2024/"><u>Unlocking Cost-Effective Clouds for the Budget-Conscious for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-secrets-of-the-apple-iphone-15-pro-in-depth-hands-on-testing-and-review/"><u>Unveiling the Secrets of the Apple iPhone 15 Pro: In-Depth Hands-On Testing and Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/webex-video-conferencing-feature-breakdown-pros-vs-cons-for-remote-collaboration/"><u>Webex Video Conferencing Feature Breakdown: Pros vs Cons for Remote Collaboration</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/yokus-island-express-an-unconventional-journey-through-fantastic-quests/"><u>Yoku's Island Express: An Unconventional Journey Through Fantastic Quests</u></a></li>
+</ul></div>
+

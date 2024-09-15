@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis and Review of Netgear's AC1200 Wireless Range Expander EX6200
-date: 2024-08-09T00:55:49.392Z
-updated: 2024-08-10T00:55:49.392Z
+date: 2024-09-13T05:48:27.531Z
+updated: 2024-09-14T22:54:18.859Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis and Review of Netgear's AC1200 Wireless Range Expander EX6200
@@ -13,14 +13,8 @@ thumbnail: https://www.lifewire.com/thmb/TmDOFeGHXlA2eEwc65iiUVoWGUY=/400x300/fi
 
 3
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Netgear C3000 Cable Modem Router
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Netgear C3000](https://www.lifewire.com/thmb/r2nn71mNtfamPTZ4ju27N_m1tIk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-4_1-3b77a598c3cd4836b8b632578b3b437e.jpg)
 
 Lifewire / Bill Thomas
@@ -79,16 +73,10 @@ Lifewire / Bill Thomas
 
  In the back you’ll find the ports, which we’ll go into a bit later, and in the front you’ll find all the status lights. They’re not too bright, but you should still be able to check the status of your network at a glance.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Netgear C3000](https://www.lifewire.com/thmb/vcoYESWM5JJLo3l3KiPZd0A4uEU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_4-b3293ad0ed2b4bffb51f8e5f71f1914d.jpg)
 
  Lifewire / Bill Thomas
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Netgear C3000](https://www.lifewire.com/thmb/_9ERrc4mSXFjpZAVMAwwqbfpLwM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_3-2f5e1e38512d41019430d063e63b7f9b.jpg)
 
  Lifewire / Bill Thomas
@@ -97,9 +85,6 @@ Lifewire / Bill Thomas
 
  Lifewire / Bill Thomas
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Netgear C3000](https://www.lifewire.com/thmb/7eGgp_5LZf8d-PMDe578GB4_hEI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_5-7c5c666203504b9ab932de0b70f14522.jpg)
 
  Lifewire / Bill Thomas
@@ -109,24 +94,22 @@ Lifewire / Bill Thomas
  Setting up a cable modem can be a complicated and time consuming process. Not so with the Netgear C3000—when we set it up it was almost plug-and-play. It could be because this modem isn’t the most complex piece of hardware, but it was ready for activation_seconds_ after we plugged it in. We connected via ethernet, launched a browser and within minutes we activated our 250 Mbps Xfinity service. We’re not sure if our experience was a fluke, but we were pleasantly surprised.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Connectivity: Pretty limited
 
  On the back of the Netgear C3000, you’ll find two Gigabit[Ethernet ports](https://www.lifewire.com/introduction-to-ethernet-817550) , a USB 2.0, and a Coaxial input. For a modem in this price range, this is pretty much what we expected, but it would have been nice to see more Gigabit Ethernet ports.
 
  There is also Wi-Fi, but it’s only a single antenna—that means no dual-band Wi-Fi here. You’ll be limited to 2.4 GHz and the speed is only rated at N300, which is an extremely dated standard.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Netgear C3000](https://www.lifewire.com/thmb/vmrfrWyvGROwVpR7Y2UQmaZOPEU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_6-e34bd6e4000f49c3b6a0d1653d23f6ff.jpg)
 
  Lifewire / Bill Thomas
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## Network Performance: Keep your expectations low
 
  This device has an N300 network rating, which means your speeds should top out at 300Mbps on a single band. But your actual network speed won’t reach that. In testing the wireless performance of the Netgear C3000, our wireless speed topped out at 54 Mbps just three feet from the modem. We pay for a 250 Mbps plan, so we were getting about 20% of our rated speed.
@@ -134,6 +117,13 @@ Lifewire / Bill Thomas
  The range was also an issue—in short, this will not suffice if you live in a mid-sized home or bigger. Just 300 feet away, behind a wall and a staircase, our wireless speeds dipped all the way down to 15 Mbps. This doesn’t really matter if you live in a studio apartment, but for everyone else, we’d recommend combining this modem with a[separate wireless router](https://www.lifewire.com/best-wireless-routers-4038590) .
 
  There is a silver lining: the wired performance is reliable. When connected this way, we consistently got our rated 250 Mbps speeds with little to no drops. We spent some time playing The Division 2 while hardwired into the Netgear C3000 and didn’t run into any lag. That’s surprising given that a 8x4 DOCSIS 3.0 modem is capable of just 343 Mbps download speeds. But Netgear delivered where it truly counts: modem performance.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Software: Pretty standard and easy to use
 
@@ -162,8 +152,12 @@ Lifewire / Bill Thomas
  The Netgear C3000 first hit the market more than five years ago, and it might have been worth the price of admission back then. These days, it’s hard to justify spending so much cash on a dated product. The modem gets the job done, but as soon as you rely on the built-in wireless router, you’re going to be in for a disappointment.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Netgear Nighthawk C7000](https://www.lifewire.com/netgear-nighthawk-c7000-review-4686068)
@@ -188,14 +182,11 @@ Lifewire / Bill Thomas
 * Chipset  Broadcom BCM43227
 * Parental Controls  Yes
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -203,3 +194,23 @@ Lifewire / Bill Thomas
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-craft-professional-edits-with-story-remix-in-windows-photos-app/"><u>[Updated] In 2024, Craft Professional Edits with Story Remix in Windows Photos App</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-perfecting-gameplay-capture-on-the-newest-windows-11/"><u>2024 Approved Perfecting Gameplay Capture on the Newest Windows 11</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-newest-nvidia-display-drivers-for-your-windows-1178-systems-today/"><u>Get the Newest Nvidia Display Drivers for Your Windows 11/7/8 Systems Today</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-discover-the-best-photo-frame-software/"><u>In 2024, Discover the Best Photo Frame Software</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-iphone-se-2020-without-passcode-easily-drfone-by-drfone-ios/"><u>In 2024, Unlock iPhone SE (2020) Without Passcode Easily | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/key-points-pre-shopping-considerations-for-tvs/"><u>Key Points: Pre-Shopping Considerations for TVs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-gameplay-latency-discover-how-the-asus-rog-rapture-gt-ax11000-dominates-speed-and-gaming-features/"><u>Mastering Gameplay Latency? Discover How the Asus ROG Rapture GT-AX11000 Dominates Speed and Gaming Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigate-with-ease-selecting-the-perfect-mice-for-your-mac-this-year/"><u>Navigate with Ease: Selecting the Perfect Mice for Your Mac This Year</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-the-world-of-consoles-5-must-know-tips-before-buying-one/"><u>Navigating the World of Consoles: 5 Must-Know Tips Before Buying One</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-the-challenge-of-windows-exception-breakpoint-error/"><u>Overcoming the Challenge of Windows Exception Breakpoint Error</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/overwatch-game-review-a-captivating-blend-of-strategy-and-cooperation/"><u>Overwatch Game Review: A Captivating Blend of Strategy and Cooperation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/poweradd-pilot-pro2-review/"><u>POWERADD Pilot Pro2 Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ps5-face-off-how-the-ps5-slim-stacks-up-against-its-bigger-brother-the-original-ps5/"><u>PS5 Face-Off: How the PS5 Slim Stacks Up Against Its Bigger Brother, The Original PS5</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/take-your-editing-to-the-next-level-5-final-cut-pro-hacks-for-2024/"><u>Take Your Editing to the Next Level 5 Final Cut Pro Hacks for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-essential-tutorial-for-making-memes-on-9gag/"><u>The Essential Tutorial for Making Memes on 9GAG</u></a></li>
+</ul></div>
+
