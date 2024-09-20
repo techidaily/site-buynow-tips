@@ -1,7 +1,7 @@
 ---
 title: "Razer's Mighty Compact: The Ultimate Review of the Razer Book 13"
-date: 2024-09-10T05:44:58.401Z
-updated: 2024-09-14T22:18:39.744Z
+date: 2024-09-18T16:17:14.369Z
+updated: 2024-09-20T16:19:27.206Z
 categories:
   - BestProducts
 description: "This Article Describes Razer's Mighty Compact: The Ultimate Review of the Razer Book 13"
@@ -100,10 +100,10 @@ Lifewire / Andrew Hayward
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Just follow the directions**
@@ -120,13 +120,6 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/TFbt9G36hk5JyrBL8cIdIuYQ66E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Keyboard_03-fd7e355ac5944f12a8107746d0afbf24.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 ## **Performance: Solid power for everyday tasks**
@@ -141,23 +134,9 @@ Lifewire / Andrew Hayward
 
  As an aside, while the LG Gram often runs near-silently, there are extended periods of time in which there's an audible hum coming from the back. It's not the typical, very loud fan noise that pops up while gaming or heavy multitasking from some computers, but it can be a bit grating. We noticed it while charging the computer, but also while running on the battery—with no consistency on that front. It's a mild annoyance, but it's one we noticed whenever it emerged.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Audio: It makes an impression**
 
  You won't see the speakers when the LG Gram is standing up as normal, but you'll hear them loud and clear. The stereo speakers are tucked underneath the laptop at the left and right edges near where your wrists rest, and thanks to the slight elevation from the rubbery feet on the bottom of the laptop, they're given enough space for the output to shine. Audio playback sounds robust and clear—not quite to the level of Apple's current MacBook Air and MacBook Pro, but very close. We were pleased with it.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Network: Connects as expected**
 
@@ -167,7 +146,21 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/AhDZOG33ttJ8LfKQnzvHO7K-S8I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Closed_02-d40445064b4945729278aeae3d8ae1c0.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery: Seriously amazing**
 
@@ -177,11 +170,25 @@ Lifewire / Andrew Hayward
 
  With our typical workflow of browsing the web, chatting on Slack, typing up documents, and streaming a little bit of media, we typically saw 8-9 hours of uptime at 100% brightness.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software: Hello, Windows (but no Windows Hello)**
 
  The LG Gram 15.6-inch comes with Windows 10 Home preinstalled, and if you've used Windows over the years, then you should be pretty comfortable here. Windows 10 has lightly evolved the PC operating system with feature enhancements and tweaks without losing the classic, familiar DNA within, and it's the OS of choice for computer gaming and apps of all shapes and sizes. It's easy to use and understand, and runs well with the Intel Core i5 and an SSD onboard.
 
  Unfortunately, this entry-level model of the LG Gram 15.6-inch isn't able to take advantage of Windows Hello biometric security, as the camera above the display doesn't have the needed sensors for scanning your face. We missed the near-instantaneous facial recognition of the Surface Laptop 2, and having to type in a PIN number each time we opened up the lid. Pricier models of the laptop offer a fingerprint scanner, however.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Solidly priced, considering its strengths**
 
@@ -190,13 +197,6 @@ Lifewire / Andrew Hayward
  In any case, $999 is a more appealing value for a computer that doesn't pack as much polish as some rivals, but wins out when it comes to elements like battery life, screen size, and minimal weight. For some users, that's sure to be an appealing combination. Note that you can spend quite a bit on upgrades with the LG Gram 15.6-inch, including opting for versions with a faster Intel Core i7 processor, additional RAM, a fingerprint sensor, and even a touch display if desired.
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/5yzhAkphyYfWOMofqawuktHJlA0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-v.-Surface-comparison-4946178bf2e94230820d2b19d2fb7197.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -246,16 +246,21 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-embrace-the-synergy-streaming-fb-videos-through-your-apple-device/"><u>[Updated] 2024 Approved Embrace the Synergy Streaming FB Videos Through Your Apple Device</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-tint-tuning-toolkit/"><u>[Updated] 2024 Approved Tint Tuning Toolkit</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-crafting-quality-videos-a-guide-to-apple-device-screen-recording/"><u>2024 Approved Crafting Quality Videos A Guide to Apple Device Screen Recording</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-innovative-storytelling-in-book-trails/"><u>2024 Approved Innovative Storytelling in Book Trails</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-ultimate-10-video-editors-webcams-reimagined/"><u>2024 Approved Ultimate 10 Video Editors Webcams Reimagined</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/gadgetgurus-ultimate-review-of-noco-genius-boost-pro-does-the-89month-get-you-what-it-promises-in-audio-magic-techtalk-314-characters/"><u>GadgetGuru's Ultimate Review of NoCo Genius Boost Pro - Does the $89/Month Get You What It Promises in Audio Magic? | TechTalk 🎶(314 Characters)</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/hp-deskjet-3050a-driver-free-download-and-update-for-windows/"><u>HP Deskjet 3050A Driver - Free Download & Update for Windows</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-depth-update-the-latest-sony-s6500-model-review-for-2024/"><u>In-Depth Update The Latest Sony S6500 Model Review for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1722997634642-terraria-continues-to-glitch-heres-how-you-can-fix-it-with-simple-hacks/"><u>Terraria Continues to Glitch? Here's How You Can Fix It with Simple Hacks !</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-buying-the-right-device-roku-or-fire-tv-stick-explored/"><u>The Ultimate Guide to Buying the Right Device: Roku or Fire TV Stick Explored</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-toshibe-55lf711u20-smart-tv-a-must-have-for-amazon-prime-users/"><u>The Ultimate Guide to the Toshibe 55LF711U20 Smart TV - A Must-Have for Amazon Prime Users</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-harnessing-the-power-of-color-difference-keying-methods-for-2024/"><u>[New] Harnessing the Power of Color Difference Keying Methods for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-audience-engagement-meets-technology-four-recording-ways-on-facebook/"><u>[Updated] 2024 Approved Audience Engagement Meets Technology Four Recording Ways on Facebook</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-pioneering-camera-spin-top-professionals-360cameras-of-2023/"><u>[Updated] Pioneering Camera Spin Top Professionals’ 360°Cameras of 2023</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-compilation-of-hd-android-video-apps/"><u>2024 Approved The Ultimate Compilation of Hd Android Video Apps</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-networking-in-depth-review-of-the-tp-link-archer-c50s-performance-and-price-point/"><u>Budget-Friendly Networking: In-Depth Review of the TP-Link Archer C50's Performance and Price Point</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-netgear-orbi-ideal-choice-for-modern-home-networking/"><u>Comprehensive Evaluation of Netgear Orbi: Ideal Choice for Modern Home Networking</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-amazons-fire-tv-cube-your-speedy-streaming-solution/"><u>Comprehensive Review of Amazon's Fire TV Cube - Your Speedy Streaming Solution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-navigating-the-design-challenges-of-the-pioneer-bdr-xd05b-dvd-writer/"><u>Comprehensive Review: Navigating the Design Challenges of the Pioneer BDR-XD05B DVD Writer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/connect-and-stream-with-ease-using-lihanns-lhfm1039-wireless-bluetooth-unit-for-cars/"><u>Connect and Stream with Ease Using Lihann's LHFM1039 Wireless Bluetooth Unit for Cars</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/days-gone-reviewed-by-a-road-warrior-the-ultimate-zombie-ride-guide/"><u>Days Gone Reviewed by a Road Warrior: The Ultimate Zombie Ride Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/escherichchia-coli/"><u>Escherich^chia Coli</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/expert-advice-overcoming-the-0x0000007b-blue-screen-of-death-errors-on-your-pc/"><u>Expert Advice: Overcoming the 0X0000007B Blue Screen of Death Errors on Your PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-get-notified-when-someone-screenshots-disappearing-messages-on-messenger/"><u>How to Get Notified When Someone Screenshots Disappearing Messages on Messenger</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-hire-harmony-a-collection-of-inspirational-clips/"><u>In 2024, Hire Harmony A Collection of Inspirational Clips</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Honor Magic Vs 2? | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/step-by-step-guide-mastering-the-basics-of-free-flv-video-converter-factory/"><u>Step-by-Step Guide: Mastering the Basics of FREE FLV Video Converter Factory</u></a></li>
 </ul></div>
 

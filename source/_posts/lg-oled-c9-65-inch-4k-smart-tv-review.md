@@ -1,7 +1,7 @@
 ---
 title: LG OLED C9 65-Inch 4K Smart TV Review
-date: 2024-09-10T11:10:43.535Z
-updated: 2024-09-15T11:35:49.274Z
+date: 2024-09-13T17:14:53.009Z
+updated: 2024-09-20T16:44:27.278Z
 categories:
   - BestProducts
 description: This Article Describes LG OLED C9 65-Inch 4K Smart TV Review
@@ -77,6 +77,13 @@ Lifewire / Rebecca Isaacs
 
  To me, the design seems a little clunky. It has smooth edges, but it’s clearly designed as a gamer’s edgy laptop cooling pad with seemingly unnecessary grooves that serve only to hold dust. If you’re looking for a simple design, this is not your cooling pad. That being said, the metal mesh pad for air circulation can accommodate laptops ranging from 14 to 17 inches thanks to its 15.87 x 11.81 x 1.34 inches (LWH) in dimension.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Fans: Wasn’t blown away
 
  I set up the cooling pad and flipped on the roller switch. HAVIT promises five quiet fans—one 110-millimeter fan, and four other strategically placed 85-millimeter fans. HAVIT holds true to its promise: This cooling pad emits a fairly faint sound I can’t hear through my Samsung Buds headphones, even with their noise cancelling features. The fans are so quiet that if I was gaming, I wasn’t able to hear them.
@@ -88,6 +95,13 @@ Lifewire / Rebecca Isaacs
  Before getting this cooling pad, my Eluktronics laptop sounded like an airplane was taking off and landing at my desk space. I wish I could say that this changed after implementing the pad into my gaming rig, or even with my MSI laptop. Unfortunately, my laptops’ fans still sound like I’m on the tarmac instead of being at home.
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/l2nDOOm1dGSmniJBqJPn708DnK8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_03-71babed64c14425184604e4825680aac.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -107,18 +121,18 @@ Lifewire / Rebecca Isaacs
 
  And, if you’re on-the-go and travelling, the HAVIT 5 also packs quite nicely into a suitcase. Be sure to play it safe like I did and pack it around clothes. But if you need to go across country and want to take your gaming laptop with you, this is a good one that will hold up well in luggage.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: Ouch
 
  I picked up my HAVIT 5 while it was on sale for around $30 back in 2019, but the usual price is around $50\. That seems a little steep, especially for fans that don’t necessarily pack the punch for gaming that most laptops require. If you keep an eye on Amazon, you can usually get this one for around $30, as it seems to go on sale fairly often.
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/lItC7F6Ja8RbBfTaNXh5l9ufFqY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_05-07577b69f7d04de5a7904e798681ba02-6b3615a38d584594b89077eaf51228b2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -134,31 +148,11 @@ Lifewire / Rebecca Isaacs
 
  It’s not the best out there, but so long as it cools the internal laptop core temperatures by about 20 degrees, it’s a worthy investment. Props go to HAVIT for giving it a roller switch for ultimate adjustability and an LED light that will show how high the fans are blowing. The fans could be stronger, but quieter fans over more power is preferable.
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/urban-armor-gear-macbook-pro-case-review-4689954)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -189,20 +183,18 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-maximize-your-android-experience-with-these-top-5-ps2-games-apps/"><u>[New] Maximize Your Android Experience with These Top 5 PS2 Games Apps</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-a-century-of-sparks-the-10-most-voted-on-reddit-posts/"><u>[Updated] 2024 Approved A Century of Sparks The 10 Most Voted on Reddit Posts</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-perfecting-the-art-of-filming-and-post-production-with-adobe-connects-features-for-2024/"><u>[Updated] Perfecting the Art of Filming & Post-Production with Adobe Connect's Features for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-efficient-transfer-techniques-for-iphone-images-on-snapchat/"><u>2024 Approved Efficient Transfer Techniques for iPhone Images on Snapchat</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-exceptional-phones-topping-list-for-high-definition-video/"><u>2024 Approved Exceptional Phones Topping List for High Definition Video</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/benchmarking-the-beast-a-closer-look-at-the-powerful-linksys-ea9500-smart-router/"><u>Benchmarking the Beast – A Closer Look at the Powerful Linksys EA9500 Smart Router</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/expert-analysis-of-the-dough-spectrum-black-oled-gaming-display-27-masterpiece/"><u>Expert Analysis of the Dough Spectrum Black OLED Gaming Display - 27 Masterpiece</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-analysis-netgear-ex6200-ac1200-wireless-wi-fi-signal-booster-a-comprehensive-review/"><u>Expert Analysis: Netgear EX6200 AC1200 Wireless Wi-Fi Signal Booster - A Comprehensive Review</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-samsung-galaxy-a15-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Samsung Galaxy A15 5G Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-amazons-latest-cubed-wonder-the-new-fire-tv-for-unmatched-entertainment-speed/"><u>In-Depth Analysis of Amazon's Latest Cubed Wonder: The New Fire TV for Unmatched Entertainment Speed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/insta360-one-x2-review-a-great-waterproof-360-camera/"><u>Insta360 One X2 Review: A Great Waterproof 360 Camera</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/modern-marvel-meets-classic-gameplay-in-depth-review-of-demons-souls/"><u>Modern Marvel Meets Classic Gameplay: In-Depth Review of Demon's Souls</u></a></li>
-<li><a href="https://review-topics.techidaily.com/redmi-note-12-5g-messages-recovery-recover-deleted-messages-from-redmi-note-12-5g-by-fonelab-android-recover-messages/"><u>Redmi Note 12 5G Messages Recovery - Recover Deleted Messages from Redmi Note 12 5G</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-sabrent-mini-travel-mouse-seamless-fusion-of-accuracy-and-wireless-control-for-on-the-go-typing/"><u>The Sabrent Mini Travel Mouse: Seamless Fusion of Accuracy & Wireless Control for On-the-Go Typing</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/virtual-cam-tech-unleashed-elevate-your-live-broadcasts-with-the-power-of-manycam-software/"><u>Virtual Cam Tech Unleashed: Elevate Your Live Broadcasts with the Power of ManyCam Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-venture-into-virtual-reality-with-top-mobile-headsets/"><u>[New] In 2024, Venture Into Virtual Reality with Top Mobile Headsets</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-unveiling-metaverse-marketing-mysteries-for-2024/"><u>[New] Unveiling Metaverse Marketing Mysteries for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-voice-recognition-and-modification-for-playstation-users/"><u>[New] Voice Recognition & Modification for PlayStation Users</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-backdrop-beats-curating-cinematic-tunes/"><u>2024 Approved Backdrop Beats Curating Cinematic Tunes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/conquer-backyards-with-the-galaxy-ford-f150-an-ultimate-guide-to-this-mighty-rc-truck/"><u>Conquer Backyards with the Galaxy Ford F150 - An Ultimate Guide to This Mighty RC Truck</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/detailed-analysis-of-the-thrilling-overwatch-team-action-shooter-excellence/"><u>Detailed Analysis of the Thrilling Overwatch: Team Action Shooter Excellence</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-how-the-google-pixel-5-blends-economical-pricing-with-top-tier-specifications-our-expert-review/"><u>Discover How the Google Pixel 5 Blends Economical Pricing with Top-Tier Specifications – Our Expert Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-how-to-increase-the-game-variety-on-your-nes-mini-edition/"><u>Discover How to Increase the Game Variety on Your NES Mini Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elevate-your-training-game-the-premier-selection-of-wrist-worn-fitness-trackers/"><u>Elevate Your Training Game : The Premier Selection of Wrist-Worn Fitness Trackers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-effectiveness-of-amazonbasics-highly-secure-document-shredder-with-advanced-micro-cut-technology-a-thorough-review/"><u>Evaluating the Effectiveness of AmazonBasics' Highly Secure Document Shredder with Advanced Micro-Cut Technology: A Thorough Review</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On OnePlus 12 | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/in-2024-quietude-creators-guide-methods-to-extract-silence-from-mp4-mkv-avi-mov-wmv-videos/"><u>In 2024, Quietude Creators Guide Methods to Extract Silence From MP4, MKV, AVI, MOV, WMV Videos</u></a></li>
+<li><a href="https://win11.techidaily.com/unique-windows-11-workarounds-for-inaccessible-folder-names/"><u>Unique Windows 11 Workarounds for Inaccessible Folder Names</u></a></li>
 </ul></div>
 

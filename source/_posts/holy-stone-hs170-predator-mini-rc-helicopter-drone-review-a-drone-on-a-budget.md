@@ -1,7 +1,7 @@
 ---
 title: "Holy Stone HS170 Predator Mini RC Helicopter Drone Review: A Drone on a Budget"
-date: 2024-09-09T05:42:02.309Z
-updated: 2024-09-15T07:20:45.628Z
+date: 2024-09-19T16:08:36.652Z
+updated: 2024-09-20T16:39:51.712Z
 categories:
   - BestProducts
 description: "This Article Describes Holy Stone HS170 Predator Mini RC Helicopter Drone Review: A Drone on a Budget"
@@ -89,29 +89,9 @@ Lifewire / Bill Thomas
 
  Lifewire / Bill Thomas
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Setup Process: Exceptionally easy
 
  Setting up a cable modem can be a complicated and time consuming process. Not so with the Netgear C3000—when we set it up it was almost plug-and-play. It could be because this modem isn’t the most complex piece of hardware, but it was ready for activation_seconds_ after we plugged it in. We connected via ethernet, launched a browser and within minutes we activated our 250 Mbps Xfinity service. We’re not sure if our experience was a fluke, but we were pleasantly surprised.
-
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Connectivity: Pretty limited
 
@@ -122,6 +102,13 @@ Lifewire / Bill Thomas
 ![Netgear C3000](https://www.lifewire.com/thmb/vmrfrWyvGROwVpR7Y2UQmaZOPEU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_6-e34bd6e4000f49c3b6a0d1653d23f6ff.jpg)
 
  Lifewire / Bill Thomas
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Network Performance: Keep your expectations low
 
@@ -139,13 +126,6 @@ Lifewire / Bill Thomas
 
  There’s also a Netgear Genie mobile app on both Google Play and the App Store. The app gives you the same controls as the management portal, but with a much more user-friendly interface. This is what we’d recommend most people use to[manage their network](https://www.lifewire.com/how-to-set-up-your-home-wi-fi-network-2378223) .
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Price: Expensive for what it is
 
  The Netgear C3000 cable modem will set you back a whopping $94.99 at retail. Considering that you can get a 8x4 DOCSIS 3.0 cable modem for around $50 and an N300 wireless router for less than $20, it’s not exactly the best deal out there.
@@ -153,6 +133,13 @@ Lifewire / Bill Thomas
  If you can find it refurbished—and you’re comfortable buying a refurbished modem—that might bring it down to a better price point. At the time of this writing, we were able to find refurbished models for around $49, which puts it in the same ballpark as a comparable standalone modem.
 
  Unless you’re dead-set on buying an all-in-one device, buying a separate modem and router is going to be the more economical option.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Netgear C3000 vs. TP-Link TC-W7960S
 
@@ -169,6 +156,13 @@ Lifewire / Bill Thomas
 * [Netgear Nighthawk C7000](https://www.lifewire.com/netgear-nighthawk-c7000-review-4686068)
 * [Netgear C3700 Cable Modem Router](https://www.lifewire.com/netgear-c3700-cable-modem-router-review-4686094)
 * [Motorola MG7700](https://www.lifewire.com/motorola-mg7700-review-4589346)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -203,20 +197,21 @@ Lifewire / Bill Thomas
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://ios-unlock.techidaily.com/7-ways-to-lock-apps-on-apple-iphone-15-pro-and-ipad-securely-by-drfone-ios/"><u>7 Ways to Lock Apps on Apple iPhone 15 Pro and iPad Securely</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/1723084558975-expert-picks-leading-steam-deck-video-games-in-2-cuffs-that-you-should-play-now/"><u>Expert Picks: Leading Steam Deck Video Games in 2 Cuffs that You Should Play Now!</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/fixed-epson-no-more-blank-documents/"><u>Fixed [Epson]: No More Blank Documents</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-stop-frontier-from-crashing-on-your-computer-a-step-by-step-solution/"><u>How to Stop 'Frontier' From Crashing on Your Computer – A Step-by-Step Solution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/imac-m1-review-a-visual-refresh-and-the-powerful-m1-chip/"><u>IMac M1 Review: A Visual Refresh and the Powerful M1 Chip</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-oppo-reno-8t-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Oppo Reno 8T</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-apples-homepod-mini-features-on-sound-quality-siri-integration-and-user-experience/"><u>In-Depth Analysis of Apple's HomePod Mini: Features on Sound Quality, Siri Integration, and User Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/is-my-ipad-no-longer-up-to-date-or-relevant/"><u>Is My iPad No Longer Up-to-Date or Relevant?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/navigating-city-streets-with-ease-on-a-gotrae-xg-v2-a-user-experience-analysis/"><u>Navigating City Streets with Ease on a Gotrae XG-V2: A User Experience Analysis</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/newest-compatibility-fix-logitech-c920-webcam-works-on-windows-11108-after-update/"><u>Newest Compatibility Fix: Logitech C920 Webcam Works on Windows 11/10/8 After Update</u></a></li>
-<li><a href="https://games-able.techidaily.com/1719164655300-principles-for-creating-effective-directional-symbols-that-are-universally-understood/"><u>Principles for Creating Effective Directional Symbols that Are Universally Understood</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-of-mouse-alternatives-for-ios-devices/"><u>Ultimate Selection of Mouse Alternatives for iOS Devices</u></a></li>
-<li><a href="https://games-able.techidaily.com/understanding-and-resolving-launcher-error-0x803f8001/"><u>Understanding and Resolving Launcher Error 0X803F8001</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-from-digital-to-physical-burning-videos-to-dvds-on-windows-and-mac/"><u>Updated 2024 Approved From Digital to Physical Burning Videos to DVDs on Windows and Mac</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-the-ultimate-list-10-animated-text-generators-for-stunning-visuals-for-2024/"><u>Updated The Ultimate List 10 Animated Text Generators for Stunning Visuals for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-the-ultimate-guide-to-choosing-a-win10-video-grabber-tool/"><u>[New] 2024 Approved The Ultimate Guide to Choosing a Win10 Video Grabber Tool</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-cyberspace-liberation-overthrowing-hacks-on-facebook/"><u>[New] Cyberspace Liberation Overthrowing Hacks on Facebook</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-navigating-a-new-digital-landscape-detailed-steps-for-updating-tiktok-handle/"><u>[New] In 2024, Navigating a New Digital Landscape Detailed Steps for Updating TikTok Handle</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-honored-advisors-elite-iphone-audio-experts/"><u>[Updated] Honored Advisors Elite iPhone Audio Experts</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-a-step-by-step-approach-to-crafting-customized-youtube-alerts-and-notifications/"><u>[Updated] In 2024, A Step-by-Step Approach to Crafting Customized Youtube Alerts & Notifications</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-smart-eco-friendly-screen-tech-compilation/"><u>[Updated] In 2024, Smart, Eco-Friendly Screen Tech Compilation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-power-of-pacing-keeping-your-audience-glued-to-the-screen/"><u>[Updated] The Power of Pacing Keeping Your Audience Glued to the Screen</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/acer-xfa240-assessment-prioritizing-performance-and-utility/"><u>Acer XFA240 Assessment: Prioritizing Performance and Utility</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/aeiusys-reliable-portable-solar-solution-review-of-a-pure-sine-wave-inverter-designed-for-medical-gear-efficiency/"><u>Aeiusy's Reliable Portable Solar Solution: Review of a Pure Sine Wave Inverter Designed for Medical Gear Efficiency</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/descargar-archivos-de-video-en-hd-4k-y-8k-aprende-como-reducir-su-tamano-en-un-90/"><u>Descargar Archivos De Video en HD, 4K Y 8K: Aprende Cómo Reducir Su Tamaño en Un 90%</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723065864838-discovering-the-superiority-of-gopros-hero7-in-action-videos/"><u>Discovering the Superiority of GoPro's HERO7 in Action Videos</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723085824198-ergonomic-and-convenient-moko-bluetooth-keyboard-ideal-for-all-devices/"><u>Ergonomic & Convenient MoKo Bluetooth Keyboard – Ideal for All Devices</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-chronicle-of-creation-weaving-time-lapse-animations-via-movie-maker-for-2024/"><u>The Chronicle of Creation Weaving Time-Lapse Animations via Movie Maker for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/versatile-audio-device-yamaha-mcr-b020bl-revealed/"><u>Versatile Audio Device – Yamaha MCR-B020BL Revealed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/windows-11-adoption-should-i-make-the-leap-now/"><u>Windows 11 Adoption: Should I Make the Leap Now?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/zombie-life-reimagined-in-7-days-to-die-an-in-depth-look-at-this-sandbox-gaming-hit/"><u>Zombie Life Reimagined in '7 Days to Die': An In-Depth Look at This Sandbox Gaming Hit</u></a></li>
 </ul></div>
 

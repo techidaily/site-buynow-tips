@@ -1,7 +1,7 @@
 ---
 title: "A Comprehensive Review of Create with Code's Makeblock mBot Kit: Build Your Own Functional Bot"
-date: 2024-08-09T00:55:57.092Z
-updated: 2024-08-10T00:55:57.092Z
+date: 2024-09-18T16:45:29.725Z
+updated: 2024-09-20T16:30:43.430Z
 categories:
   - BestProducts
 description: "This Article Describes A Comprehensive Review of Create with Code's Makeblock mBot Kit: Build Your Own Functional Bot"
@@ -15,9 +15,6 @@ thumbnail: https://thmb.techidaily.com/c7a57ea0c6d875a784d917881bf9f1dac3c811b03
 
 ## Fitbit Versa 3
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![Fitbit Versa 3](https://www.lifewire.com/thmb/o6kUvWKq2MSbSx2pJd8dWHiWkOc=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Versa-3-Hero5x4-3bcbedf50dc940008e9c10ee237c88a3.jpg)
 
  Lifewire / Yoona Wagener
@@ -69,16 +66,10 @@ thumbnail: https://thmb.techidaily.com/c7a57ea0c6d875a784d917881bf9f1dac3c811b03
 
  I used the Versa 3 as my go-to tracker for runs, walks, and telling time, too. Overall it was almost unnoticeable on my wrist, when I could get the right fit, though I didn’t always have the easiest time interacting with it.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Fitbit Versa 3](https://www.lifewire.com/thmb/ceE1xxVfUTF44pCOtEXiO6JW_IA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Versa-3-04-ef922812d0444da4a7277e91efe2fcf8.jpg)
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Design: Sleek and smart-looking
 
  The Fitbit Versa 3 resembles prior versions of the model, though with softer and more rounded edges meant to better contour to the wrist and offer faster response times, according to[Fitbit](https://www.lifewire.com/what-is-fitbit-4176010) . While the standard model that I tested came with a silicone infinity sport band, there are several fancier watch bands available, including a quick-release band—if you opt for a special edition. This would certainly be preferable to the basic black version I tested, which really does look like a sports watch rather than a “regular” watch.
@@ -88,6 +79,19 @@ thumbnail: https://thmb.techidaily.com/c7a57ea0c6d875a784d917881bf9f1dac3c811b03
  In running mode, GPS signal capture was mostly instant, but it also frequently dropped.
 
  This smartwatch is capable of storing five different watch faces, and while they’re easy to find, downloading a new face, just like all apps—took quite a while. The SPO2 watch face is compatible with the Versa 3, but you’ll have to pay for the Fitbit Premium app subscription to access this data in any meaningful way.
+
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Comfort: Lightweight for all-day wear
 
@@ -99,9 +103,6 @@ thumbnail: https://thmb.techidaily.com/c7a57ea0c6d875a784d917881bf9f1dac3c811b03
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Performance: Accuracy slightly questionable
 
  In true Fitbit brand fashion, the Fitbit Versa 3 supports wellness in a big-picture way. There are over 20 different workout modes and several, such as running, elliptical exercise, swimming, biking, and aerobic workouts, are automatically detected.
@@ -112,18 +113,24 @@ thumbnail: https://thmb.techidaily.com/c7a57ea0c6d875a784d917881bf9f1dac3c811b03
 
  I found that the workout summary on the device itself is easy to follow and review, but the app provides more valuable insights, such as information about heart rate zones and active minute zones by cardio and fat burn.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Fitbit Versa 3](https://www.lifewire.com/thmb/XaHqGkkkpkk1u4lozEYs71XuROc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Versa-3-05-95e58759793b422db3ebd22cf177f2ba.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Battery: Lasts for a solid six days
 
  Like the Fitbit Sense, the Fitbit Versa 3 is supposed to last for over six days on a single charge when the display is not set to “always on.” My experience yielded six days before the battery was critically low. This could be because I chose to download and use the Fitbit SPO2 watch face that measures blood oxygen saturation. Fitbit says this face could accelerate the need for charging. Otherwise, I used[GPS](https://www.lifewire.com/what-is-gps-how-it-works-4688647) for about 30 minutes each day and only streamed music via Spotify for 2 hours total.
@@ -131,8 +138,12 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
  It charged from critically low to 100 percent in about 1.25 hours, which is in line with the 1-2 hour estimation by the manufacturer. A quick charge brought the device from 9 percent to 29 percent, which tracks with the claim that a 12-minute charge would bring it up to a full day of battery life.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Software/Key Features: Wellness and convenience features reign
 
  The Fitbit Versa 3 runs on the Fitbit OS and benefits from several upgrades. The latest smart features include a built-in speaker and microphone, which Android users can use to respond to phone calls along with sending replies and emojis when the phone is nearby. Sadly, iPhone users can only answer or reject calls and view notifications.
@@ -157,9 +168,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  The Versa 3 is also about $100 cheaper than the Fitbit Sense, which offers a few more wellness-tracking flourishes such as the ECG app and EDA responses. The smartwatch claims to offer similarly accurate heart rate monitoring and onboard GPS and some users will still benefit from the array of wellness-centric features like reminders to move, food and water tracking, guided breathing, and all the smart features the more costly Sense has too.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Fitbit Versa 3 vs. Samsung Galaxy Watch Active2
 
  The Samsung Galaxy Watch Active2 is a close comparison to the Fitbit Versa 3\. If you opt for GPS and cellular connectivity, it will cost about $380 and above, but you’ll also get a slew of additional smart features that surpass the Versa 3\. You can take phone calls over Wi-Fi, control your camera, check social feeds, and listen to music on your run without your phone in your pocket.
@@ -187,14 +195,11 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 * Product Dimensions  1.59 x 1.59 x 0.49 in.
 * Color  Black/Black Aluminum, Midnight/Soft Gold Aluminum, Olive / Soft Gold Aluminum, Pink Clay/Soft Gold Aluminum, Thistle / Soft Gold Aluminum
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -202,3 +207,19 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-streamline-your-content-youtube-to-dailymotion-shift/"><u>[New] 2024 Approved Streamline Your Content YouTube to Dailymotion Shift</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-the-ultimate-selection-of-8-android-group-calling-tools-for-2024/"><u>[Updated] The Ultimate Selection of 8 Android Group Calling Tools for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-artistic-science-behind-youtube-live-imagery/"><u>2024 Approved The Artistic Science Behind YouTube Live Imagery</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/humorous-harmonics-optimal-ringtone-sites/"><u>Humorous Harmonics Optimal Ringtone Sites</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/install-oculus-headset-support-on-your-pc-driver-downloads-for-win111087/"><u>Install Oculus Headset Support on Your PC: Driver Downloads for Win11/10/8/7</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/learn-iphones-burst-shot-magic/"><u>Learn iPhone's Burst Shot Magic</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/snapshot-of-essential-thoughts-before-buying-vr-equipment/"><u>Snapshot of Essential Thoughts Before Buying VR Equipment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/step-up-your-game-a-meticulous-breakdown-of-the-oculus-quest-2s-stylish-and-functional-elite-armband-with-secure-case-combo/"><u>Step Up Your Game: A Meticulous Breakdown of the Oculus Quest 2’S Stylish and Functional Elite Armband with Secure Case Combo</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/surviving-blackouts-in-esports-apgs-top-picks-for-a-secure-and-stable-pc-power-source/"><u>Surviving Blackouts in Esports: APG's Top Picks for a Secure and Stable PC Power Source</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-aphaca-bt6-groovy-a-detailed-look-at-the-best-wireless-fm-transmitter-with-bluetooth-technology/"><u>The Aphaca BT6 Groovy? - A Detailed Look at the Best Wireless FM Transmitter with Bluetooth Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-rexing-v1-dashcam-balancing-cost-concealment-and-trustworthiness-your-comprehensive-review/"><u>The Rexing V1 DashCam: Balancing Cost, Concealment & Trustworthiness – Your Comprehensive Review</u></a></li>
+</ul></div>
+

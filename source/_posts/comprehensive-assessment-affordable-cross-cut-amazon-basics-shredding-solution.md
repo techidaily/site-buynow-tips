@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
-date: 2024-09-09T11:13:47.228Z
-updated: 2024-09-14T23:52:36.476Z
+date: 2024-09-15T16:46:19.864Z
+updated: 2024-09-20T16:02:11.975Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
@@ -95,6 +95,13 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance** :**Great components for gaming and productivity**
 
  The HP OMEN Obelisk that I tested featured a 9th Gen Intel Core i9 9900K, 32GB of RAM, a 1TB SSD, and the Nvidia GTX GeForce 2080 Super graphics card. This is a potent combination of components in a gaming PC, and I was appropriately impressed by the results.
@@ -117,14 +124,14 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Pz9tV-mhJl_Cjm8HSqEQ_VZPbVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-5-cdbd9d78a8c14b8e8bce0113d12e9fcc.jpg)
 
- Lifewire / Jonno Hill
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Jonno Hill
 
 ## **Network** :**Great speeds, but software that doesn’t do much**
 
@@ -143,16 +150,10 @@ Lifewire / Jonno Hill
  The option to overclock your system has you first run a nondescript benchmark, which produces a score with no reference point (to establish a baseline). While it’s nice to have the option, this really,_sincerely_ isn’t a system you want to be overclocking. The i9-9900K CPU already runs alarmingly hot, even with its pre-installed water cooling solution. There also isn’t enough room for anything beyond a 120mm AIO watercooler, and not nearly enough clearance for a popular air heatsink like the Noctua NH-D15.
 
 <!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Highly competitive**
@@ -176,19 +177,6 @@ Lifewire / Jonno Hill
  **High performance and fantastic value, but upsetting thermals.**
 
  The HP OMEN Obelisk delivers fantastic value for gamers shopping for a high-performance, pre-built PC. HP has come a long way, and now offers a much more compelling solution that will appeal to a much broader set of buyers. That said, there is work to be done still, as the case suffers from poor airflow, poor thermals, and not a lot of meaningful ways to improve them.
-
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -224,17 +212,18 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-igniting-instagram-interest-maximizing-content-reach-and-interactions/"><u>[New] 2024 Approved Igniting Instagram Interest Maximizing Content Reach and Interactions</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ackward-glance-decoding-youtube-video-reversals/"><u>[New] Backward Glance Decoding YouTube Video Reversals</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-livestream-on-facebook-from-android-and-ios-in-2024/"><u>[New] How to Livestream on Facebook From Android and iOS, In 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-the-essential-6-steps-for-recording-your-favorite-movies-from-netflix-on-macos/"><u>[Updated] 2024 Approved The Essential 6 Steps for Recording Your Favorite Movies From Netflix on macOS</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-next-level-entertainment-exclusive-windows-10-gaming-and-apps/"><u>[Updated] Next-Level Entertainment Exclusive Windows 10 Gaming & Apps</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-sierras-icloud-full-desktop-and-document-liberation/"><u>[Updated] Sierra’s iCloud Full Desktop and Document Liberation</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-the-google-pixel-5-balancing-mid-range-strengths-with-premium-features/"><u>Comprehensive Analysis of the Google Pixel 5: Balancing Mid-Range Strengths with Premium Features</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-cinemac/"><u>In 2024, CineMac</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-synology-rt2600ac-wifi-router-featuring-extended-reach-and-parental-controls/"><u>In-Depth Analysis of the Synology RT2600ac WiFi Router: Featuring Extended Reach and Parental Controls</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/reviewing-the-best-in-wifi-how-the-netgear-nighthawk-ac3200-tri-band-router-delivers-for-families-and-speed-enthusiasts/"><u>Reviewing the Best in WiFi: How the Netgear Nighthawk AC3200 Tri-Band Router Delivers for Families & Speed Enthusiasts</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/steps-to-adjusting-and-sharing-your-gopro-videos-in-4k-on-youtube/"><u>Steps to Adjusting and Sharing Your GoPro Videos in 4K on YouTube</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-flash-review-unyielding-430ex-iii-rt/"><u>The Ultimate Flash Review: Unyielding 430EX III-RT</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-evolution-of-engagement-key-post-vidcon-events/"><u>[Updated] 2024 Approved Evolution of Engagement Key Post-VidCon Events</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-the-art-of-virality-on-tiktok-techniques-for-more-interactions/"><u>[Updated] 2024 Approved The Art of Virality on TikTok Techniques for More Interactions</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/compile-of-premium-tiktok-backdrop-options/"><u>Compile of Premium TikTok Backdrop Options</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-seamless-connectivity-with-amplifi-hd-wireless-mesh-network-say-goodbye-to-weak-signals/"><u>Experience Seamless Connectivity with Amplifi HD Wireless Mesh Network – Say Goodbye to Weak Signals</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-picks-leading-body-cameras-innovations/"><u>Expert Picks: Leading Body Cameras Innovations</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/frontiersmans-elite-tripod-compendium/"><u>Frontiersman's Elite Tripod Compendium</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/game-like-never-before-with-the-asus-rog-rapture-gt-ax11000-comprehensive-review-of-speed-and-functions/"><u>Game Like Never Before with the Asus ROG Rapture GT-AX11000: Comprehensive Review of Speed and Functions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/garmin-vivomove-hr-evaluation-the-fashionable-activity-tracker-perfect-for-your-energetic-days/"><u>Garmin Vivomove HR Evaluation: The Fashionable Activity Tracker Perfect for Your Energetic Days</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/gopros-superhero-5-and-sj7-showdown-for-2024/"><u>GoPro's Superhero 5 and SJ7 Showdown for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-motorola-g54-5g-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Motorola G54 5G Phone without PIN</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-lenovo-thinkpad-x1-nano-your-next-featherlight-computing-solution/"><u>In-Depth Analysis of the Lenovo ThinkPad X1 Nano: Your Next Featherlight Computing Solution</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-ultimate-list-of-powerful-instagram-hashtags/"><u>The Ultimate List of Powerful Instagram Hashtags</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unlocking-advanced-functionalities-of-zoom-on-windows-10-for-2024/"><u>Unlocking Advanced Functionalities of Zoom on Windows 10 for 2024</u></a></li>
 </ul></div>
 

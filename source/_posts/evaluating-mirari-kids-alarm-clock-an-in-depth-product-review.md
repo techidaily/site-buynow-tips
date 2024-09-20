@@ -1,7 +1,7 @@
 ---
 title: Evaluating Mirari Kids' Alarm Clock - An In-Depth Product Review
-date: 2024-09-08T22:19:58.149Z
-updated: 2024-09-15T02:01:14.477Z
+date: 2024-09-13T16:25:04.520Z
+updated: 2024-09-20T16:34:50.871Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating Mirari Kids' Alarm Clock - An In-Depth Product Review
@@ -80,41 +80,22 @@ Lifewire / Jonno Hill
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
-<!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Range: Fairly limited**
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
-
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Excellent for the performance**
 
  The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
 
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
 
@@ -124,6 +105,13 @@ Lifewire / Jonno Hill
 
 **No fuss, good value.**
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -152,15 +140,21 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-syncing-socials-a-step-by-step-guide-to-linking-instagram-and-tiktok/"><u>[New] In 2024, Syncing Socials A Step-by-Step Guide to Linking Instagram and TikTok</u></a></li>
-<li><a href="https://techtrends.techidaily.com/combatting-the-rise-of-adblock-youtubes-ongoing-battle/"><u>Combatting the Rise of Adblock: YouTube's Ongoing Battle</u></a></li>
-<li><a href="https://games-able.techidaily.com/disconnect-from-realms-reclaim-your-virtual-territories/"><u>Disconnect From Realms; Reclaim Your Virtual Territories</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-resolve-immediate-playback-problems-for-selected-movies-or-shows-on-netflix/"><u>How to Resolve Immediate Playback Problems for Selected Movies or Shows on Netflix</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/hp-omen-obelisk-top-value-high-end-performance-a-detailed-review/"><u>HP OMEN Obelisk - Top Value High-End Performance: A Detailed Review</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Samsung Galaxy A05s | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/pinnacle-stereo-headsets-for-large-displays/"><u>Pinnacle Stereo Headsets for Large Displays</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-future-is-here-discover-how-the-m1-chip-elevates-performance-in-the-latest-imac-model/"><u>The Future Is Here: Discover How the M1 Chip Elevates Performance in the Latest iMac Model</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-tips-preventing-palworld-from-crashing-on-windows-and-mac/"><u>Troubleshooting Tips: Preventing Palworld From Crashing on Windows and Mac</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-top-tier-wired-earbuds/"><u>Unveiling the Top-Tier Wired Earbuds</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-8-free-instagram-to-mp4-converters-you-can-try-onlinewindowsmac-for-2024/"><u>[New] 8 Free Instagram to MP4 Converters You Can Try [Online/Windows/Mac] for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-mastering-multimedia-slides-with-speech-recordings-powerpoint/"><u>[New] In 2024, Mastering Multimedia Slides with Speech Recordings (PowerPoint)</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-fabled-frontiers-top-10-roguely-ventures/"><u>[Updated] Fabled Frontiers Top 10 Roguely Ventures</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-step-by-step-instagram-videos-that-wow-viewers/"><u>[Updated] In 2024, Step-by-Step Instagram Videos that Wow Viewers</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-the-intricacies-of-whatsapp-audio-dialogue-for-2024/"><u>[Updated] The Intricacies of WhatsApp Audio Dialogue for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-user-friendly-choice-for-budget-shoppers-z-edge-z3-plus-dashcam-review/"><u>A User-Friendly Choice for Budget Shoppers - Z-Edge Z3 Plus Dashcam Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-performance-unveiling-the-tp-link-archer-c80-speed-and-features-review/"><u>Affordable Performance: Unveiling the TP-Link Archer C80 Speed and Features Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/alexa-vs-siri-showdown-echo-dot-versus-homepod-mini-unveiled/"><u>Alexa vs Siri Showdown: Echo Dot versus HomePod Mini Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/asus-zenwifi-xt8-ax6600-comprehensive-rating-and-analysis-for-a-robust-tri-band-wireless-network/"><u>ASUS ZenWifi XT8 (AX6600) - Comprehensive Rating & Analysis for a Robust Tri-Band Wireless Network</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-and-effective-detailed-evaluation-of-the-1byone-digital-tv-indoor-signal-booster-antenna/"><u>Budget-Friendly & Effective: Detailed Evaluation of the 1Byone Digital TV Indoor Signal Booster Antenna</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-honor-90-gt-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Honor 90 GT Location by Number | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-master-clearer-photos-unveiling-the-top-10-web-edits/"><u>In 2024, Master Clearer Photos Unveiling the Top 10 Web Edits</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/quick-and-easy-troubleshooting-for-the-elusive-d3dx934dll-file/"><u>Quick & Easy Troubleshooting for the Elusive d3dx9_34.dll File</u></a></li>
+<li><a href="https://techidaily.com/repair-damaged-unplayable-video-files-of-oneplus-ace-2-pro-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>Repair damaged, unplayable video files of OnePlus Ace 2 Pro on Mac</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-microsoft-flight-simulator-x-gold-edition-ranks-as-one-of-the-ultimate-choices-for-pilots-and-gamers/"><u>Why Microsoft Flight Simulator X: Gold Edition Ranks as One of the Ultimate Choices for Pilots and Gamers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/zmi-powerpack-20000-review-unleash-the-might-of-a-tiny-portable-charger/"><u>ZMI PowerPack 2ˈ0000 Review: Unleash the Might of a Tiny, Portable Charger</u></a></li>
 </ul></div>
 

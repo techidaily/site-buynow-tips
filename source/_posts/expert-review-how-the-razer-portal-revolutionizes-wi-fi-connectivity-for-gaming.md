@@ -1,7 +1,7 @@
 ---
 title: "Expert Review: How the Razer Portal Revolutionizes Wi-Fi Connectivity for Gaming"
-date: 2024-09-11T00:28:32.109Z
-updated: 2024-09-14T20:48:20.764Z
+date: 2024-09-19T17:16:59.113Z
+updated: 2024-09-20T16:07:32.238Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Review: How the Razer Portal Revolutionizes Wi-Fi Connectivity for Gaming"
@@ -69,6 +69,19 @@ Lifewire / Jonno Hill
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
 
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup: Simple and easy**
 
  The ClearStream Eclipse Antenna has the simplest setup of all the HDTV antennas I’ve tested. There is no mounting hardware, no power adapter, and nothing else to worry about. The antenna comes with a strip of adhesive that can be used to affix it directly to a wall or other preferred surface.
@@ -77,22 +90,15 @@ Lifewire / Jonno Hill
 
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Above average**
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: Fair to middling**
@@ -107,19 +113,6 @@ Lifewire / Jonno Hill
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
 
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
 
  If my testing is any indication of broader performance, there is really no reason to get the Winegard FL5500A FlatWave Antenna instead of the ClearStream Eclipse. The Eclipse is over $10 cheaper ($40 vs $52), and managed to support 8 more channels on average. To add insult to injury, the Winegard FL5500A FlatWave Antenna is amplified using a USB power adapter, which adds a bit of clutter and complication to the overall setup.
@@ -129,6 +122,13 @@ Lifewire / Jonno Hill
 **The best unpowered indoor antenna.**
 
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -157,20 +157,19 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-visual-narrative-magic-mastering-the-art-of-fading-edits-for-2024/"><u>[New] Visual Narrative Magic Mastering the Art of Fading Edits for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-voice-logger-essentials-the-best-speech-apps-for-mac-devices/"><u>[Updated] Voice Logger Essentials The Best Speech Apps for Mac Devices</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-features-that-make-the-samsung-galaxy-a20-a-worthy-choice-for-savvy-shoppers/"><u>Exploring the Features That Make the Samsung Galaxy A20 a Worthy Choice for Savvy Shoppers</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/fixing-misspelled-words-restoring-functionality-to-outlooks-proofreading-tools/"><u>Fixing Misspelled Words: Restoring Functionality to Outlook's Proofreading Tools</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-mac-for-apple-iphone-14-pro-max-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock on Mac For Apple iPhone 14 Pro Max?</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Realme C55 | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Samsung Galaxy A15 5G? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Vivo V30 Lite 5G? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-nokia-71-excellent-display-and-photography-at-an-attractive-cost/"><u>In-Depth Analysis of Nokia 7.1 - Excellent Display & Photography at an Attractive Cost</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/samsung-upgrade-battle-how-does-the-s23-ultra-stack-up-to-the-s21/"><u>Samsung Upgrade Battle: How Does the S23 Ultra Stack up to the S21?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-bookbook-v2-by-twelve-south-for-your-macbook/"><u>The Ultimate Guide to the BookBook V2 by Twelve South for Your MacBook</u></a></li>
-<li><a href="https://fox-links.techidaily.com/top-rated-asmr-gear-high-quality-priced-right-for-2024/"><u>Top-Rated ASMR Gear High Quality, Priced Right for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/uncovering-what-the-samsung-galaxy-tab-a-misses-a-review-of-its-2020-model/"><u>Uncovering What the Samsung Galaxy Tab A Misses: A Review of Its 2020 Model</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-elegant-practicality-of-the-fitbit-charge-4-wearable-review/"><u>Unveiling the Elegant Practicality of the Fitbit Charge 4 Wearable Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-features-and-performance-of-the-amazfit-bip-smartwatch/"><u>Unveiling the Features and Performance of the Amazfit Bip Smartwatch</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-tiktok-to-facebook-social-media-linking-guide/"><u>[Updated] TikTok-to-Facebook Social Media Linking Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/breaking-into-youtubes-top-100-with-effective-seo/"><u>Breaking Into YouTube's Top 100 With Effective SEO</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/drive-growth-with-these-top-10-innovative-igtv-videos/"><u>Drive Growth with These Top 10 Innovative IGTV Videos</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/high-end-illumination-for-every-shooter-speedlite-iv-at-a-bargain-price/"><u>High-End Illumination for Every Shooter: Speedlite IV at a Bargain Price!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/holy-stone-race-car-reviews-an-engaging-adventure-for-families-and-kids/"><u>Holy Stone Race Car Reviews: An Engaging Adventure for Families and Kids</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/how-nvidia-revolutionizes-graphics-management-by-merging-control-panel-and-geforce-experience-into-one-app/"><u>How Nvidia Revolutionizes Graphics Management by Merging Control Panel and GeForce Experience Into One App</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-leading-non-zoom-remote-work-solutions-for-pc-and-mobile/"><u>In 2024, Leading Non-Zoom Remote Work Solutions for PC & Mobile</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-revolutionize-visual-content-leading-montage-tools-for-phones/"><u>In 2024, Revolutionize Visual Content Leading Montage Tools for Phones</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-complete-guide-to-iphones-album-orchestration-and-cloud-storage-sync/"><u>In 2024, The Complete Guide to iPhone's Album Orchestration and Cloud Storage Sync</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-affordable-oneplus/"><u>In-Depth Analysis of the Affordable OnePlus</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-googles-wifi-networking-device-ideal-for-home-and-office-use/"><u>In-Depth Look at Google's WiFi Networking Device - Ideal for Home and Office Use</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-the-lg-k92-worth-your-money-just-based-on-its-5g-technology-our-review-explains/"><u>Is the LG K92 Worth Your Money Just Based on Its 5G Technology? Our Review Explains!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/jumpstart-your-win11-experience-with-a-pro-upgrade/"><u>Jumpstart Your Win11 Experience with a Pro Upgrade</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723206797537-unseen-sd-card-illuminate-the-issue/"><u>Unseen SD Card? Illuminate the Issue</u></a></li>
 </ul></div>
 

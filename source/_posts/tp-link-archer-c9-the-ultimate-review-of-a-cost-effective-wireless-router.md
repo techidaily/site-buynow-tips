@@ -1,7 +1,7 @@
 ---
 title: "TP-Link Archer C9: The Ultimate Review of a Cost-Effective Wireless Router"
-date: 2024-09-10T22:04:58.572Z
-updated: 2024-09-15T09:50:51.803Z
+date: 2024-09-16T16:13:54.808Z
+updated: 2024-09-20T16:42:28.845Z
 categories:
   - BestProducts
 description: "This Article Describes TP-Link Archer C9: The Ultimate Review of a Cost-Effective Wireless Router"
@@ -95,26 +95,13 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: Even better than advertised**
@@ -122,6 +109,13 @@ Lifewire / Erika Rawes
  TP-Link advertises the C80 as a router for three-bedroom homes. However, that estimate understates the router’s range capabilities. My home is a two-story, 3,000 square-foot residence with five-bedrooms, and I was able to maintain a stable Wi-Fi connection in every corner. Every closet, bathroom, and bedroom got a steady signal, and I experienced no dead zones whatsoever. Even in the garage, front yard, and backyard, the signal remained strong. It was only when I attempted to use multiple gaming and streaming devices at one time that I experienced any sort of lag.
 
  Every closet, bathroom, and bedroom maintained a signal, and I experienced no dead zones whatsoever.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: TP-Link Tether app**
 
@@ -140,10 +134,10 @@ Lifewire / Erika Rawes
  The TP-Link Archer C80 sells for $100, which is a reasonable price for the unit considering it offers fast speeds, dual-band connectivity, and technologies like MU-MIMO to enhance performance.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **TP-Link Archer C80 vs. TP-Link Archer A9**
@@ -191,15 +185,16 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-snap-and-save-games-the-nvidia-way/"><u>[Updated] 2024 Approved Snap & Save Games - The NVIDIA Way</u></a></li>
-<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-htc-u23-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On HTC U23 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-soundmojis-on-social-messaging-platforms/"><u>Behind the Scenes of Soundmojis on Social Messaging Platforms</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/capturing-lifes-moments-panasonic-wxf991-review/"><u>Capturing Life's Moments – Panasonic WXF991 Review</u></a></li>
-<li><a href="https://win11.techidaily.com/discover-the-finest-zero-cost-windows-media-devices/"><u>Discover the Finest Zero-Cost Windows Media Devices</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-the-topmate-c302-portable-laptop-chiller-does-it-deliver-on-affordability-and-effectiveness/"><u>Evaluating the TopMate C302 Portable Laptop Chiller: Does It Deliver on Affordability and Effectiveness?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-honor-80-pro-straight-screen-edition-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Honor 80 Pro Straight Screen Edition Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/macbook-pro-m1-chip-unveiled-an-expert-review-of-apples-latest-and-greatest-16-inch-notebook/"><u>MacBook Pro M1 Chip Unveiled: An Expert Review of Apple's Latest and Greatest 16-Inch Notebook</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/nickwatch-unboxing-the-star-studded-us-launch-during-the-2021-kids-choice-awards/"><u>NickWatch Unboxing: The Star-Studded US Launch During the 2021 Kids' Choice Awards</u></a></li>
-<li><a href="https://fox-that.techidaily.com/solve-these-simple-solutions-to-common-apple-pay-problems-in-minutes/"><u>Solve These Simple Solutions to Common Apple Pay Problems in Minutes</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-unveiling-the-secrets-to-snap-success/"><u>[New] In 2024, Unveiling the Secrets to Snap Success</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-zeroing-out-blemishes-how-to-use-psxs-eraser-tool/"><u>[Updated] Zeroing Out Blemishes How to Use PSX's Eraser Tool</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-the-insiders-guide-to-ultimate-audio-equipment/"><u>2024 Approved The Insider's Guide to Ultimate Audio Equipment</u></a></li>
+<li><a href="https://techtrends.techidaily.com/comprehensive-guide-to-fixing-problems-on-tiktok-app/"><u>Comprehensive Guide to Fixing Problems on TikTok App</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-realme-11x-5g-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Realme 11X 5G phone? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/introducing-amazon-halo-a-next-level-fitness-tracker-breaking-boundaries-in-personal-care/"><u>Introducing Amazon Halo: A Next-Level Fitness Tracker Breaking Boundaries in Personal Care</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/iphone-clones-meet-the-motorola-one-stunning-style-for-less-money/"><u>IPhone Clones? Meet the Motorola One: Stunning Style for Less Money</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lenovo-tab-m1n-hd-2020-revealed-your-ultimate-guide-to-budget-friendly-web-surfing-and-media-entertainment/"><u>Lenovo Tab M1n HD 2020 Revealed: Your Ultimate Guide to Budget-Friendly Web Surfing and Media Entertainment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximize-your-budget-holy-stone-hs170s-predator-mini-revealed-rc-helicopter-for-the-savvy-shopper/"><u>Maximize Your Budget: Holy Stone HS170's Predator Mini Revealed - RC Helicopter for the Savvy Shopper</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/motorolas-moto-g-play-a-closer-look-at-its-extended-battery-life-with-robust-operational-prowess/"><u>Motorola's Moto G Play - A Closer Look at Its Extended Battery Life with Robust Operational Prowess</u></a></li>
 </ul></div>
 

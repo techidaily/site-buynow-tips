@@ -1,7 +1,7 @@
 ---
 title: Review of Twelve South's Compact Traveler - A Masterclass in Portable Camping Gear
-date: 2024-09-09T16:08:59.745Z
-updated: 2024-09-14T21:26:10.859Z
+date: 2024-09-16T16:28:17.714Z
+updated: 2024-09-20T16:59:23.160Z
 categories:
   - BestProducts
 description: This Article Describes Review of Twelve South's Compact Traveler - A Masterclass in Portable Camping Gear
@@ -84,14 +84,14 @@ Lifewire / Rebecca Isaacs
 
 ![Mavix M9 Gaming Chair headrest ](https://www.lifewire.com/thmb/dk-8es8V-f2VzVltDiUNw0nCs2o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_02-acc7e137bc7a4b25837fbbe065ac1416.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Performance and Usage: Amazing day-to-day
 
@@ -105,13 +105,6 @@ Lifewire / Rebecca Isaacs
 
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/WWvjEhKERcoOvm-8u1GtzfLuV7M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_05-91c5a721612e45cbbdc432ec9ab67e4b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
 
  And even better, if you decide that a nap is in order but you’d prefer not to move, you can invoke the M9’s Extended Recline, which allows the chair to recline up to 127 degrees. If you’re feeling a nap, it’s great. Personally, using the entirety of the 127 degrees made me a little nervous, but the good news is that the degree recline is also adjustable.
@@ -120,6 +113,13 @@ Lifewire / Rebecca Isaacs
 
  Only want to go back a few degrees? You can adjust that thanks to the levers underneath the chair seat. This feature also helped relieve my back when I started feeling like I’d been sitting in the chair too long. It’s a great, relaxing addition.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: Hits the wallet hard
 
  For the price of $1,000, the Mavix M9 chair can be yours. That’s a lot of money to invest in a chair, especially when most places will charge a fraction of that for a desk chair. This isn’t just a desk chair, however—this is an ergonomic gamer’s chair, and as such, it’s designed to make gaming comfortable and easy. So, while it seems like a lot of money, realistically, you’re paying for a plethora of adjustability options, and ergonomics.
@@ -127,6 +127,13 @@ Lifewire / Rebecca Isaacs
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/_eJYTViir2syGINJQq7Fxl1ofHQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_04-d42bbf02273f4d0aa7c25351b201dc2c.jpg)
 
 Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Mavix M9 vs. XChair X4 Chair
 
@@ -145,13 +152,6 @@ Lifewire / Rebecca Isaacs
 * [FicMax Ergonomic Gaming Chair](https://www.lifewire.com/ficmax-ergonomic-gaming-chair-review-4771068)
 * [X Rocker 51396 Pro Series Pedestal 2.1 Gaming Chair](https://www.lifewire.com/x-rocker-51396-pro-series-pedestal-2-1-gaming-chair-review-4771021)
 * [Homall Executive Swivel Chair](https://www.lifewire.com/homall-executive-swivel-chair-review-4589356)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -180,19 +180,14 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-the-data-driven-odyssey-of-youtubes-statistical-storytelling-2017/"><u>[New] 2024 Approved The Data-Driven Odyssey of YouTube's Statistical Storytelling (2017)</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-ultra-30-by-garmin-exciting-new-technology-showcase/"><u>[New] 2024 Approved Ultra 30 by Garmin - Exciting New Technology Showcase</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-unlock-the-full-potential-of-game-recordings-in-w11/"><u>[New] 2024 Approved Unlock the Full Potential of Game Recordings in W11</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/caixuns-value-proposition-the-75-inch-android-tv-4k-budget-series-reviewed/"><u>Caixun's Value Proposition: The 75-Inch Android TV 4K Budget Series Reviewed!</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/decoding-script-annotations-slug-lines-explained/"><u>Decoding Script Annotations Slug Lines Explained</u></a></li>
-<li><a href="https://android-frp.techidaily.com/easy-guide-how-to-bypass-motorola-moto-g24-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Motorola Moto G24 FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://driver-download.techidaily.com/easy-steps-to-download-and-set-up-an-insignia-usb-to-vga-driver/"><u>Easy Steps to Download and Set Up an Insignia USB to VGA Driver</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fix-the-silent-problem-rapid-guide-for-astro-a50-audio-troubleshooting/"><u>Fix the Silent Problem: Rapid Guide for Astro A50 Audio Troubleshooting</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/inside-scoop-on-vive-cosmos-exceptional-vr-performance-despite-stiff-market-challenges/"><u>Inside Scoop on Vive Cosmos: Exceptional VR Performance Despite Stiff Market Challenges</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/master-chefs-in-mayhem-a-detailed-breakdown-of-overcooked-2s-scorching-gameplay/"><u>Master Chefs in Mayhem: A Detailed Breakdown of Overcooked! 2'S Scorching Gameplay</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-online-education-ranking-the-top-10-digital-learning-platforms/"><u>Mastering Online Education: Ranking the Top 10 Digital Learning Platforms</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/skagen-falster-2-analysis-elegant-competition-to-the-apple-series/"><u>Skagen Falster 2 Analysis: Elegant Competition to the Apple Series</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/understanding-components-a-primer-on-game-pc-building/"><u>Understanding Components: A Primer on Game PC Building</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-the-ultimate-journey-in-voice-coaching-changing-how-you-sound-for-2024/"><u>Updated The Ultimate Journey in Voice Coaching Changing How You Sound for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-journey-to-optimal-health-the-top-10-online-yoga-masters/"><u>[New] 2024 Approved Journey to Optimal Health - The Top 10 Online Yoga Masters</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-reclaim-lost-chatter-in-shared-tweeted-films/"><u>[New] In 2024, Reclaim Lost Chatter in Shared Tweeted Films</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-a-deep-dive-into-ideal-instagram-post-times-for-2024/"><u>[Updated] A Deep Dive Into Ideal Instagram Post Times for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-initiating-conversations-with-google-meet-for-2024/"><u>[Updated] Initiating Conversations with Google Meet for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-leading-edge-the-top-10-mobile-video-chat-platforms-for-2024/"><u>[Updated] Leading Edge The Top 10 Mobile Video Chat Platforms for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximizing-your-amazon-prime-experience-with-toshibas-55lf711u20-fire-tv-reviewed/"><u>Maximizing Your Amazon Prime Experience with Toshiba's 55LF711U20 Fire TV Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-fongos-offerings-a-guide-to-the-best-voip-service-for-canadians/"><u>Navigating Fongo's Offerings: A Guide to the Best VoIP Service for Canadians</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-through-nature-with-netgears-orbi-rbs50y-a-thorough-examination-of-outdoor-wifi-performance/"><u>Navigating Through Nature with Netgear's Orbi RBS50Y - A Thorough Examination of Outdoor WiFi Performance</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/two-ways-to-track-my-boyfriends-apple-iphone-6s-without-him-knowing-drfone-by-drfone-virtual-ios/"><u>Two Ways to Track My Boyfriends Apple iPhone 6s without Him Knowing | Dr.fone</u></a></li>
 </ul></div>
 

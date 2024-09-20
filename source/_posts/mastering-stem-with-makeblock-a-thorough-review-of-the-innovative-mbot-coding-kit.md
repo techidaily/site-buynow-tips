@@ -1,7 +1,7 @@
 ---
 title: Mastering STEM with Makeblock – A Thorough Review of the Innovative mBot Coding Kit
-date: 2024-09-11T06:34:07.648Z
-updated: 2024-09-15T00:20:24.870Z
+date: 2024-09-16T16:57:50.069Z
+updated: 2024-09-20T16:41:06.889Z
 categories:
   - BestProducts
 description: This Article Describes Mastering STEM with Makeblock – A Thorough Review of the Innovative mBot Coding Kit
@@ -83,27 +83,20 @@ Lifewire / Erika Rawes
 
  Overall, I really appreciate the design of the new Dot. Modern and elegant, it fits into my living room, kitchen, or bedroom, as it doesn’t have a cold feel that takes away from the space. The 4th-Gen Dot is made from environmentally conscious materials like post-consumer recycled plastics and fabrics, thus securing it a “Climate Pledge Friendly” tag on Amazon.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Easy as ever**
 
 [Setting up the Echo Dot](https://www.lifewire.com/set-up-amazon-echo-4153561) is simple, especially if you already have the Alexa app downloaded. In the Alexa app, you just go to the devices menu, select on the “+” to add a device, and follow the prompts to add the Echo Dot 4th Gen speaker. The process only takes a moment.
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/dVUkRuy5SxFHmCHXxSseZY5tjhw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-3-320d298cdb18405d9d326c272464ef0d.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Sound Quality: A front-firing speaker**
 
@@ -131,6 +124,13 @@ Lifewire / Erika Rawes
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/bnVMEDjyf8t4zDkpRwr4-5msD2s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-7-with-Clock-9b93a56f3d0049c5a2064cd4b21c7cb5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
  It actually makes a huge difference in the looks of the Dot speaker. The addition of the clock improves the aesthetics big time, making the Dot look less like a speaker and more like a really cool smart clock. Because the Dot is round, it ends up having a large space on the front—almost like a face; it's a perfect home for the clock display.
@@ -139,27 +139,20 @@ Lifewire / Erika Rawes
 
  I like the Echo Dot (4th Gen) with Clock better than the regular Echo Dot (4th Gen), as the regular version feels like it’s missing something.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: $60 with clock, $50 without**
 
  The Echo Dot (4th Gen) retails for $50, and for $10 more, you can pick up the “with clock” version. The clock is very much worth it simply because the device looks so much better with it (aside from the obvious added functionality), and for first-time buyers, the default model is definitely worth $50\. It looks great, sounds good, and provides an affordable way to access Alexa and control your smart home.
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/fdW9QpFUSBjNMTYTGdjFggaOH9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-5-Comparison-6841e2f32a734282b509976489bd0383.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Amazon Echo Dot (4th Gen) vs. Apple HomePod Mini**
 
@@ -170,6 +163,13 @@ Lifewire / Erika Rawes
 **Primarily a design upgrade.**
 
  The new Echo Dot is a great speaker at a great price, but it’s not worth an upgrade if you already have the 3rd-gen Dot unless you’re going with the clock version. For first time buyers, it's a no-brainer.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -203,18 +203,20 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-the-best-voice-altering-software-for-your-virtual-persona/"><u>[New] 2024 Approved The Best Voice-Altering Software for Your Virtual Persona</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-dissecting-freecapture-a-software-review/"><u>[New] In 2024, Dissecting FreeCapture A Software Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-cost-and-quality-in-routers-with-the-tp-link-archer-c50-analysis/"><u>Evaluating Cost and Quality in Routers with the TP-Link Archer C50 Analysis</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-the-performance-of-the-lightweight-audew-portable-air-compressor-pump/"><u>Evaluating the Performance of the Lightweight Audew Portable Air Compressor Pump</u></a></li>
-<li><a href="https://change-location.techidaily.com/home-button-not-working-on-honor-magic-v2-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Honor Magic V2? Here Are Real Fixes | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Lenovo ThinkPhone | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-assessment-how-the-portable-and-powerful-pioneer-bdr-xs06-blu-ray-burner-stacks-up-in-performance/"><u>In-Depth Assessment: How the Portable and Powerful Pioneer BDR-XS06 Blu-Ray Burner Stacks Up in Performance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ipad-pro-vs-surface-pro-a-comprehensive-guide-to-their-unique-features/"><u>IPad Pro Vs. Surface Pro: A Comprehensive Guide to Their Unique Features</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/taking-a-step-back-inverting-image-queries-in-instagram/"><u>Taking a Step Back Inverting Image Queries in Instagram</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/testing-google-pixel-6s-photography-prowess-a-detailed-assessment/"><u>Testing Google Pixel 6'S Photography Prowess - A Detailed Assessment</u></a></li>
-<li><a href="https://discover-best.techidaily.com/top-rated-dvd-to-mp4-converter-for-windows-11-streamline-your-media-transformation/"><u>Top Rated DVD to MP4 Converter for Windows 11 : Streamline Your Media Transformation!</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/ultra-wide-curved-display-with-quantum-dot-technology-wqhd-resolution/"><u>Ultra-Wide Curved Display with Quantum Dot Technology - WQHD Resolution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unpacking-the-twelve-south-compass-pro-designed-for-unwavering-precision/"><u>Unpacking the Twelve South Compass Pro - Designed for Unwavering Precision</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-explore-our-top-5-affordable-keyboards-to-boost-your-gameplay/"><u>[New] Explore Our Top 5 Affordable Keyboards to Boost Your Gameplay</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-digital-rights-unexpected-content-take-downs/"><u>[Updated] Digital Rights Unexpected Content Take-Downs</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-bypass-activation-lock-on-iphone-11-by-drfone-ios/"><u>3 Effective Ways to Bypass Activation Lock on iPhone 11</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-vivo-s18-pro-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Vivo S18 Pro</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-13t-pro-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Xiaomi 13T Pro Phone Without Password?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-nokia-c32-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Nokia C32</u></a></li>
+<li><a href="https://win-able.techidaily.com/speeding-up-origin-proven-techniques-to-enhance-download-velocity/"><u>Speeding Up Origin: Proven Techniques to Enhance Download Velocity</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-case-for-pc-top-9-arguments-against-macs/"><u>The Case for PC: Top 9 Arguments Against Macs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-oneplus-8t-phablet-reviewed-impressive-velocity-undermined-by-patchy-photography-capabilities/"><u>The OnePlus 8T Phablet Reviewed: Impressive Velocity Undermined by Patchy Photography Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-perfect-blend-of-power-and-portability-unveiling-the-secrets-behind-the-lenovo-thinkpad-x1-titanium-yoga-a-2-in-1-laptop-that-will-satisfy-even-the-most120/"><u>The Perfect Blend of Power and Portability - Unveiling the Secrets Behind the Lenovo ThinkPad X1 Titanium Yoga: A 2-in-1 Laptop That Will Satisfy Even the Most Demanding ThinkPad Fans</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-poweradd-pilot-pro2-reassessed-its-impact-on-charging-efficiency-across-various-devices/"><u>The PowerADD Pilot Pro2 Reassessed: Its Impact on Charging Efficiency Across Various Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-sclera-is-the-tough-outer-layer-that-helps-protect-and-maintain-the-shape-of-the-eyeball-damage-to-the-sclera-would-likely-cause-structural-issues-or-pa104/"><u>The Sclera Is the Tough Outer Layer that Helps Protect and Maintain the Shape of the Eyeball. Damage to the Sclera Would Likely Cause Structural Issues or Pain Rather than Isolated Visual Impairment for a Specific Object.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-dbpower-600a-18000mah-jump-starters-features-and-benefits/"><u>The Ultimate Guide to the DBPOWER 600A, 18000mAh Jump Starter's Features and Benefits</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-10-learning-platforms-for-exceptional-online-course-experiences/"><u>Top 10 Learning Platforms for Exceptional Online Course Experiences</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-overwatch-insights-competitive-and-teamwork-focused-third-person-combat/"><u>Top Overwatch Insights: Competitive and Teamwork Focused Third-Person Combat</u></a></li>
 </ul></div>
 

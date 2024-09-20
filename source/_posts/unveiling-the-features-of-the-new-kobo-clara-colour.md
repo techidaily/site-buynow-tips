@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Features of the New Kobo Clara Colour
-date: 2024-09-10T04:25:25.537Z
-updated: 2024-09-15T06:58:39.389Z
+date: 2024-09-16T16:32:59.521Z
+updated: 2024-09-20T17:15:44.261Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Features of the New Kobo Clara Colour
@@ -73,33 +73,20 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
- Lifewire / Emily Ramirez
-
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Emily Ramirez
 
 ## **Setup Process/Installation: Easy install, irritating setup**
 
@@ -113,6 +100,13 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Audio: Excellent sound**
 
  Once the EQ effects are turned off, the Sound Blaster ZxR provides beautiful sound. While it wasn’t quite as clean or crisp as an enthusiast audiophile amplifier, such as the OPPO HA-1, it was solid for a system that costs a quarter of the HA-1’s price. On the HD-800s, the bass came across slightly muddy, but the ZxR provides solid quality for consumer-grade headphones like the Sennheiser GSP300 or the Sony MDR-7506\. As our our[headphone buying guide](https://www.lifewire.com/headphones-buying-guide-4172763) suggests, most headphones under $250 will not be sensitive enough to meaningfully distinguish between the ZxR and the HA-1.
@@ -121,20 +115,14 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Lots of options with mixed utility**
 
@@ -168,17 +156,17 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -218,17 +206,21 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-10-easy-youtube-video-ideas-everyone-can-make-it/"><u>[New] In 2024, 10 Easy YouTube Video Ideas Everyone Can Make It</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-dive-into-action-4-easy-steps-for-audience-captivating-instagram-loops/"><u>[Updated] 2024 Approved Dive Into Action 4 Easy Steps for Audience-Captivating Instagram Loops</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-androids-latest-advancements-for-immersive-video-viewing/"><u>[Updated] Android's Latest Advancements for Immersive Video Viewing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/giro-vocale-dei-numeri-in-italiano-1-1000/"><u>Giro Vocale Dei Numeri in Italiano - 1-1000</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-infinix-hot-30i-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Infinix Hot 30i Fingerprint Lock</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-effortlessly-convert-youtube-audio-top-4-low-cost-apps/"><u>In 2024, Effortlessly Convert YouTube Audio - Top 4 Low-Cost Apps</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-oppo-reno-8t-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Oppo Reno 8T to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-photography-with-darktable-advanced-raw-image-processing-on-mac-and-linux/"><u>Revolutionize Your Photography with Darktable: Advanced RAW Image Processing on Mac & Linux</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-building-an-empire-in-offworld-trading-company-a-strategic-business-gameplay-analysis/"><u>The Ultimate Guide to Building an Empire in Offworld Trading Company - A Strategic Business Gameplay Analysis</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/ultimate-live-streaming-selection-guide-for-2024/"><u>Ultimate Live Streaming Selection Guide for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-benefits-of-nokias-newest-model-the-perfect-entry-device/"><u>Unveiling the Benefits of Nokia's Newest Model - The Perfect Entry Device</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ws-2902a-ambient-weather-station-by-osprey-comprehensive-review-high-performance-at-affordable-price/"><u>WS-2902A Ambient Weather Station by Osprey: Comprehensive Review - High Performance at Affordable Price</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-solidify-zoom-sounds-avoid-amplified-annoyances/"><u>[New] Solidify Zoom Sounds Avoid Amplified Annoyances</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-top-10-aerial-crews-masters-of-photo-and-film-for-2024/"><u>[New] Top 10 Aerial Crews Masters of Photo & Film for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-leveraging-instagrams-music-icon-feature-effectively/"><u>[Updated] In 2024, Leveraging Instagram’s Music Icon Feature Effectively</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-importance-of-understanding-asmr-media/"><u>[Updated] In 2024, The Importance of Understanding ASMR Media</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-a-beginners-guide-to-creating-impactful-slug-lines/"><u>2024 Approved A Beginner's Guide to Creating Impactful Slug Lines</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-navigating-the-best-10-vector-stock-pools/"><u>2024 Approved Navigating the Best 10 Vector Stock Pools</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/best-5-chrome-os-clipping-utilities-ranked-for-2024/"><u>Best 5 Chrome OS Clipping Utilities, Ranked for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-the-mobvoi-ticwatch-pro-navigator-enhanced-battery-performance-unveiled/"><u>Comprehensive Guide to the Mobvoi TicWatch Pro Navigator - Enhanced Battery Performance Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/crafting-an-intergalactic-empire-an-in-depth-analysis-of-offworld-trading-companys-ruthless-economy/"><u>Crafting an Intergalactic Empire: An In-Depth Analysis of Offworld Trading Company's Ruthless Economy</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/does-bigger-mean-better-uncover-the-truth-about-apple-iphone-12-pro-max/"><u>Does Bigger Mean Better? Uncover the Truth About Apple iPhone 12 Pro Max</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elevating-user-experience-the-case-for-spotifys-high-tier/"><u>Elevating User Experience: The Case for Spotify's High Tier</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/examining-performance-fluctuations-in-seatechs-portable-blu-ray-burner-for-external-usb-use/"><u>Examining Performance Fluctuations in SeaTech's Portable Blu-Ray Burner for External USB Use</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-seamless-digital-literacy-with-the-durable-kobo-libra-h2o-a-full-review/"><u>Experience Seamless Digital Literacy with the Durable Kobo Libra H2O - A Full Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-superior-reception-with-clearstream-2v-all-in-one-hdtv-antenna-a-comprehensive-review/"><u>Experience Superior Reception with ClearStream 2V All-in-One HDTV Antenna - A Comprehensive Review</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-raw-footage-to-high-quality-mpeg-youtube-conversion-techniques/"><u>In 2024, From Raw Footage to High-Quality MPEG YouTube Conversion Techniques</u></a></li>
+<li><a href="https://driver-download.techidaily.com/the-fast-track-easy-asus-maximus-x-hero-motherboard-driver-updates/"><u>The Fast Track: Easy ASUS Maximus X Hero Motherboard Driver Updates</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Microsoft Surface Go Review
-date: 2024-09-09T09:51:05.033Z
-updated: 2024-09-15T02:52:43.624Z
+date: 2024-09-15T17:00:54.155Z
+updated: 2024-09-20T16:48:24.228Z
 categories:
   - BestProducts
 description: This Article Describes Microsoft Surface Go Review
@@ -120,10 +120,16 @@ Lifewire / Matthew S. Smith
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/MrzPvS6-5_LUBvEOlNjt4wv1BTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-3-e45e7bbc46054a69b2065cedce12519a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
@@ -141,13 +147,6 @@ Lifewire / Matthew S. Smith
  Keyboard backlighting is standard. It’s not bright enough to be obvious in a well-lit room but is effective in dark spaces.
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/ZfUq7KgSBkLGGlcycJhWShrQqeg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-5-cc97b158ae2a4aad85a9527ff97d0a76.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -171,6 +170,13 @@ Lifewire / Matthew S. Smith
 
  An IR camera is standard, so[Windows Hello](https://www.lifewire.com/what-is-windows-hello-4782168) facial recognition login is supported. This feature is easy to enable and extremely quick once set up. It works well in poor or uneven lighting.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Battery: It’s good, but don’t believe the hype
 
  Microsoft says the Surface Laptop 4 will last up to 19 hours on a charge. The laptop might be capable of hitting that number, but it’s misleading. Real-world battery life is much less than Microsoft’s ads would have you believe.
@@ -183,16 +189,16 @@ Lifewire / Matthew S. Smith
 
  You can drain the battery more quickly, however. I used the laptop for an hour-long session of heavier photo editing in GIMP and chewed through about 20 percent of the battery. This is a downside of the laptop’s fast six-core processor.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Software: Keep It Stock
 
  The Surface Laptop 4 ships with[Windows 10 Home](https://www.lifewire.com/windows-10-home-vs-pro-4177144) installed. There’s otherwise not much to say about the software which, for most people, will be good news. The Laptop 4’s stock Windows installation has zero bloatware.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Price: It’s not cheap, but it’s good value
 
@@ -211,10 +217,10 @@ Lifewire / Matthew S. Smith
  I think most buyers will be happy with either laptop, but the Laptop 4’s performance feels worth the extra $100\.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Microsoft Surface Laptop 4 vs. Apple MacBook Air
@@ -235,18 +241,18 @@ Lifewire / Matthew S. Smith
 
  Microsoft’s Surface Laptop 4 is one of the best Windows laptops available today. Its design is attractive, yet functional, and it delivers great performance for the price. The Surface Laptop 4 can’t overcome Apple’s competing MacBooks, but it’s a great pick if you want to stick with Windows.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Microsoft Surface Laptop Go](https://www.lifewire.com/microsoft-surface-laptop-go-review-5088869)
 * [Microsoft Surface Pro 7](https://www.lifewire.com/microsoft-surface-pro-7-review-4797020)
 * [Microsoft's Surface Laptop 2](https://www.lifewire.com/microsoft-surface-laptop-2-review-4779760)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -282,20 +288,19 @@ Lifewire / Matthew S. Smith
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-high-seas-of-soundtracking-leading-destinations-for-hearing-heroes-tts-downloads/"><u>[New] High Seas of Soundtracking Leading Destinations for Hearing Heroes' TTS Downloads</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-in-depth-guide-to-maximizing-creativity-with-picsart/"><u>[New] In-Depth Guide to Maximizing Creativity with PicsArt</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-precision-editing-made-simple-with-youtube-studio-tools/"><u>[New] Precision Editing Made Simple with YouTube Studio Tools</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unlocking-the-secrets-of-instagrams-saved-content/"><u>[Updated] 2024 Approved Unlocking the Secrets of Instagram's Saved Content</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-slimmed-down-cloud-keeping-at-low-cost-high-space-for-2024/"><u>[Updated] Slimmed-Down Cloud Keeping at Low Cost, High Space for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apple-showdown-unveiling-the-contrasts-between-ipad-pro-and-macbook-pro/"><u>Apple Showdown: Unveiling the Contrasts Between IPad Pro & MacBook Pro</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/budget-and-performance-combined-expert-analysis-of-the-tp-link-archer-a6-ac1200-wireless-router/"><u>Budget and Performance Combined: Expert Analysis of the TP-Link Archer A6 AC1200 Wireless Router</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/chromecast-vs-firetv-a-detailed-review-of-the-new-google-tv-feature/"><u>Chromecast vs FireTV - A Detailed Review of the New Google TV Feature</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/detailed-review-of-the-versatile-omnicharge-omni-20-portable-power-bank-now-with-qi-wireless-technology/"><u>Detailed Review of the Versatile Omnicharge Omni 20 Portable Power Bank - Now with Qi Wireless Technology!</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Oppo Reno 11F 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-the-netgear-nighthawk-ax8-mesh-range-extender-shapes-up-in-the-era-of-wi-fi-6-an-essential-review/"><u>How the Netgear Nighthawk AX8 Mesh Range Extender Shapes Up in the Era of Wi-Fi 6 – An Essential Review</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-honor-70-lite-5g-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Honor 70 Lite 5G.</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-from-concept-to-reality-the-best-professional-animation-software/"><u>In 2024, From Concept to Reality The Best Professional Animation Software</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ideal-pocket-wi-fi-hotspot-explore-the-world-with-tp-links-wr902-ac-travel-router/"><u>The Ideal Pocket Wi-Fi Hotspot: Explore the World with TP-Link's WR902 AC Travel Router</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-transformed-amazon-echo-dot-gen-4-review-an-overview-of-upgrades-and-aesthetics/"><u>The Transformed Amazon Echo Dot Gen 4 Review: An Overview of Upgrades and Aesthetics</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/onquering-viewersphere-channels-that-rule-the-net/"><u>[New] Conquering Viewersphere Channels that Rule the Net</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-deciding-the-best-skype-audio-capture-of-2023/"><u>[New] In 2024, Deciding the Best Skype Audio Capture of 2023</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-connoisseurs-guide-to-youtube-music-orchestration/"><u>[New] The Connoisseur's Guide to YouTube Music Orchestration</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-easeus-reviewed-a-world-of-technology/"><u>[Updated] EaseUS Reviewed A World of Technology</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-dimensions-and-edits-the-imovie-crop-enigma/"><u>2024 Approved Dimensions and Edits The iMovie Crop Enigma</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-personalizing-your-profile-with-fb-slideshow-content/"><u>2024 Approved Personalizing Your Profile with FB Slideshow Content</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-scaling-your-channel-a-guide-to-increased-viewership-and-followers/"><u>2024 Approved Scaling Your Channel A Guide to Increased Viewership and Followers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-teac-pd-301-where-tasteful-style-meets-premium-sound/"><u>Exploring Teac PD-301: Where Tasteful Style Meets Premium Sound</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/harmonious-innovation-with-nest-audio-elevating-the-tunes-of-passionate-listeners/"><u>Harmonious Innovation with Nest Audio – Elevating the Tunes of Passionate Listeners</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-huion-inspiroy-g10t-a-masterpiece-in-premium-artistic-tools/"><u>In-Depth Analysis of Huion Inspiroy G10T - A Masterpiece in Premium Artistic Tools</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-moto-g-plays-outstanding-battery-capacity-and-competitive-specs/"><u>In-Depth Analysis of Moto G Play's Outstanding Battery Capacity & Competitive Specs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-ring-doorbell-plus-with-new-batteries/"><u>In-Depth Analysis of the Ring Doorbell Plus with New Batteries</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/step-by-step-mastery-how-to-design-your-vr-alter-egos-efficiently/"><u>Step-by-Step Mastery How to Design Your VR Alter Egos Efficiently</u></a></li>
+<li><a href="https://driver-error.techidaily.com/understanding-and-resolving-problems-with-outdated-usb-composite-gadgets/"><u>Understanding and Resolving Problems With Outdated USB Composite Gadgets</u></a></li>
 </ul></div>
 

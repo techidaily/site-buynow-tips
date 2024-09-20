@@ -1,7 +1,7 @@
 ---
 title: Top Tips on Evaluating Refurbished Devices
-date: 2024-09-10T12:23:41.579Z
-updated: 2024-09-15T11:10:02.748Z
+date: 2024-09-16T16:23:47.494Z
+updated: 2024-09-20T16:40:13.444Z
 categories:
   - BestProducts
 description: This Article Describes Top Tips on Evaluating Refurbished Devices
@@ -85,6 +85,13 @@ Lifewire / Jeff Dojillo
 
  While testing the GoPro HERO7 Black we noticed that the body of the device becomes very hot when used for long periods of time. We tested it for a few hours nonstop and noticed it was still very warm even when it was not recording. This can be a big concern if the device is used for long recordings in hot temperatures.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Display: Bright and visible**
 
  The back of the GoPro HERO7 Black has a two-inch touchscreen that is bright and easy to read. While testing the camera, we were able to navigate through the menus with the single touch of a finger, which are intuitive and easy to adjust. Simply tap to select.
@@ -98,13 +105,6 @@ Lifewire / Jeff Dojillo
  The HERO7 Black has both Wi-Fi and Bluetooth compatibility, which makes it easy to pair with a smartphone that has the GoPro App downloaded. We were able to make the camera discoverable in the Preferences menu, and then the app could automatically scan and connect to the camera when it was opened.
 
  Lifewire / Jeff Dojillo
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Sensor: Small but mighty**
 
@@ -132,13 +132,6 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Photo Quality: Nothing to brag about**
 
  The photo quality on the GoPro HERO7 Black is average, though it does have the ability to create HDR (High Dynamic Range) images.
@@ -159,13 +152,6 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Connectivity: Speedy Wi-Fi and Bluetooth pairing**
 
  Wifi and Bluetooth connectivity is a breeze with the GoPro HERO7 Black. Once we installed the GoPro app on our smartphone, the camera connected instantly. The app also gave us a much larger and easier-to-read interface, plus a live view function that allowed us to use our phone to frame and compose videos and remotely control the camera.
@@ -178,6 +164,13 @@ Lifewire / Jeff Dojillo
 
  Another option to extend shooting time would be to connect the GoPro HERO7 Black to an external battery pack via the[USB port.](https://www.lifewire.com/what-is-a-usb-port-818166)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Fairly priced for what you get**
 
  Retailing for $400 but often selling for less, the GoPro HERO7 Black is reasonably priced for its amazing features. 4K recording, HyperSmooth image stabilization, high frame rates, Bluetooth connectivity, a waterproof body, and live streaming features make this camera well worth the asking price.
@@ -185,6 +178,13 @@ Lifewire / Jeff Dojillo
  Perfect for adventurers, filmmakers, and vloggers that need a rugged and compact camera to create content on the go.
 
  The portability of the GoPro HERO7 Black is perfect for adventurers, filmmakers, and vloggers that need a rugged and compact camera to create content on the go.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Less rugged, but better with still photography**
 
@@ -209,16 +209,10 @@ Lifewire / Jeff Dojillo
  Between the amazing video quality and the enhanced HyperSmooth electronic image stabilization, the GoPro HERO7 Black is perfect for adventurers who want to record or even live-stream their most rugged expeditions. It produces beautiful videos with enhanced color and sharpness and is small enough to wear or mount somewhere without it getting in the way.
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -228,10 +222,10 @@ Lifewire / Jeff Dojillo
 * [Sony DSC-W800](https://www.lifewire.com/sony-dsc-w800-review-4589510)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -265,16 +259,21 @@ Lifewire / Jeff Dojillo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://program-issues.techidaily.com/effective-ways-to-stop-genshin-impact-from-exiting-unexpectedly-during-pc-playthrough/"><u>Effective Ways to Stop Genshin Impact From Exiting Unexpectedly During PC Playthrough</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/enhancing-your-well-being-with-fitbit-sense-the-ideal-rival-to-apples-timepiece/"><u>Enhancing Your Well-Being with Fitbit Sense - The Ideal Rival to Apple's Timepiece</u></a></li>
-<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-honor-x50-gt-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Honor X50 GT | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-transfer-google-photos-to-icloud/"><u>How to Transfer Google Photos to iCloud</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Oppo A1x 5G? | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-crafting-visual-stories-select-the-best-ig-video-editors/"><u>In 2024, Crafting Visual Stories Select the Best IG Video Editors</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-google-pixel-8-pro-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Google Pixel 8 Pro Phones</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/new-how-to-get-more-nfl-viewers-for-your-sports-live-streaming-channel-for-2024/"><u>New How To Get More NFL Viewers For Your Sports Live Streaming Channel for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/resilient-and-affordable-the-new-coolpix-w100-review/"><u>Resilient and Affordable - The New Coolpix W100 Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/roku-transforms-viewing-high-def-sound-and-streaming/"><u>Roku Transforms Viewing: High-Def Sound and Streaming</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-elite-lineup-of-usb-wi-fi-dongles-for-the-modern-era/"><u>The Elite Lineup of USB Wi-Fi Dongles for the Modern Era</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-elite-exploration-the-new-parrot-ar-edition/"><u>[New] In 2024, Elite Exploration The New Parrot AR Edition</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-pinnacle-of-picture-perfection-top-10-screens/"><u>[New] Pinnacle of Picture Perfection Top 10 Screens</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-inverting-photo-colors-with-advanced-tools/"><u>2024 Approved Inverting Photo Colors with Advanced Tools</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-nokia-g42-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Nokia G42 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-essential-reviews-for-a-child-safe-screen-experience-amazing-kids-fire-hd-10-tablet-insights-and-controls/"><u>Discover Essential Reviews for a Child-Safe Screen Experience: Amazing Kid’s Fire HD 10 Tablet Insights & Controls</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-leading-asus-wi-fi-routers-for-202-cuyano-the-ultimate-list/"><u>Discover the Leading ASUS Wi-Fi Routers for 202 Cuyano - The Ultimate List</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-strengths-and-weaknesses-of-fongo-a-canadian-based-voip-platform/"><u>Discovering the Strengths and Weaknesses of Fongo - A Canadian-Based VOIP Platform</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-performance-the-garmin-forerunner-745-as-the-ultimate-tracker-for-fitness-buffs/"><u>Evaluating Performance: The Garmin Forerunner 745 as the Ultimate Tracker for Fitness Buffs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-lenovo-thinkpad-x1-fold-a-revolutionary-folding-laptop-with-ups-and-downs/"><u>Exploring the Lenovo ThinkPad X1 Fold: A Revolutionary Folding Laptop with Ups and Downs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/from-everyday-to-elite-discovering-why-furbos-dog-camera-eclipses-all-others/"><u>From Everyday to Elite: Discovering Why Furbo's Dog Camera Eclipses All Others</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-does-netgears-hefty-powerline-1200-design-impact-its-internet-speed-a-comprehensive-review/"><u>How Does Netgear's Hefty Powerline 1200 Design Impact Its Internet Speed? A Comprehensive Review</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-lava-yuva-2-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Lava Yuva 2 Pattern Lock Screen</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Vivo Y56 5G? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-guide-to-understanding-snappy-driver-installer-v113-performance/"><u>The Ultimate Guide to Understanding Snappy Driver Installer v1.13 Performance</u></a></li>
+<li><a href="https://techidaily.com/things-you-dont-know-about-vivo-y36i-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Vivo Y36i Reset Code | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/understanding-pewdiepies-annual-net-worth/"><u>Understanding PewDiePie's Annual Net Worth</u></a></li>
 </ul></div>
 

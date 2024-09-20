@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Look at the Maisto RC Rock Crawler: Great for Families!"
-date: 2024-09-12T11:55:02.618Z
-updated: 2024-09-15T09:13:58.259Z
+date: 2024-09-16T17:03:39.448Z
+updated: 2024-09-20T16:33:50.290Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Look at the Maisto RC Rock Crawler: Great for Families!"
@@ -73,18 +73,18 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -99,19 +99,19 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
@@ -135,6 +135,13 @@ Lifewire / Emily Ramirez
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
 
@@ -160,13 +167,6 @@ Lifewire / Emily Ramirez
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -206,18 +206,21 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-visual-consistency-through-masterful-use-of-luts-in-ae/"><u>[Updated] 2024 Approved Visual Consistency Through Masterful Use of LUTs in AE</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-crack-the-code-of-content-discovery-on-facebook/"><u>2024 Approved Crack the Code of Content Discovery on Facebook</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/bringing-color-to-your-gameplay-viewsonics-240hz-xg272-oled-monitor-reviewed-in-detail/"><u>Bringing Color to Your Gameplay: ViewSonic's 240Hz XG272 OLED Monitor Reviewed in Detail</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discovering-the-mobvoi-ticwatch-pro-an-innovative-4g-smartwatch-reviewed-for-tech-enthusiasts/"><u>Discovering the Mobvoi Ticwatch Pro: An Innovative 4G Smartwatch Reviewed for Tech Enthusiasts</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723207234094-fix-the-broken-backspace-button-solutions-and-tips-inside/"><u>Fix the Broken Backspace Button – Solutions and Tips Inside</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-realme-12-pro-5g-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Realme 12 Pro 5G to iPhone 14 and 15 | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-magic-v2-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Honor Magic V2 Phone without Google Account?</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor Magic 6 Lite | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/marvels-spider-man-miles-morales-review-smaller-focus-bigger-impact/"><u>Marvel’s Spider-Man: Miles Morales Review: Smaller Focus, Bigger Impact</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/mastering-the-basics-a-user-friendly-process-of-reinitializing-your-samsung-televisual-equipment/"><u>Mastering the Basics: A User-Friendly Process of Reinitializing Your Samsung Televisual Equipment</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/samsungs-curvy-path-to-excellence-a-deep-dive-into-the-55-ru7300-tv-review/"><u>Samsung's Curvy Path to Excellence: A Deep Dive Into the 55 RU7300 TV Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-assessment-of-aeonys-compact-solar-generator-pure-sine-wave-featured-for-critical-healthcare-gear/"><u>The Ultimate Assessment of Aeonys' Compact Solar Generator: Pure Sine Wave Featured for Critical Healthcare Gear</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-mac-mouse-options/"><u>Top-Rated Mac Mouse Options</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixed-euro-truck-simulator-2-crashes-pc/"><u>[FIXED] Euro Truck Simulator 2 Crashes PC</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-crafting-high-quality-igtv-footage-on-smartphonesdslrs/"><u>[New] In 2024, Crafting High-Quality IGTV Footage on Smartphones/DSLRs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-simplifying-complications-in-youtube-shorts/"><u>[Updated] 2024 Approved Simplifying Complications in YouTube Shorts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/acer-aspire-e-n-analysis-exceptional-performance-at-wallet-friendly-prices/"><u>Acer Aspire E N Analysis - Exceptional Performance at Wallet-Friendly Prices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-mac-mini-m1-2020-review-surpassing-competitors-in-the-arm-powered-pc-arena/"><u>Apple Mac Mini (M1, 2020) Review: Surpassing Competitors in the ARM-Powered PC Arena</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/asus-vivobook-11-reviewed-an-ideal-blend-of-miniature-design-and-cost-efficiency-for-everyday-use/"><u>ASUS VivoBook 11 Reviewed: An Ideal Blend of Miniature Design and Cost-Efficiency for Everyday Use</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/big-screen-laptop-assessment-reviewing-pros-and-cons-of-asus-x441ba/"><u>Big-Screen Laptop Assessment: Reviewing Pros and Cons of Asus X441BA</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/boost-your-computers-display-quality-with-the-right-graphics-card-upgrade-techniques/"><u>Boost Your Computer’s Display Quality with the Right Graphics Card Upgrade Techniques</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-buyers-guide-to-the-fellowes-microban-corded-keyboard-experience/"><u>Budget Buyer's Guide to the Fellowes Microban Corded Keyboard Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-defense-reviewed-an-expert-look-at-procases-macbook-pro-13-case/"><u>Budget-Friendly Defense Reviewed: An Expert Look at ProCase’s MacBook Pro 13 Case</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discover-the-future-of-learning-with-lifewire-best-15-costless-ai-educational-programs-available-anywhere-anytime/"><u>Discover the Future of Learning with Lifewire - Best 15 Costless AI Educational Programs Available Anywhere, Anytime!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-newest-rtx-2nvidia-2060-super-drivers-compatible-with-both-windows-10-and-11-free-download/"><u>Get the Newest RTX 2Nvidia 2060 Super Drivers: Compatible with Both Windows 10 and 11 - FREE Download</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-infinix-note-30-vip-racing-edition-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Infinix Note 30 VIP Racing Edition phone? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-samsung-galaxy-xcover-6-pro-tactical-edition-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Samsung Galaxy XCover 6 Pro Tactical Edition for Free? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/age-tubebuddy-for-top-tier-youtube-management-for-2024/"><u>Leverage TubeBuddy for Top-Tier YouTube Management for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/top-security-accessories-for-webcams-for-2024/"><u>Top Security Accessories for Webcams for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of the TP-Link RE305 Wireless Network Enhancer (AC1200)
-date: 2024-09-09T06:05:40.753Z
-updated: 2024-09-15T03:05:32.422Z
+date: 2024-09-15T16:21:32.127Z
+updated: 2024-09-20T16:59:45.799Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of the TP-Link RE305 Wireless Network Enhancer (AC1200)
@@ -75,6 +75,13 @@ Lifewire / Claire Cohen
 
  There's an[Ethernet port](https://www.lifewire.com/what-is-an-ethernet-port-817546) at the bottom of the device as well as a pinhole reset button, just in case it needs rebooted at any point. It's a bit awkward to hang an[Ethernet cord](https://www.lifewire.com/what-is-an-ethernet-cable-817548) from the extender depending on where you've placed it in your home, but it's a useful addition to bring Ethernet to a desktop, TV, or gaming console without having to put holes in your wall.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Simple and quick**
 
  Setup is extremely simple. There's no software required to install with the RE305, and it’s very quick to set up. It takes a matter of minutes to get it up and running via a web browser. There's a Quick Installation Guide included that outlines out the process. We found it painless to follow.
@@ -82,6 +89,13 @@ Lifewire / Claire Cohen
  First, you plug in the extender to an outlet, then use any computer to connect to its network. After plugging it into an outlet, we found that it popped up immediately on our MacBook Pro's available wireless network list. Once connected to the network, setup is done via the web address listed on the guide.
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/PS8-Iywv5MsnOo99Fir-jNOiPF8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-4-5c924206c9e77c0001ff0bb8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
 
@@ -93,19 +107,6 @@ Lifewire / Claire Cohen
 
  There is one important pain point, however, to keep in mind during setup. The extender's administrative password utilizes a default "admin/admin" login, so you'll want to change that to keep unauthorized users out. It can be changed via the TP-Link Tether app, which isn't clearly lined out in the instructions. It isn't required, but if you want to keep your network as secure as possible, it's an important part of setup.
 
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Connectivity and Network Performance:** **Strong, multi-device connectivity**
 
  Several devices were connected to our wireless network, including a MacBook Pro,[iPhone X](https://www.lifewire.com/iphone-x-4150706) , iPad Pro,[Nintendo Switch](https://www.lifewire.com/what-is-the-nintendo-switch-4148184) , and[PlayStation 4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) . When testing the wireless extender's range, at 10 feet to around 70 or so feet away from the router in a 2,100 square foot home, its signal was quite strong, with full bars on an iPhone X and iPad Pro in most areas. One bathroom on the first floor did suffer from occasionally spotty connectivity at around 1,500 feet away from the router.
@@ -115,13 +116,6 @@ Lifewire / Claire Cohen
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/Lyz1QcuQDPYlUp5pPBJiL0YKSag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-2-5c9241dcc9e77c0001a92785.jpg)
 
  Lifewire / Claire Cohen
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: Clean and easy to understand**
 
@@ -150,10 +144,10 @@ Lifewire / Claire Cohen
  The TP-Link AC1200 Wi-Fi Range Extender RE305 is a no-frills extender with supports dual-band Wi-Fi support and an Ethernet port for wired connectivity. It won’t fare well in homes beyond 2,000 square feet, but it's a value-priced extender that can be relied on at shorter ranges.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -189,12 +183,18 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-expert-tips-for-documenting-computer-speakers-and-mics-for-2024/"><u>[New] Expert Tips for Documenting Computer Speakers & Mics for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-snapdivide-assessment-for-2024/"><u>[New] SnapDivide Assessment for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/7-effective-ways-chatgpt-transforms-your-workday-efficiency-and-focus/"><u>7 Effective Ways ChatGPT Transforms Your Workday Efficiency and Focus</u></a></li>
-<li><a href="https://video-capture.techidaily.com/logitechs-4k-webcam-masterclass-a-complete-review-for-2024/"><u>Logitech’s 4K Webcam Masterclass - A Complete Review for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/surge-proof-your-system-in-depth-look-at-the-ideal-apc-gaming-ups/"><u>Surge-Proof Your System: In-Depth Look at the Ideal APC Gaming UPS</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/testing-the-new-cycwagen-cargo-e-bike-a-detailed-overview/"><u>Testing the New CycWagen Cargo E-Bike: A Detailed Overview</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-showdown-iphone-vs-samsung-for-tech-savvy-shoppers/"><u>The Ultimate Showdown: IPhone Vs. Samsung for Tech-Savvy Shoppers</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-the-elite-selection-of-top-12-tycoons-perfect-for-strategic-souls/"><u>[Updated] 2024 Approved The Elite Selection of Top 12 Tycoons - Perfect for Strategic Souls</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-transform-imaging-expertise-in-adobes-high-dynamic-range/"><u>2024 Approved Transform Imaging Expertise in Adobe's High Dynamic Range</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/ace-the-art-of-game-recordings-in-windows-11/"><u>Ace the Art of Game Recordings in Windows 11</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Life360 on Windows PC For Apple iPhone 15? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Asus ROG Phone 8? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-lock-your-oppo-a78-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Oppo A78 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-peering-behind-the-scenes-of-youtube-reviews/"><u>In 2024, Peering Behind the Scenes of YouTube Reviews</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-ranked-reviews-for-the-xp-pen-artist-16-pro-digital-sketchpad/"><u>Top Ranked Reviews for the XP-Pen Artist 16 Pro Digital Sketchpad</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-recommendation-affordable-1byone-digital-indoor-hdtv-antenna-analysis/"><u>Top Recommendation - Affordable 1byOne Digital Indoor HDTV Antenna Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-singing-equipment-the-ultimate-guide-to-the-best-karaoke-machines-in-2er-2024/"><u>Top-Rated Singing Equipment: The Ultimate Guide to the Best Karaoke Machines in 2Er 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-byb-e430-led-spotlights-premium-swing-arms-in-focus-thorough-lamp-assessment/"><u>Unveiling the BYB E430 LED Spotlights: Premium Swing Arms in Focus - Thorough Lamp Assessment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-potential-of-the-razer-blade-pro-17-a-review-on-power-and-portability/"><u>Unveiling the Potential of the Razer Blade Pro 17: A Review on Power and Portability</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-top-contenders-elite-smartwatch-choices-for-tech-savvy-consumers-2024-edition/"><u>Unveiling the Top Contenders: Elite Smartwatch Choices for Tech Savvy Consumers, 2024 Edition</u></a></li>
 </ul></div>
 

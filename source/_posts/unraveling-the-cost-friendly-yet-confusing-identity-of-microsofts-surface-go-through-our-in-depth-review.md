@@ -1,7 +1,7 @@
 ---
 title: Unraveling the Cost-Friendly Yet Confusing Identity of Microsoft's Surface Go Through Our In-Depth Review
-date: 2024-09-08T22:29:03.150Z
-updated: 2024-09-15T11:30:46.277Z
+date: 2024-09-15T17:05:42.887Z
+updated: 2024-09-20T16:03:58.853Z
 categories:
   - BestProducts
 description: This Article Describes Unraveling the Cost-Friendly Yet Confusing Identity of Microsoft's Surface Go Through Our In-Depth Review
@@ -91,13 +91,6 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/kz6EW4svzivooWEtdVJ5TAnOYOs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_06-07315e6a9862481bba3820f745d49887.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
 
 ## **Speakers: Loud and proud**
@@ -120,20 +113,27 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/dzb-7fUK5xGots6oe-9ZhkMnnTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_07-3d9500befc3a4b50baf014cc571210a5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
 
  Another limiting factor is the storage capacity of the Surface Laptop Go. The configuration I tested only had 128GB of space on its solid-state drive, and the maximum configuration only comes with 256GB. You’re not going to be storing a lot of data locally on this machine forcing you to resort to cloud storage most of the time.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Connectivity: Modern hardware**
 
  With[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) and[Bluetooth 5.0](https://www.lifewire.com/bluetooth-5-4160255) , the Surface Laptop Go is equipped with a competent range of communications capabilities. I had no issues utilizing the full power of my home Wi-Fi network or connecting Bluetooth devices.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery Life: Long-lasting**
 
@@ -141,13 +141,20 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/R8WVIj9pTzxwTOIwiZpDPRc6Bws=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_03-d503f456e6df4db4a3ad76a6a9a49e72.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: A decision to make**
@@ -158,18 +165,18 @@ Lifewire / Andy Zahn
 
  In terms of bloatware, the laptop came with a few pre-installed apps: a Microsoft Office trial, Adobe Photoshop Express, and a few other odds and ends. However, it’s all easily removed if you so choose, and doesn’t really get in the way.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Reasonable Value**
 
  With an MSRP of $549, the Surface Laptop Go offers high-end build quality at a mid-range price point. It’s hard to find a laptop in this price range that looks this good and is so eminently usable. Of course, that price might be higher depending upon the configuration you go with.
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/_QEntMJEPlaXArgv2l576Qnr7MU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_04-21f4f7c4d0f54436bb1449bf36a42460.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -191,19 +198,6 @@ Lifewire / Andy Zahn
 
 * [Microsoft Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584)
 * [Google Pixelbook Go](https://www.lifewire.com/google-pixelbook-go-review-4797012)
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -235,18 +229,19 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-from-large-files-to-tiny-previews-crafting-stunning-thumbnails/"><u>[New] 2024 Approved From Large Files to Tiny Previews Crafting Stunning Thumbnails</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-navigating-through-self-playing-options-in-fb-videos/"><u>[New] In 2024, Navigating Through Self-Playing Options in Fb Videos</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-innovating-filming-techniques-smartphones-as-webcams-for-2024/"><u>[New] Innovating Filming Techniques Smartphones as Webcams for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-skyward-savings-affordable-drones-below-a-hundred/"><u>[New] Skyward Savings Affordable Drones Below a Hundred$</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-highlighting-the-top-video-creation-apps-iphone-android/"><u>[Updated] In 2024, Highlighting the Top Video Creation Apps (iPhone, Android)</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-strategizing-your-data-space-pre-eminent-cloud-services/"><u>[Updated] Strategizing Your Data Space Pre-Eminent Cloud Services</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-ultimate-choice-the-10-free-cross-platform-video-calling-tools-for-2024/"><u>[Updated] Ultimate Choice The 10 Free, Cross-Platform Video Calling Tools for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/compact-and-durable-audew-handheld-air-pump-the-ultimate-buyers-guide/"><u>Compact & Durable Audew Handheld Air Pump: The Ultimate Buyer's Guide</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/guidelines-to-correct-xbox-mic-issues-in-os/"><u>Guidelines to Correct Xbox Mic Issues in OS</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-fujitsu-scansnap-ix1600-revolutionizing-desktop-document-scanning-experience/"><u>In-Depth Look at the Fujitsu ScanSnap iX1600 - Revolutionizing Desktop Document Scanning Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-the-ps4-pros-ability-to-deliver-true-4k-gameplay/"><u>In-Depth Review of the PS4 Pro's Ability to Deliver True 4K Gameplay</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-ultimate-guide-to-sierras-icloud-drives-and-shares/"><u>The Ultimate Guide to Sierra's iCloud Drives & Shares</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-pros-and-cons-comprehensive-review-of-huions-inspiroy-g10t-tablet/"><u>Unveiling the Pros & Cons: Comprehensive Review of Huion's Inspiroy G10T Tablet</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-the-ultimate-guide-to-iphoneipad-screenshot-tools/"><u>[New] In 2024, The Ultimate Guide to iPhone/iPad Screenshot Tools</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-free-music-unlocked-the-ultimate-library-for-videographers-for-2024/"><u>[Updated] Free Music Unlocked The Ultimate Library for Videographers for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-expert-guide-streaming-and-saving-hulu-seasons-flawlessly/"><u>[Updated] In 2024, Expert Guide Streaming and Saving Hulu Seasons Flawlessly</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/best-fare-free-tools-for-cloning-dvds-complete-transfer-of-original-films-onto-digital-media/"><u>Best Fare-Free Tools for Cloning DVDs: Complete Transfer of Original Films Onto Digital Media</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/discover-best-8-3d-realms-with-glossy-text-effects-for-2024/"><u>Discover Best 8 3D Realms with Glossy Text Effects for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Nokia G310 | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-everything-to-know-about-apple-id-password-requirements-for-apple-iphone-7-by-drfone-ios/"><u>In 2024, Everything To Know About Apple ID Password Requirements For Apple iPhone 7</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-retro-revelry-exploring-the-ultimate-selection-of-gb-console-emulation-for-pcs/"><u>In 2024, Retro Revelry Exploring The Ultimate Selection of GB Console Emulation for PCs</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/optimize-your-double-click-with-these-simple-windows-adjustments/"><u>Optimize Your Double-Click with These Simple Windows Adjustments</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-value-picks-the-reliable-and-economical-lg-24lh4830-smart-television/"><u>Top Value Picks: The Reliable and Economical LG 24LH4830 Smart Television</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-battery-pack-bundle-in-depth-analysis-of-ankers-powercoreplus-26800b/"><u>Top-Rated Battery Pack Bundle: In-Depth Analysis of Anker's Powercore+ 26800B</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-computer-audio-cards-in-2eby-2024-your-ultimate-guide/"><u>Top-Rated Computer Audio Cards in 2Eby 2024: Your Ultimate Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-portable-notebook-power-packs-a-comprehensive-guide/"><u>Top-Rated Portable Notebook Power Packs : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-tier-performance-meets-savings-with-the-tp-link-archer-a/"><u>Top-Tier Performance Meets Savings with the TP-Link Archer A...</u></a></li>
 </ul></div>
 

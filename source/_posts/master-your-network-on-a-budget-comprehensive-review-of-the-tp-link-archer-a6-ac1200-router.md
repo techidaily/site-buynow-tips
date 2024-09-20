@@ -1,7 +1,7 @@
 ---
 title: "Master Your Network On a Budget: Comprehensive Review of the TP-Link Archer A6 AC1200 Router"
-date: 2024-09-13T18:14:22.211Z
-updated: 2024-09-14T23:38:10.399Z
+date: 2024-09-16T16:44:54.088Z
+updated: 2024-09-20T16:36:22.075Z
 categories:
   - BestProducts
 description: "This Article Describes Master Your Network On a Budget: Comprehensive Review of the TP-Link Archer A6 AC1200 Router"
@@ -75,19 +75,6 @@ Lifewire / Claire Cohen
 
  There's an[Ethernet port](https://www.lifewire.com/what-is-an-ethernet-port-817546) at the bottom of the device as well as a pinhole reset button, just in case it needs rebooted at any point. It's a bit awkward to hang an[Ethernet cord](https://www.lifewire.com/what-is-an-ethernet-cable-817548) from the extender depending on where you've placed it in your home, but it's a useful addition to bring Ethernet to a desktop, TV, or gaming console without having to put holes in your wall.
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Simple and quick**
 
  Setup is extremely simple. There's no software required to install with the RE305, and it’s very quick to set up. It takes a matter of minutes to get it up and running via a web browser. There's a Quick Installation Guide included that outlines out the process. We found it painless to follow.
@@ -106,13 +93,6 @@ Lifewire / Claire Cohen
 
  There is one important pain point, however, to keep in mind during setup. The extender's administrative password utilizes a default "admin/admin" login, so you'll want to change that to keep unauthorized users out. It can be changed via the TP-Link Tether app, which isn't clearly lined out in the instructions. It isn't required, but if you want to keep your network as secure as possible, it's an important part of setup.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Connectivity and Network Performance:** **Strong, multi-device connectivity**
 
  Several devices were connected to our wireless network, including a MacBook Pro,[iPhone X](https://www.lifewire.com/iphone-x-4150706) , iPad Pro,[Nintendo Switch](https://www.lifewire.com/what-is-the-nintendo-switch-4148184) , and[PlayStation 4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) . When testing the wireless extender's range, at 10 feet to around 70 or so feet away from the router in a 2,100 square foot home, its signal was quite strong, with full bars on an iPhone X and iPad Pro in most areas. One bathroom on the first floor did suffer from occasionally spotty connectivity at around 1,500 feet away from the router.
@@ -122,6 +102,13 @@ Lifewire / Claire Cohen
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/Lyz1QcuQDPYlUp5pPBJiL0YKSag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-2-5c9241dcc9e77c0001a92785.jpg)
 
  Lifewire / Claire Cohen
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Clean and easy to understand**
 
@@ -134,6 +121,13 @@ Lifewire / Claire Cohen
  At a list price of $59.99, the RE305 is a fantastic deal, considering it's typically on sale for much cheaper, often $10 to $15 less than retail. It isn't TP-Link's lowest-end option, but the performance and speeds offered for the price are certainly more than your money's worth, especially if you live in a larger home and pay for higher internet speeds. It’s important to keep in mind that it won’t include all the features you’ll get with pricier extenders like multiple ethernet ports or additional antennas, but this basic setup is just about all the average user needs, anyway.
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/bG-oXoYxR83gVSUH4vzz37hfYxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-1-5c92424b46e0fb000172f127.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
 
@@ -150,16 +144,10 @@ Lifewire / Claire Cohen
  The TP-Link AC1200 Wi-Fi Range Extender RE305 is a no-frills extender with supports dual-band Wi-Fi support and an Ethernet port for wired connectivity. It won’t fare well in homes beyond 2,000 square feet, but it's a value-priced extender that can be relied on at shorter ranges.
 
 <!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -195,17 +183,15 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-elite-10-royal-warfare-games/"><u>[New] Elite 10 Royal Warfare Games</u></a></li>
-<li><a href="https://techtrends.techidaily.com/cost-effective-home-theaters-must-have-gear-for-budget-movie-enthusiasts/"><u>Cost-Effective Home Theaters: Must-Have Gear for Budget Movie Enthusiasts</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/elongation-may-be-important-in-prosthodontics-where-flexibility-can-aid-in-material-adaptation/"><u>Elongation May Be Important in Prosthodontics, Where Flexibility Can Aid in Material Adaptation.</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-the-elegance-of-modern-workspace-with-flexispot-theodore-standing-desk-a-comprehensive-review/"><u>Experience the Elegance of Modern Workspace with Flexispot Theodore Standing Desk: A Comprehensive Review</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Motorola Razr 40 | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-successfully-bypass-icloud-activation-lock-on-iphone-6s-by-drfone-ios/"><u>How to Successfully Bypass iCloud Activation Lock on iPhone 6s</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/mastering-legacy-support-a-comprehensive-guide-to-using-compatibility-mode-with-windows-10/"><u>Mastering Legacy Support: A Comprehensive Guide to Using Compatibility Mode with Windows 10</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maximize-your-money-with-the-ambient-ws-2902a-osprey-a-review-of-its-abundant-advantages/"><u>Maximize Your Money with the Ambient WS-2902A Osprey - A Review of Its Abundant Advantages</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-best-budget-pick-for-your-home-theater-discovering-hisense-40h5590f-smart-tv/"><u>The Best Budget Pick for Your Home Theater? Discovering Hisense 40H5590F Smart TV</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-smart-home-weather-sensors/"><u>Top-Rated Smart Home Weather Sensors</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/unleashing-the-full-potential-of-game-characters-with-voice-alteration-strategies-free/"><u>Unleashing the Full Potential of Game Characters with Voice Alteration Strategies (Free)</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/unveil-your-videos-secrets-of-social-sharing-success-for-2024/"><u>Unveil Your Videos Secrets of Social Sharing Success for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-financial-free-editing-the-ultimate-guide-to-fcp/"><u>[Updated] Financial-Free Editing The Ultimate Guide to FCP</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-mastering-the-art-of-audio-blending-in-audacity/"><u>[Updated] Mastering the Art of Audio Blending in Audacity</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-next-gen-gaming-escapades-top-5-psvr-titles-for-the-future/"><u>[Updated] Next-Gen Gaming Escapades Top 5 PSVR Titles for the Future</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/a-step-by-step-approach-to-publishing-your-ai-discussions-online/"><u>A Step-by-Step Approach to Publishing Your AI Discussions Online</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-video-doorbells-why-the-iseebell-stands-out-for-less-than-50/"><u>Budget-Friendly Video Doorbells - Why the ISeeBell Stands Out for Less Than $50</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/compact-criacr-bluetooth-fm-transmitter-cp2e-comprehensive-assessment/"><u>Compact CRIACR Bluetooth FM Transmitter CP2e - Comprehensive Assessment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/compact-power-exploring-the-features-and-price-of-the-fitbit-versa-reviewed/"><u>Compact Power: Exploring the Features and Price of the Fitbit Versa Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-amazonbasics-usb-c-7-port-hub-analysis-ultimate-connectivity-solutions/"><u>Comprehensive AmazonBasics USB-C 7-Port Hub Analysis: Ultimate Connectivity Solutions</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-propel-promotions-with-select-words-and-phrases/"><u>In 2024, Propel Promotions with Select Words and Phrases</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/supreme-song-synchronizer-app-android/"><u>Supreme Song Synchronizer App (Android)</u></a></li>
 </ul></div>
 

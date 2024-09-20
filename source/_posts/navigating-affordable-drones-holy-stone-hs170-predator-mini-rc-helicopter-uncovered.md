@@ -1,7 +1,7 @@
 ---
 title: Navigating Affordable Drones - Holy Stone HS170 Predator Mini RC Helicopter Uncovered
-date: 2024-09-10T16:58:40.283Z
-updated: 2024-09-15T07:09:44.716Z
+date: 2024-09-13T16:24:25.852Z
+updated: 2024-09-20T17:10:51.221Z
 categories:
   - BestProducts
 description: This Article Describes Navigating Affordable Drones - Holy Stone HS170 Predator Mini RC Helicopter Uncovered
@@ -79,10 +79,10 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: Impressive detection**
@@ -91,6 +91,13 @@ Lifewire / Todd Braylor
 
  It reliably delivers on its promise of long-distance sensitivity.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Not exactly enhanced**
 
  The S55 has different modes designed to adjust to specific frequency bands and sensitivity levels for city or highway driving. You can quickly customize the settings by using the included quick reference guide. You can also turn off specific frequency bands if they tend to give a lot of false alerts.
@@ -98,13 +105,6 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: You get what you pay for**
 
@@ -153,17 +153,17 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-pausecapture-stop-and-save-live-image/"><u>[New] 2024 Approved PauseCapture Stop & Save Live Image</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-premium-monitors-the-best-5-selection-for-ps5-gaming/"><u>[New] In 2024, Premium Monitors The Best 5 Selection for PS5 Gaming</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-streamlining-screen-record-on-mac-via-keyboard-shortcuts/"><u>[New] In 2024, Streamlining Screen Record on Mac via Keyboard Shortcuts</u></a></li>
-<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-vivo-y55s-5g-2023-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-budget-friendly-tp-link-archer-c50-wifi-router/"><u>Comprehensive Evaluation of the Budget-Friendly TP-LInk Archer C50 WiFi Router</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/gps-vs-cellular-comparing-connectivity-on-the-apple-watch-series/"><u>GPS Vs. Cellular: Comparing Connectivity on the Apple Watch Series</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-about-motorola-moto-g04-frp-bypass-by-drfone-android/"><u>In 2024, About Motorola Moto G04 FRP Bypass</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reviews-of-razers-gaming-accessory-unleashing-powerful-wi-fi-connectivity/"><u>Reviews of Razer's Gaming Accessory - Unleashing Powerful Wi-Fi Connectivity</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-pick-of-the-year-navigating-with-the-garmin-gpsmap-64st-the-complete-handhunded-system-evaluation/"><u>Top Pick of the Year: Navigating with the Garmin GPSMAP 64St – The Complete Handhunded System Evaluation</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unboxing-the-sony-xperia-5-an-impressive-phablet-with-an-extensive-price-fee/"><u>Unboxing the Sony Xperia 5 - An Impressive Phablet with an Extensive Price Fee</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unleash-professional-editing-with-lightzone-the-premier-free-darkroom-application-for-windowsmaclinux/"><u>Unleash Professional Editing with Lightzone - The Premier Free Darkroom Application for Windows/Mac/Linux</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-one-look-one-feel-the-ultimate-guide-to-color-matching-in-final-cut-pro/"><u>Updated In 2024, One Look, One Feel The Ultimate Guide to Color Matching in Final Cut Pro</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-expert-recommendations-high-quality-mac-video-grabber-tools/"><u>[New] 2024 Approved Expert Recommendations High-Quality Mac Video Grabber Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-cutting-edge-computing-select-the-optimal-device-for-video-editing/"><u>[New] In 2024, Cutting Edge Computing Select the Optimal Device for Video Editing</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-the-insiders-guide-to-slow-motion-with-photos-and-web-tools/"><u>[New] The Insider's Guide to Slow Motion with Photos & Web Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/01391844-updated-energy-savings-calculations-while-not-directly-impacting-installation-cost-understanding-potential-energy-savings-is-crucial-for-long-term-roi-analy/"><u>[Updated] __Energy Savings Calculations__ While Not Directly Impacting Installation Cost, Understanding Potential Energy Savings Is Crucial for Long-Term ROI Analysis</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/5-popular-tools-to-help-you-distort-audio-for-2024/"><u>5 Popular Tools to Help You Distort Audio for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevating-your-youtube-experience-tips-on-channel-art-and-sizes/"><u>Elevating Your YouTube Experience Tips on Channel Art and Sizes</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-xiaomi-redmi-a2-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Xiaomi Redmi A2 Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/prime-day-exclusive-save-big-on-high-quality-tribit-audio-speakers-and-earphones/"><u>Prime Day Exclusive: Save Big on High-Quality Tribit Audio Speakers & Earphones</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revel-in-unmatched-acoustic-majesty-beoplay-h8i/"><u>Revel in Unmatched Acoustic Majesty - Beoplay H8i</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/seamless-professional-mobile-audio/"><u>Seamless Professional Mobile Audio</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nfographic-lens-on-2017s-youtube-numerical-truths/"><u>The Infographic Lens on 2017'S Youtube Numerical Truths</u></a></li>
 </ul></div>
 

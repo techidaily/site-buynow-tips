@@ -1,7 +1,7 @@
 ---
 title: Demon's Souls Reimagined - Reviewing a Masterpiece with Modernized Graphic Touches
-date: 2024-09-11T08:13:38.263Z
-updated: 2024-09-15T05:15:24.604Z
+date: 2024-09-17T17:06:55.128Z
+updated: 2024-09-20T16:56:10.184Z
 categories:
   - BestProducts
 description: This Article Describes Demon's Souls Reimagined - Reviewing a Masterpiece with Modernized Graphic Touches
@@ -98,13 +98,6 @@ Lifewire / Emily Isaacs
 
  Once the TV has been installed, LG’s WebOS guides the first-time setup process by prompting inputs for settings ranging from time zone and language up to and including any necessary user agreements. The LG C9 will complete a scan in order to identify the devices and then you’re free to customize the TV’s settings by pressing the gear button on the LG Magic Remote. The first setting we changed was the Auto Power Saving (APS) picture mode, which reduces power use by dimming the brightness of the TV. The other important setting to disable is TruMotion, which smooths motion in TV shows and movies by altering the frame rate of the programming. If your LG’s picture looks a bit too much like a soap opera, chances are you need to disable this setting.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Image Quality: Stunning picture**
 
  The image quality on the LG C9 is, frankly, stunning thanks in large part to its excellent contrast and wide range of colors, combined with the OLED panel’s ability to turn individual pixels on and off. Even from wide viewing angles, the 4K picture maintains its excellence, with limited washing out and color loss.
@@ -116,10 +109,16 @@ Lifewire / Emily Isaacs
  These pictures are further enhanced with LG’s α9 Gen 2 intelligent processor, new to 2019’s model. It excels at drawing out detail and correcting quality discrepancies within the picture, such as banding which creates textures and strips in areas of the screen that would otherwise be smooth. This is particularly important given the large screen size and high resolution. While it’s not as bright as an LED TV since it lacks backlighting, it doesn’t need it as the TV already possesses excellent color, a change here would risk washing out the inky blacks on the screen.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Audio: Better than expected**
@@ -128,7 +127,27 @@ Lifewire / Emily Isaacs
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/SZUaFESJi6OZubIeLdK1e9L9FEM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_04-c559e4cc6de64f0c8baf4470f883dd9e-4844a7694fb74eb2904f1128ba93f760.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Smooth and easy to use**
 
@@ -137,19 +156,6 @@ Lifewire / Emily Isaacs
  In addition to the WebOS software, the LG C9 also comes with[Google Assistant](https://www.lifewire.com/what-is-google-assistant-4120911) as well as[Amazon’s Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) . It makes it easy to search content, switch between apps and features, or check the weather, among other things. These controls extend into your home as well, enabling you to make use of any basic home control features already in place like updating the temperature on your Nest Smart Thermostat. You simply choose which assistant you want at a given time by pressing either the Amazon button on the Magic Remote to toggle Alexa or the microphone button to toggle Google Assistant.
 
  In addition to the WebOS software, the LG C9 also comes with Google Assistant as well as Amazon’s Alexa. It makes it easy to search content, switch between apps and features, or check the weather, among other things.
-
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: A premium price for a premium TV**
 
@@ -218,18 +224,20 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-10-virtual-worlds-for-buddy-bonding-games/"><u>2024 Approved 10 Virtual Worlds for Buddy Bonding Games</u></a></li>
-<li><a href="https://program-issues.techidaily.com/cod-vanguard-2024-pc-version-no-more-freezes-or-crashes-what-you-need-to-know/"><u>CoD Vanguard 2024 PC Version: No More Freezes or Crashes – What You Need to Know</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-the-maxoak-battery-pack-the-diyers-dream-for-uninterrupted-power-on-the-go/"><u>Comprehensive Guide to the MaxOak Battery Pack - The DIYer's Dream for Uninterrupted Power On-the-Go</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-review-how-does-the-samsung-galaxy-fit-stand-up-to-active-lifestyles/"><u>Expert Review: How Does the Samsung Galaxy Fit Stand Up to Active Lifestyles?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/future-proof-internet-solutions-top-cable-modem-picks/"><u>Future-Proof Internet Solutions: Top Cable Modem Picks</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/garmin-forerunner-945-review/"><u>Garmin Forerunner 945 Review</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-oneplus-ace-3-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From OnePlus Ace 3 to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-enhance-content-top-10-mobile-and-desktop-friendly-editors/"><u>In 2024, Enhance Content Top 10 Mobile & Desktop-Friendly Editors</u></a></li>
-<li><a href="https://win-blog.techidaily.com/mastering-days-gone-strategies-to-prevent-and-fix-game-crashes-in-202e/"><u>Mastering 'Days Gone': Strategies to Prevent and Fix Game Crashes in 202E</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-davinci-resolve-audio-processing-101-a-comprehensive-guide-to-normalization-for-2024/"><u>New DaVinci Resolve Audio Processing 101 A Comprehensive Guide to Normalization for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-definitive-list-of-premier-graphics-tablets-for-professionals-in-ebyte-2024/"><u>The Definitive List of Premier Graphics Tablets for Professionals in Ebyte 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/unveiling-ffmpegs-potential-for-original-formatted-audio-retrieval-for-2024/"><u>Unveiling FFmpeg's Potential for Original Formatted Audio Retrieval for 2024</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/unveiling-the-leading-mixers-5-highest-rated-audiovideo-combiner-devices/"><u>Unveiling the Leading Mixers 5 Highest Rated Audio/Video Combiner Devices</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-a-complete-walkthrough-on-editing-your-videos-covers-on-fb-for-2024/"><u>[New] A Complete Walkthrough on Editing Your Videos' Covers on FB for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-kinemasters-secret-to-meme-making-mastery/"><u>2024 Approved KineMaster's Secret to Meme-Making Mastery</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-mobvoi-ticwatch-e2-analysis-cutting-costs-or-compromising-quality/"><u>Budget-Friendly Mobvoi TicWatch E2 Analysis: Cutting Costs or Compromising Quality?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-error-resolution-strategies-when-facing-server-capacity-constraints-on-windows/"><u>ChatGPT Error Resolution Strategies When Facing Server Capacity Constraints on Windows</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/classic-nintendo-game-and-watch-an-in-depth-review-of-the-super-mario-bros-edition/"><u>Classic Nintendo Game & Watch: An In-Depth Review of the Super Mario Bros. Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-the-google-wireless-nest-doorbell-with-batteries/"><u>Comprehensive Analysis of the Google Wireless Nest Doorbell with Batteries</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-barnes-and-noble-nook-glowlight-4/"><u>Comprehensive Review of the Barnes & Noble Nook GlowLight 4</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-latest-apple-tv-4k-series/"><u>Comprehensive Review of the Latest Apple TV 4K Series</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-reviews-on-the-advanced-features-of-the-linksys-wireless-range-extender-ea95-50/"><u>Comprehensive Reviews on the Advanced Features of the Linksys Wireless Range Extender (EA95 50)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decoding-pc-specs-for-elite-gaming-experience/"><u>Decoding PC Specs for Elite Gaming Experience</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-the-most-recent-rtx-2-2080-graphics-card-drivers-for-optimal-performance-on-windows-1011/"><u>Download the Most Recent RTX 2지 2080 Graphics Card Drivers for Optimal Performance on Windows 10/11</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-realme-c55-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Realme C55? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-boost-your-slides-add-video-from-youtube-by-google/"><u>In 2024, Boost Your Slides Add Video From YouTube, by Google</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/lights-out-windows-11-post-fall-creators-fixes/"><u>Lights Out Windows 11 Post Fall Creator's Fixes</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/premier-chillout-pc-game-hits-for-2024/"><u>Premier Chillout PC Game Hits for 2024</u></a></li>
 </ul></div>
 

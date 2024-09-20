@@ -1,7 +1,7 @@
 ---
 title: "High Performance, Low Price: Exploring the Acer Predator Triton 300SE's Worth"
-date: 2024-09-11T13:05:31.278Z
-updated: 2024-09-15T02:44:54.728Z
+date: 2024-09-19T16:41:45.963Z
+updated: 2024-09-20T16:15:34.211Z
 categories:
   - BestProducts
 description: "This Article Describes High Performance, Low Price: Exploring the Acer Predator Triton 300SE's Worth"
@@ -86,10 +86,10 @@ Lifewire / Andy Zahn
  Port selection is rather limited, with a[USB-C](https://www.lifewire.com/usb-c-4149490) port, a USB-A port, a 3.5mm audio jack, and a Surface Connect port which is used for power but can also be used to connect to a Surface Dock. This is really the bare minimum for I/O, and was one of the most frustrating issues for me when using the device.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Display: Ideal for productivity**
@@ -101,10 +101,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Speakers: Loud and proud**
@@ -119,6 +119,13 @@ Lifewire / Andy Zahn
 
  The Surface Laptop Go is certainly not the most powerful laptop around, but with 8GB of RAM, an Intel Core i5-1035G1 CPU, and a fast solid-state drive for storage it feels zippy and responsive.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Decent power for the price**
 
  The Surface Laptop Go is certainly not the most powerful laptop around, but with 8GB of RAM, an Intel Core i5-1035G1 CPU, and a fast solid-state drive for storage it feels zippy and responsive. It’s competent for most productivity tasks, including light photo editing, word processing, and web browsing, essentially filling the same niche as a Chromebook.
@@ -126,6 +133,13 @@ Lifewire / Andy Zahn
  However, due to its lack of a dedicated graphics card, the Laptop Go is no gaming or video editing rig. It achieved a score of 5,378 in GFXBench, which is about what I’d expect from a laptop with these specifications. One issue I did run into is that the Surface Laptop Go does tend to grow rather hot due to the lack of ventilation in its frame.
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/dzb-7fUK5xGots6oe-9ZhkMnnTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_07-3d9500befc3a4b50baf014cc571210a5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -143,6 +157,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software: A decision to make**
 
  The Surface Laptop Go ships with[Windows 10](https://www.lifewire.com/windows-10-2626217) in[S mode](https://www.lifewire.com/what-is-windows-10-s-4173113#:~:text=Windows%2010%20in%20S%20mode%20can%20only%20run%20Windows%20apps,and%20potentially%20longer%20battery%20life.) . This means that the device gains an extra degree of security, but also that it’s limited to apps available in the Windows Store. However, you can take the computer out of S mode to use a fully-functional version of Windows 10\. However, think carefully before doing so because there’s no going back.
@@ -151,34 +172,13 @@ Lifewire / Andy Zahn
 
  In terms of bloatware, the laptop came with a few pre-installed apps: a Microsoft Office trial, Adobe Photoshop Express, and a few other odds and ends. However, it’s all easily removed if you so choose, and doesn’t really get in the way.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Reasonable Value**
 
  With an MSRP of $549, the Surface Laptop Go offers high-end build quality at a mid-range price point. It’s hard to find a laptop in this price range that looks this good and is so eminently usable. Of course, that price might be higher depending upon the configuration you go with.
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/_QEntMJEPlaXArgv2l576Qnr7MU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_04-21f4f7c4d0f54436bb1449bf36a42460.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Microsoft Surface Laptop Go vs. HP Pavilion 14 HD**
 
@@ -229,20 +229,15 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-tricks-to-acquire-dry-stock-photography/"><u>[New] 2024 Approved Tricks to Acquire Dry Stock Photography</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-cut-to-a-new-beginning-four-fade-techniques-for-2024/"><u>[New] Cut to a New Beginning Four Fade Techniques for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-explore-tiktoks-1-game-bloggers-list-for-2024/"><u>[New] Explore TikTok's #1 Game Bloggers List for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-from-amateur-to-pro-excelling-at-instagram-editing-for-2024/"><u>[New] From Amateur to Pro Excelling at Instagram Editing for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-nubia-red-magic-8s-proplus-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Nubia Red Magic 8S Pro+ Wont Charge | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-high-end-audio-for-youtubes-best-gamers/"><u>2024 Approved High-End Audio for YouTube's Best Gamers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-breakthrough-in-mobile-technology-the-iphone-12-unveiled-and-thoroughly-analyzed/"><u>A Breakthrough in Mobile Technology: The iPhone 12 Unveiled and Thoroughly Analyzed!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/clearstream-2v-indooroutdoor-hdtv-antenna-review-great-performance-in-an-unsightly-package/"><u>ClearStream 2V Indoor/Outdoor HDTV Antenna Review: Great Performance In An Unsightly Package</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-the-value-in-large-screens-caixuns-75-4k-smart-tv-a-cost-efficient-choice/"><u>Discover the Value in Large Screens: Caixun's 75'' 4K Smart TV - A Cost-Efficient Choice</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-sb210-by-soundbot-stellar-sound-performance-with-a-few-fixable-issues/"><u>Exploring the SB210 by SoundBot - Stellar Sound Performance with a Few Fixable Issues</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-connect-airpods-to-an-hp-laptop/"><u>How to Connect AirPods to an HP Laptop</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-the-art-of-mobility-with-samsung-galaxy-tab-s4-an-essential-review-for-android-tablet-lovers/"><u>Mastering the Art of Mobility with Samsung Galaxy Tab S4: An Essential Review for Android Tablet Lovers</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-2024-approved-nero-waveedit-a-thorough-examination-updates/"><u>New 2024 Approved Nero WaveEdit A Thorough Examination Updates</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/stay-active-with-ease-the-samsung-galaxy-fit2-your-ultimate-portable-fitness-partner/"><u>Stay Active with Ease: The Samsung Galaxy Fit2 - Your Ultimate Portable Fitness Partner</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unveiling-the-wonders-mastering-firefox-x-pie-mode-for-2024/"><u>Unveiling the Wonders Mastering Firefox X-Pie Mode for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-perfecting-instagram-reels-acoustics-with-music-voiceovers/"><u>[New] 2024 Approved Perfecting Instagram Reels Acoustics with Music, Voiceovers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ow-to-find-your-niche-and-style-a-starters-guide/"><u>[New] How to Find Your Niche and Style - a Starter's Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-elevate-your-virtual-engagement-with-snap-capabilities-in-meet/"><u>[Updated] In 2024, Elevate Your Virtual Engagement with Snap Capabilities in Meet</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-seamless-integration-of-dvd-playback-on-your-system/"><u>2024 Approved Seamless Integration of DVD Playback on Your System</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-official-hp-photosmart-c6189-all-in-one-printer-driver-here-free-downloads-available/"><u>Get the Official HP Photosmart C6189 All-in-One Printer Driver Here – Free Downloads Available</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-samsung-galaxy-fit-enhances-your-workout-routine-an-in-depth-review/"><u>How Samsung Galaxy Fit Enhances Your Workout Routine: An In-Depth Review</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-messages-from-s17t-by-fonelab-android-recover-messages/"><u>How to Rescue Lost Messages from S17t</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/hp-stream-11-your-perfect-small-sized-partner-for-core-computing-needs/"><u>HP Stream 11: Your Perfect Small-Sized Partner for Core Computing Needs</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-swift-upload-of-sizeable-videos-from-iphone-to-mac-desktop/"><u>In 2024, Swift Upload of Sizeable Videos From iPhone to Mac Desktop</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-netgear-ex3700-ac750-wireless-repeater-a-comprehensive-review/"><u>In-Depth Analysis of Netgear EX3700 AC750 Wireless Repeater: A Comprehensive Review</u></a></li>
 </ul></div>
 

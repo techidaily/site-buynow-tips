@@ -1,7 +1,7 @@
 ---
 title: "Capturing Perfection: An In-Depth Review of Huawei P20 Pro's Camera Excellence on a Quality Device"
-date: 2024-09-11T19:50:06.338Z
-updated: 2024-09-15T10:40:45.291Z
+date: 2024-09-13T16:00:40.553Z
+updated: 2024-09-20T16:46:27.776Z
 categories:
   - BestProducts
 description: "This Article Describes Capturing Perfection: An In-Depth Review of Huawei P20 Pro's Camera Excellence on a Quality Device"
@@ -74,18 +74,18 @@ Lifewire / Jonno Hill
 
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Acceptable but not incredible**
 
  The Mohu Leaf 30 TV Antenna wasn’t the highest performing antenna that I tested, even among similar unpowered antennas. In my channel acquisition test, the Leaf picked up 56 channels on average across all the iterations performed.
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Range: Fairly limited**
 
@@ -98,10 +98,16 @@ Lifewire / Jonno Hill
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
@@ -140,13 +146,20 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-samsung-galaxy-s8-in-depth-4k-phone-analysis/"><u>[New] Samsung Galaxy S8 In-Depth 4K Phone Analysis</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-creating-seamless-ps4-streams-using-obs-studio-tools/"><u>[Updated] 2024 Approved Creating Seamless PS4 Streams Using OBS Studio Tools</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/optimizing-your-pubg-gameplay-avoid-incomplete-buildings-issue/"><u>Optimizing Your PUBG Gameplay: Avoid Incomplete Buildings Issue</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/polyglot-power-program/"><u>Polyglot Power Program</u></a></li>
-<li><a href="https://howto.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-vivo-y56-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Vivo Y56 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-discovering-elegance-and-functionality-in-the-withings-move-smartwatch/"><u>Review: Discovering Elegance and Functionality in the Withings Move Smartwatch</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/reviving-old-vinyl-with-audio-technicas-at-lp120xusb/"><u>Reviving Old Vinyl with Audio-Technica's AT-LP120XUSB</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/thermopro-tp67-analysis-great-value-yet-questionable-reliability/"><u>ThermoPro TP67 Analysis: Great Value, Yet Questionable Reliability</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-navigating-a-new-digital-landscape-detailed-steps-for-updating-tiktok-handle/"><u>[New] 2024 Approved Navigating a New Digital Landscape Detailed Steps for Updating TikTok Handle</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-effortlessly-record-circles-iphone-techniques-for-fb-feed/"><u>[New] In 2024, Effortlessly Record Circles IPhone Techniques for FB Feed</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-must-have-gear-for-road-trip-documentaries/"><u>[New] Must-Have Gear for Road Trip Documentaries</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-softening-volume-windowsmac-audio-tips/"><u>[New] Softening Volume Windows/Mac Audio Tips</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-top-5-innovative-vr-drones-collaborations/"><u>[Updated] 2024 Approved Top 5 Innovative VR Drones Collaborations</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-harness-the-power-of-gopro-for-captivating-time-lapse-videos/"><u>[Updated] Harness the Power of GoPro for Captivating Time-Lapse Videos</u></a></li>
+<li><a href="https://win-able.techidaily.com/44cm44ou44oz44k44os44k544oi44gn55s75yop44cb5yuv55s744ks5a6j5ywo44gr5lplusd566h44gz44kl5oml6acg44cn/"><u>「ピンタレストで画像、動画を安全に保管する手順」</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-zte-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your ZTE Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-journey-of-personalized-instagram-notification-creation/"><u>The Journey of Personalized Instagram Notification Creation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-value-in-streaming-detailed-insights-into-the-best-deals-on-roku-devices/"><u>Top Value in Streaming: Detailed Insights Into the Best Deals on Roku Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-ranked-gaming-systems-in-2/"><u>Top-Ranked Gaming Systems in 2</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-tier-autonomous-cleaner-in-depth-look-at-the-dreame-bot-l10-pro-with-lidar-technology/"><u>Top-Tier Autonomous Cleaner - In-Depth Look at the Dreame Bot L10 Pro with LiDAR Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-kensun-portable-air-compressor-durability-and-mobility-tested/"><u>Ultimate Guide to Kensun Portable Air Compressor: Durability and Mobility Tested!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-list-premier-voice-to-text-applications/"><u>Ultimate List: Premier Voice-to-Text Applications</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleashing-household-connectivity-with-the-tri-band-netgear-nighthawk-x6-ac3200-a-gamers-and-familys-dream/"><u>Unleashing Household Connectivity with the Tri-Band Netgear Nighthawk X6 AC3200 - A Gamer's and Family's Dream</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Runner's Choice? - A Critical Review of the Garmin Forerunner 265
-date: 2024-09-13T11:33:17.516Z
-updated: 2024-09-14T20:08:30.932Z
+date: 2024-09-18T16:51:34.164Z
+updated: 2024-09-20T16:16:02.226Z
 categories:
   - BestProducts
 description: This Article Describes The Runner's Choice? - A Critical Review of the Garmin Forerunner 265
@@ -74,18 +74,18 @@ Lifewire / Jonno Hill
 
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Acceptable but not incredible**
 
  The Mohu Leaf 30 TV Antenna wasn’t the highest performing antenna that I tested, even among similar unpowered antennas. In my channel acquisition test, the Leaf picked up 56 channels on average across all the iterations performed.
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Range: Fairly limited**
 
@@ -107,16 +107,10 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -146,13 +140,20 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-enhancing-your-youtube-content-basic-premiere-pro-edits-for-2024/"><u>[New] Enhancing Your YouTube Content Basic Premiere Pro Edits for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ransforming-viewership-into-income-youtubes-advertising-guide/"><u>[New] Transforming Viewership Into Income YouTube's Advertising Guide</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-top-10-best-webcam-covers/"><u>2024 Approved Top 10 Best Webcam Covers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-closer-look-at-wonder-workshops-dash-a-revolutionary-learning-tool-for-kids/"><u>A Closer Look at Wonder Workshop's Dash: A Revolutionary Learning Tool for Kids</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-the-complexities-of-spanish-verbs/"><u>Decoding the Complexities of Spanish Verbs</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-analysis-netgear-nighthawk-rax120-unrivaled-speed-and-performance/"><u>Expert Analysis: Netgear Nighthawk RAX120 - Unrivaled Speed & Performance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-the-upgraded-ring-doorbell-plus-is-it-worth-it/"><u>Expert Insights on The Upgraded Ring Doorbell Plus - Is It Worth It?</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-how-to-use-filmora-without-paying-a-dime-free-download/"><u>New In 2024, How to Use Filmora Without Paying a Dime Free Download</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-music-management-made-simple-in-inshot/"><u>[New] Music Management Made Simple in InShot</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-best-captures-of-macs-visual-display-under-156-characters/"><u>[Updated] Best Captures of Mac's Visual Display (Under 156 Characters)</u></a></li>
+<li><a href="https://win11.techidaily.com/bypassing-glitch-0x80072746-a-fix-guide-for-windows-mail/"><u>Bypassing Glitch 0X80072746: A Fix Guide for Windows Mail</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-oppo-find-x6-pro-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Oppo Find X6 Pro Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/exploring-the-depths-of-darkness-with-j5-tacticals-v1-pro-flashlight-a-review-on-its-robust-build-quality-and-high-performance-night-vision-technology/"><u>Exploring the Depths of Darkness with J5 Tactical's V1 Pro Flashlight - A Review on Its Robust Build Quality and High-Performance Night Vision Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-chromecast-with-google-tv-up-for-par-with-firetv-a-comprehensive-guide/"><u>Is Chromecast with Google TV Up for Par with FireTV? A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/j5-tactical-v1-pro-flashlight-assessment-ultimate-durability-and-portable-illumination/"><u>J5 Tactical V1-Pro Flashlight Assessment: Ultimate Durability & Portable Illumination</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/kobo-nia-reviewed-a-strong-contender-in-the-market-against-amazon-kindle-devices/"><u>Kobo Nia Reviewed: A Strong Contender in the Market Against Amazon Kindle Devices.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lenovo-tab-4-analysis-affordable-android-tablet-with-key-restrictions/"><u>Lenovo Tab 4 Analysis: Affordable Android Tablet with Key Restrictions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/m06s-audio-innovation-seamlessly-bluetooth-connected/"><u>M06's Audio Innovation: Seamlessly Bluetooth Connected</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/marvels-new-hero-miles-morales-takes-the-limit-off-an-in-depth-review/"><u>Marvel's New Hero: Miles Morales Takes the Limit Off - An In-Depth Review</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/mov-to-mp3-in-minutes-access-high-quality-free-online-tools/"><u>MOV to MP3 in Minutes - Access High-Quality Free Online Tools!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/point-and-shoot-sense-with-kodak-fz53-zoom/"><u>Point & Shoot Sense with Kodak FZ53 Zoom</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/solving-the-problem-of-unaligned-gmail-messages/"><u>Solving the Problem of Unaligned Gmail Messages</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-tips-getting-your-zoom-camera-back-in-action/"><u>Troubleshooting Tips: Getting Your Zoom Camera Back in Action</u></a></li>
 </ul></div>
 
