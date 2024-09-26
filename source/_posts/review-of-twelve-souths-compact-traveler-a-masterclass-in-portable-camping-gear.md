@@ -1,7 +1,7 @@
 ---
 title: Review of Twelve South's Compact Traveler - A Masterclass in Portable Camping Gear
-date: 2024-09-16T16:28:17.714Z
-updated: 2024-09-20T16:59:23.160Z
+date: 2024-09-19T16:59:34.814Z
+updated: 2024-09-26T16:23:07.924Z
 categories:
   - BestProducts
 description: This Article Describes Review of Twelve South's Compact Traveler - A Masterclass in Portable Camping Gear
@@ -40,6 +40,13 @@ Lifewire / Rebecca Isaacs
 
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/cetpXlFoWgl601rjUieYjdXgVCA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_HeroSquare-97a9344411454147b8772f86cd75bca7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
 
 [View On Amazon $999](https://www.amazon.com/MAVIX-M9-Gaming-Chair-White/dp/B09MDXKFLS/?tag=lifewire-onsite-prod-20&ascsubtag=5183973%7Cn4e1998137fdb426ab9d2150aa9cfd04517%7CB09MDXKFLS) [View On Mavix.com](https://www.mavix.com/m9-gaming-chair.html)
@@ -74,6 +81,13 @@ Lifewire / Rebecca Isaacs
 
  At 56 x 26 x 22.75 inches (HWD), the chair has a wide seat for spreading out and comes with an optional headrest. Even the wheels are prepped for hours of gameplay and come with a locking feature to ensure stability.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Comfort: It’s all in the ergonomics
 
  It would be an understatement to say that the M9 Chair offers adjustability. In fact, nearly everything can be adjusted from the seat depth to the headrest angle—the chair is easy to mold to your personal needs.
@@ -87,10 +101,10 @@ Lifewire / Rebecca Isaacs
 Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Performance and Usage: Amazing day-to-day
@@ -113,27 +127,20 @@ Lifewire / Rebecca Isaacs
 
  Only want to go back a few degrees? You can adjust that thanks to the levers underneath the chair seat. This feature also helped relieve my back when I started feeling like I’d been sitting in the chair too long. It’s a great, relaxing addition.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Price: Hits the wallet hard
 
  For the price of $1,000, the Mavix M9 chair can be yours. That’s a lot of money to invest in a chair, especially when most places will charge a fraction of that for a desk chair. This isn’t just a desk chair, however—this is an ergonomic gamer’s chair, and as such, it’s designed to make gaming comfortable and easy. So, while it seems like a lot of money, realistically, you’re paying for a plethora of adjustability options, and ergonomics.
 
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/_eJYTViir2syGINJQq7Fxl1ofHQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_04-d42bbf02273f4d0aa7c25351b201dc2c.jpg)
 
-Lifewire / Rebecca Isaacs
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Lifewire / Rebecca Isaacs
 
 ## Mavix M9 vs. XChair X4 Chair
 
@@ -146,6 +153,13 @@ Lifewire / Rebecca Isaacs
 **A great gaming chair for all-day use.**
 
  While it can’t really be customized outside of cosmetic options, the M9 gaming chair is a solid, easy way to enjoy any gaming hobby without worrying about backaches. The reclining technology and the locking wheels are especially nice bonuses. The price may seem a little high, but it’s a worthy investment for any gamer.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -178,5 +192,23 @@ Lifewire / Rebecca Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-vivid-imagery-a-guide-to-color-adjustment/"><u>[New] 2024 Approved Vivid Imagery A Guide to Color Adjustment</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-learn-to-produce-must-see-fb-music-videos-today/"><u>[New] Learn to Produce Must-See FB Music Videos Today</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-listen-and-direct-voice-control-without-payment/"><u>[New] Listen and Direct Voice Control Without Payment</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-capture-vimeo-essence-the-art-of-transforming-into-a-gif/"><u>[Updated] 2024 Approved Capture Vimeo Essence The Art of Transforming Into a GIF</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-unlock-the-power-of-live-videos-on-facebook/"><u>[Updated] 2024 Approved Unlock the Power of Live Videos on Facebook</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1-navigate-efficiently-discover-fuel-stations-alongside-your-journey-using-google-maps/"><u>1. Navigate Efficiently: Discover Fuel Stations Alongside Your Journey Using Google Maps</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-tecno-camon-20-premier-5g-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Tecno Camon 20 Premier 5G Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/hunt-for-the-best-bargains-on-benq-monitors-during-prime-day-sales/"><u>Hunt for the Best Bargains on BenQ Monitors During Prime Day Sales</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ideal-innovations-the-vacation-tech-lifesavers/"><u>Ideal Innovations: The Vacation Tech Lifesavers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-apple-homepod-mini-sound-quality-and-smart-assistant-capabilities/"><u>In-Depth Analysis of the Apple HomePod Mini: Sound Quality & Smart Assistant Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-vive-cosmos-excellent-vr-experience-amidst-strong-rivals/"><u>In-Depth Analysis of the Vive Cosmos: Excellent VR Experience Amidst Strong Rivals</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-how-the-3rd-generation-echo-dot-delivers-complete-alexa-capabilities-in-an-adorable-package/"><u>In-Depth Analysis: How the 3Rd Generation Echo Dot Delivers Complete Alexa Capabilities in an Adorable Package</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/inside-the-revolutionary-raspberry-pi-400-keyboard-computer/"><u>Inside the Revolutionary Raspberry Pi 400 Keyboard Computer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-it-worth-it-a-deep-dive-into-the-cost-vs-performance-of-alienware-aurora-r7/"><u>Is It Worth It? A Deep Dive Into the Cost vs Performance of Alienware Aurora R7</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/revolutionize-your-content-strategy-a-guide-to-youtube-savvy-tips-for-2024/"><u>Revolutionize Your Content Strategy A Guide to YouTube Savvy Tips for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/simple-steps-transforming-dall-e-webp-files-into-jpeg-and-png-formats/"><u>Simple Steps: Transforming DALL-E √ WebP Files Into JPEG and PNG Formats</u></a></li>
+</ul></div>
 

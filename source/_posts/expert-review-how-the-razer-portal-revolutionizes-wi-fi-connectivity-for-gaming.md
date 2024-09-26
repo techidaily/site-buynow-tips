@@ -1,7 +1,7 @@
 ---
 title: "Expert Review: How the Razer Portal Revolutionizes Wi-Fi Connectivity for Gaming"
-date: 2024-09-19T17:16:59.113Z
-updated: 2024-09-20T16:07:32.238Z
+date: 2024-09-24T16:18:57.595Z
+updated: 2024-09-26T16:50:13.892Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Review: How the Razer Portal Revolutionizes Wi-Fi Connectivity for Gaming"
@@ -65,22 +65,16 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Inoffensive but unexceptional**
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
-
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup: Simple and easy**
 
@@ -90,16 +84,16 @@ Lifewire / Jonno Hill
 
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Above average**
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Range: Fair to middling**
 
@@ -108,6 +102,13 @@ Lifewire / Jonno Hill
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Not bad for the performance**
 
@@ -124,10 +125,10 @@ Lifewire / Jonno Hill
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -155,5 +156,26 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-getting-the-most-out-of-google-meet-for-free/"><u>[New] In 2024, Getting the Most Out of Google Meet (For Free)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-elite-9-access-privileged-video-downloads/"><u>2024 Approved Elite 9 Access Privileged Video Downloads</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-samsung-galaxy-m34-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Samsung Galaxy M34 Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-an-android-enthusiasts-dream-customizing-your-phone-alerts-with-style-and-personality/"><u>In 2024, An Android Enthusiast’s Dream Customizing Your Phone Alerts with Style and Personality</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-methods-of-blending-audio-tracks-in-digital-performer/"><u>In 2024, Methods of Blending Audio Tracks in Digital Performer</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/laughter-and-tears-on-insta-the-ultimate-meme-page-list-for-2024/"><u>Laughter & Tears on Insta The Ultimate Meme Page List for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ps4-photography-tips-where-to-place-your-game-console-camera/"><u>PS4 Photography Tips: Where to Place Your Game Console Camera</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-elite-collection-of-data-center-shelving-units-s-tech-landscape/"><u>The Elite Collection of Data Center Shelving Units 'S Tech Landscape</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-forefront-of-networking-best-netgear-routers-reviewed/"><u>The Forefront of Networking: Best Netgear Routers Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-pinnacle-of-home-entertainment-lg-oled-c9-65-review-impeccable-image-quality-unveiled/"><u>The Pinnacle of Home Entertainment: LG OLED C9 65 Review - Impeccable Image Quality Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-ranked-reviews-for-the-xp-pen-artist-16-pro-digital-sketchpad/"><u>Top Ranked Reviews for the XP-Pen Artist 16 Pro Digital Sketchpad</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-recommendation-affordable-1byone-digital-indoor-hdtv-antenna-analysis/"><u>Top Recommendation - Affordable 1byOne Digital Indoor HDTV Antenna Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-singing-equipment-the-ultimate-guide-to-the-best-karaoke-machines-in-2er-2024/"><u>Top-Rated Singing Equipment: The Ultimate Guide to the Best Karaoke Machines in 2Er 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-potential-of-the-razer-blade-pro-17-a-review-on-power-and-portability/"><u>Unveiling the Potential of the Razer Blade Pro 17: A Review on Power and Portability</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-top-contenders-elite-smartwatch-choices-for-tech-savvy-consumers-2024-edition/"><u>Unveiling the Top Contenders: Elite Smartwatch Choices for Tech Savvy Consumers, 2024 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/where-to-find-your-ideal-laptop-a-guide-to-the-best-6-online-and-offline-options/"><u>Where to Find Your Ideal Laptop: A Guide to the Best 6 Online and Offline Options</u></a></li>
+<li><a href="https://common-error.techidaily.com/why-isnt-my-hdmi-working-through-usb-common-issues-and-fixes/"><u>Why Isn't My HDMI Working Through USB? Common Issues and Fixes</u></a></li>
+<li><a href="https://techidaily.com/you-must-know-how-to-share-your-winning-forex-trades-with-friends-and-family-on-local-trade-copier-tm-together-by-mt4copier-guide/"><u>You must know how to Share Your Winning Forex Trades With Friends and Family on Local Trade Copier™ Together</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Featherlight Game Changer: A Deep Dive Review Into the Exceptional Battery Life & Mobility of the LG Gram 15.6 Laptop (2018 Edition)"
-date: 2024-09-14T08:22:42.378Z
-updated: 2024-09-14T20:41:30.852Z
+date: 2024-09-21T17:04:26.539Z
+updated: 2024-09-26T18:12:22.658Z
 categories:
   - BestProducts
 description: "This Article Describes The Featherlight Game Changer: A Deep Dive Review Into the Exceptional Battery Life & Mobility of the LG Gram 15.6 Laptop (2018 Edition)"
@@ -41,6 +41,13 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/BiBvvSXCg5l15o1T-fJmijAM9PQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Zach Sweat
 
 [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Falienware-aurora-r9-gaming-desktop-intel-core-i7-9700-16gb-memory-nvidia-geforce-rtx-2080-super-1tb-hdd-512gb-ssd-white-lunar-light%2F6373818.p%3FskuId%3D6373818) [View On Dell](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.dell.com%2Fen-us%2Fshop%2Fcty%2Fpdp%2Fspd%2Falienware-aurora-r9-desktop)
@@ -73,6 +80,13 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wRBNGBQw39Gc3PVZ6i0PJB4LuWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-08-406d659ae21641d2b9df53303e8f6d76.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 ## **Design: Polarizing sci-fi aesthetics**
@@ -94,6 +108,19 @@ Lifewire / Zach Sweat
  If you love Alienware or the look of the R9, it’s not a bad option, but it’s certainly not the most frugal.
 
  Inside the case, Alienware has made the new R9 quite upgradeable, allowing owners to easily pull things apart for access to various components. Though it’s a bit cramped inside, the genius ability to swing the PSU (power supply unit) out to the side when the case is removed provides easier access to the motherboard and all its parts. While we’re a bit concerned with the airflow due to this tight fit inside the case, it does allow you to upgrade hardware down the line if you want.
+
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Plug and play**
 
@@ -125,13 +152,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Gaming: From ok to amazing, if you have the cash**
 
  Much like performance in everyday tasks, your performance in gaming is based on what hardware your Aurora features. You can go all the way up to a monsterous gaming rig with a GTX 2080, or all the way down to our little base model with a GTX 1650, so it’s up to you how much performance you’re willing to pay for.
@@ -160,13 +180,6 @@ Lifewire / Zach Sweat
 
  Although true audiophiles will still want to stick with a DAC, or digital-to-analog converter, the Aurora R9 packs in pretty decent audio options for most users.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Network: Solid Ethernet, average Wi-Fi**
 
  In the age of the internet, network speeds and performance are paramount for most users, especially so if you’re a gamer. This fact not only applies to those who love online multiplayer games, but also those who prefer singleplayer since most people now download their software online.
@@ -183,20 +196,14 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wMnVqt6RV24C1Vfncnf2J3E0fAg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-15-fe70fca5ffd04da6abd8c0ef8f026eef-f6d5eaf9efcb461a902fc750a192dd0c.jpg)
 
-<!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Windows 10 with some bloatware and extras**
 
@@ -241,10 +248,10 @@ Lifewire / Zach Sweat
  With a distinct design that only Alienware can pull off, the Aurora R9 is a futuristic-looking prebuilt PC with a lot of good, but a bit of extra cost. If you love Alienware or the look of the R9, it’s not a bad option, but it’s certainly not the most frugal.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -273,5 +280,21 @@ Lifewire / Zach Sweat
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-mastering-iphone-ios-voice-memos-recording-guide/"><u>[New] 2024 Approved Mastering iPhone IOS Voice Memos Recording Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-high-performance-tools-youtube-meets-twitter/"><u>[New] High-Performance Tools YouTube Meets Twitter</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-integrating-your-photos-smart-transfers-from-iphone-to-snapchat-for-2024/"><u>[New] Integrating Your Photos Smart Transfers From iPhone to Snapchat for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-revolutionary-srt-adjustments-unleash-potential-on-both-oses/"><u>2024 Approved Revolutionary SRT Adjustments Unleash Potential on Both OSes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-precision-timekeeping-with-the-philips-hf3520-an-insightful-review/"><u>Affordable Precision Timekeeping with the Philips HF3520 - An Insightful Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-vuebell-smart-video-doorbell-top-reviews-and-features/"><u>Affordable VueBell Smart Video Doorbell - Top Reviews & Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-tv-4k-2021-unveiled-revolutionize-your-streaming-experience-with-siri-voice-commands/"><u>Apple TV 4K 2021 Unveiled: Revolutionize Your Streaming Experience with Siri Voice Commands!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/audiophiles-dream-dive-into-the-crystal-clear-soundscape-of-midlands-gxt1000vp4-review/"><u>Audiophile's Dream: Dive Into the Crystal-Clear Soundscape of Midland's GXT1000Vp4 Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/caixuns-budget-friendly-large-screen-android-tv-75-inch-4k-review-and-verdict/"><u>Caixun's Budget-Friendly Large Screen Android TV (75 Inch, 4K) Review and Verdict</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/chatgpt-plus-reviewed-are-these-5-features-enough-to-justify-the-cost/"><u>ChatGPT Plus Reviewed - Are These 5 Features Enough to Justify the Cost?</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/fixing-mysterious-question-marks-in-macs-file-folders/"><u>Fixing Mysterious Question Marks in Mac's File Folders</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-vivo-y27-4g-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Vivo Y27 4G | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-the-art-of-mastering-funimate/"><u>In 2024, The Art of Mastering Funimate</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/successful-steps-to-watching-dvds-on-your-dell-laptop-with-windows-11/"><u>Successful Steps to Watching DVDs on Your Dell Laptop with Windows 11</u></a></li>
+</ul></div>
 

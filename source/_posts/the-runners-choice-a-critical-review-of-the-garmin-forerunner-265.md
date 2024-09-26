@@ -1,7 +1,7 @@
 ---
 title: The Runner's Choice? - A Critical Review of the Garmin Forerunner 265
-date: 2024-09-18T16:51:34.164Z
-updated: 2024-09-20T16:16:02.226Z
+date: 2024-09-22T16:54:25.648Z
+updated: 2024-09-26T18:13:37.928Z
 categories:
   - BestProducts
 description: This Article Describes The Runner's Choice? - A Critical Review of the Garmin Forerunner 265
@@ -37,6 +37,13 @@ Lifewire / Jonno Hill
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
@@ -64,6 +71,13 @@ Lifewire / Jonno Hill
 
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Basic but effective**
 
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
@@ -75,10 +89,10 @@ Lifewire / Jonno Hill
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Acceptable but not incredible**
@@ -90,6 +104,13 @@ Lifewire / Jonno Hill
 ## **Range: Fairly limited**
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Excellent for the performance**
 
@@ -105,13 +126,6 @@ Lifewire / Jonno Hill
 
 **No fuss, good value.**
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -138,5 +152,21 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-innovating-video-streams-for-the-modern-gamer-on-youtube/"><u>[New] Innovating Video Streams for the Modern Gamer on Youtube</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-ultimate-guide-to-sharing-your-screen-in-skype-work-sessions/"><u>[New] The Ultimate Guide to Sharing Your Screen in Skype Work Sessions</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-unlocking-clear-communication-zooms-best-transcription-services/"><u>[Updated] Unlocking Clear Communication Zoom's Best Transcription Services</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-twitters-revised-video-standards-aspect-ratios-included/"><u>2024 Approved Twitter's Revised Video Standards Aspect Ratios Included</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cut-the-clutter-advanced-techniques-with-youtube-studio-editor/"><u>Cut the Clutter Advanced Techniques with YouTube Studio Editor</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ng-into-tseries-streaming-revenue-model-on-youtube-for-2024/"><u>Delving Into TSeries' Streaming Revenue Model on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-erase-your-online-presence-post-facebook-stories/"><u>In 2024, Erase Your Online Presence Post-Facebook Stories</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-reviews-of-the-new-fitbit-charge-6-is-it-a-step-up-from-its-predecessor/"><u>Top Reviews of the New Fitbit Charge 6: Is It a Step Up From Its Predecessor?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-of-the-line-review-for-razer-blade-pro-17-unleashing-unmatched-power-on-the-go/"><u>Top-of-the-Line Review for Razer Blade Pro 17 – Unleashing Unmatched Power on the Go</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-dji-robomaster-s1-the-innovative-combination-of-entertainment-programming-and-battle/"><u>Ultimate Guide: DJI RoboMaster S1 - The Innovative Combination of Entertainment, Programming & Battle</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unboxing-the-future-in-depth-analysis-of-the-revolutionary-iphone-15-pro-in-action/"><u>Unboxing the Future: In-Depth Analysis of the Revolutionary iPhone 15 Pro in Action</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleashing-power-in-depth-look-at-the-mighty-beatit-bt-d11-charger/"><u>Unleashing Power: In-Depth Look at the Mighty Beatit BT-D11 Charger</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/user-friendly-guide-to-logging-gotomeeting-events-for-2024/"><u>User-Friendly Guide to Logging GoToMeeting Events for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-tecno-phantom-v-flip-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Tecno Phantom V Flip? Here Is the Answer | Dr.fone</u></a></li>
+</ul></div>
 
