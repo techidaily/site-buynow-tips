@@ -1,7 +1,7 @@
 ---
 title: "Transitioning Kodi: Now Easily Installs on Linux with Flatpak Support"
-date: 2024-08-31T16:35:39.459Z
-updated: 2024-09-01T16:35:39.459Z
+date: 2024-09-24T17:04:56.415Z
+updated: 2024-10-01T17:43:39.018Z
 tags:
   - games
   - tv
@@ -31,8 +31,6 @@ Slowly but surely, the Linux ecosystem is switching to packaged software bundles
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -40,8 +38,33 @@ Slowly but surely, the Linux ecosystem is switching to packaged software bundles
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-techniques-for-writing-eye-catching-podcast-summaries/"><u>[New] Techniques for Writing Eye-Catching Podcast Summaries</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-bend-the-light-homegrown-animated-innovations/"><u>[Updated] In 2024, Bend the Light Homegrown Animated Innovations</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-best-hashtags-for-youtube-gaming-videos-for-2024/"><u>[Updated] The Best Hashtags for YouTube Gaming Videos for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/avi-to-wmv-movavi-online-tool/"><u>無料変換ソフト AVI to WMV - MOVAVI ONLINE TOOL</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/breaking-into-the-tiktok-livestream-realm/"><u>Breaking Into the TikTok Livestream Realm</u></a></li>
+<li><a href="https://techtrends.techidaily.com/easy-fixes-to-combat-photoshops-limited-storage-space-mishaps/"><u>Easy Fixes to Combat Photoshop's Limited Storage Space Mishaps</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-honor-magic-6-pro-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Honor Magic 6 Pro to iPad | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/mastering-stability-overcoming-arma-3s-crash-issues-with-advanced-fixes-insider-knowledge/"><u>Mastering Stability: Overcoming Arma 3'S Crash Issues with Advanced Fixes - Insider Knowledge</u></a></li>
+<li><a href="https://fox-access.techidaily.com/no-fuss-trick-for-clownfish-tone-change-in-windows-domain/"><u>No-Fuss Trick for Clownfish Tone Change in Windows Domain</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/the-ultimate-fix-for-misconfigured-speakers-on-your-windows-10-system/"><u>The Ultimate Fix for Misconfigured Speakers on Your Windows 10 System</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-choosing-a-kootek-laptop-cooling-pad-for-optimal-performance/"><u>The Ultimate Guide to Choosing a Kootek Laptop Cooling Pad for Optimal Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-choosing-a-reliable-jumpstarter-featuring-the-mighty-beatit-bt-d11/"><u>The Ultimate Guide to Choosing a Reliable Jumpstarter: Featuring the Mighty Beatit BT-D11!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-choosing-an-antenna-features-and-performance-of-the-antop-at-127-for-free-tv/"><u>The Ultimate Guide to Choosing an Antenna: Features and Performance of the Antop AT-127 for Free TV</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-verdict-on-the-dell-inspiron-3671-desktop-insights-into-a-competent-mid-tier-machine/"><u>The Verdict on the Dell Inspiron 3671 Desktop: Insights Into a Competent Mid-Tier Machine</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-mohu-blade-television-antenna-analysis-trendsetting-design-and-remarkable-interior-signal-strength/"><u>Top Mohu Blade Television Antenna Analysis: Trendsetting Design and Remarkable Interior Signal Strength</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-wi-fi-travel-routers-a-comprehensive-guide/"><u>Top Rated Wi-Fi Travel Routers : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/uniqueness/"><u>Uniqueness</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-features-of-kobo-clara-colour-the-ultimate-e-reader-assessment/"><u>Unveiling the Features of Kobo Clara Colour - The Ultimate E-Reader Assessment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-google-nest-doorbell-with-battery-backup-a-detailed-review/"><u>Unveiling the Google Nest Doorbell with Battery Backup - A Detailed Review</u></a></li>
+</ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+

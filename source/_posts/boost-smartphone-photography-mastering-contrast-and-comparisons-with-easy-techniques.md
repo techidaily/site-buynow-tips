@@ -1,7 +1,7 @@
 ---
 title: "Boost Smartphone Photography: Mastering Contrast & Comparisons with Easy Techniques"
-date: 2024-08-31T16:35:57.755Z
-updated: 2024-09-01T16:35:57.755Z
+date: 2024-09-28T21:02:58.989Z
+updated: 2024-10-01T16:33:39.971Z
 tags:
   - games
   - tv
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/519c0ecb3a4e958d4703170c89bc9f0f4e206bb0a
 
  In this piece, I'm going to suggest four types of contrast you can seek out to create photos that catch the eye, as well as ways to use similar elements for a visually pleasing effect.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  Old & New
 
  One of the simplest techniques is to combine elements of old and new. This can be really effective in travel shots, for example. Almost every city has evolved over time and will contain a mix of old buildings and new ones, classical and modern architecture. If you can find an angle that brings the two into stark contrast, people will almost always enjoy the effect, even if they can't say why.
@@ -44,21 +51,22 @@ thumbnail: https://thmb.techidaily.com/519c0ecb3a4e958d4703170c89bc9f0f4e206bb0a
 
 ![London's Gherkin peeking out from behind Georgian architecture](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/1-old-new1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  The modern London building here is formally known as 30 St Mary Axe but is far better known around the world as The Gherkin. The round cross-section of the building means it can be photographed from any angle, and I've chosen a position here that puts a far older building in the foreground. I've again gone in very tight, both to exclude other buildings but also to create more of an abstract-looking shot.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Color & Mono
 
  Another simple technique is to find a rather monochrome background, and either wait for something or someone colorful to walk in front of it, or to bring your own colour.
 
 ![A model in a very vividly pink-red dress lying on the steps of a monochrome-looking building in Washington, DC](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/2-color-mono-2.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ben Lovejoy / How-To Geek
 
@@ -67,8 +75,12 @@ Ben Lovejoy / How-To Geek
 ![A Buddhist monk standing in front of photos of victims of Cambodia's Killing Fields](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/2-color-mono-1.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  This was a more somber shot, taken inside the Choeung Ek Genocidal Center in Cambodia. The framed black-and-white photos of some of the victims are made more poignant by the colorful robe of the Buddhist monk studying the faces. The contrast helps to convey the message of life and death, then and now.
 
 ##  Light & Dark
@@ -81,12 +93,16 @@ Ben Lovejoy / How-To Geek
 
 ![London's Millennium Bridge and St Paul's Cathedral taken in the Blue Hour after sunset](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/3-light-dark2.JPG) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  This example of the Millennium Bridge and St Paul's Cathedral in London works in several different ways. Taken in the blue hour—the time after sunset when the sky appears in various shades of blue—has a number of contrasts within it. We have a lighter sky and a darker river. The lighter water surface on the left reflects the sky, and the darker surface on the right is shaded by the bridge and more buildings. We also have the very beautifully designed lighting of the cathedral itself, which was very carefully created in order to create a contrast of light and dark on the dome.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  Warm & Cold
 
@@ -100,9 +116,6 @@ Ben Lovejoy / How-To Geek
 
 ![A bare winter tree in front of the yellow light from a large window](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/4-warm-cold-1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  For me, this shot of the bare branches of a tree in winter against the warm light from inside the building really conveys an almost visceral sense of cold outside and warmth inside.
@@ -119,21 +132,22 @@ Ben Lovejoy / How-To Geek
 
 ![A woman at night lit by the warm glow from a street lamp](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/5-similar-color2.jpeg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  Here, we have the warm light on a street lamp reflected in the face of the woman, matched by the same warm light from lamps further down the street behind her.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ##  Repetition
 
  Repeating patterns can be another way to create a visually pleasing image. You'll want to choose your angle to emphasize the evenness of the patterns.
 
 ![Jetty supports on a river giving a squares-within-squares effect](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/6-repetition1.JPG) 
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ben Lovejoy / How-To Geek
 
@@ -142,29 +156,47 @@ Ben Lovejoy / How-To Geek
 ![Repeating arches in Tel Aviv](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/6-repetition2.JPG) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Ben Lovejoy / How-To Geek
 
  A similar idea with these arches in Tel Aviv. In this case, to get the background view I wanted, I needed to offset the near and far arches, rather than having them perfectly symmetrical, as I'd hoped, but I actually found it was a happy accident, as I like the feel of the offset.
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Having Fun With the Idea
 
  Whether going for similarity and contrast don't be afraid to play with the idea, and have some fun!
 
 ![A grafitti monster on the left, woman mirroring the pose on the right](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/9-fun.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  Spotting this piece of graffiti in London's Leake Street, for example, I asked the woman to mirror the pose of the monster.
 
 ![Shoes with a pattern blending in with the carpet pattern](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/9-fun2.JPG) 
+
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ben Lovejoy / How-To Geek
 
@@ -180,8 +212,6 @@ Ben Lovejoy / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -189,4 +219,21 @@ Ben Lovejoy / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-hilarityhub-online-tool-for-funny-image-crafting/"><u>[Updated] 2024 Approved HilarityHub Online Tool for Funny Image Crafting</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-rhythmic-revelations-songs-that-will-echo-yes/"><u>[Updated] Rhythmic Revelations Songs That Will Echo 'Yes'</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-sharp-lenses-clear-visions-tips-for-fog-free-filming/"><u>[Updated] Sharp Lenses, Clear Visions Tips for Fog-Free Filming</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-download-apple-podcasts/"><u>2024 Approved How to Download Apple Podcasts?</u></a></li>
+<li><a href="https://win-answers.techidaily.com/diy-repair-tips-for-fixing-the-modern-warfare-3-wont-launch-issue-on-your-gaming-device/"><u>DIY Repair Tips for Fixing the Modern Warfare 3 Won't Launch Issue on Your Gaming Device</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/facebook-live-vs-youtube-live-vs-twitter-periscope-for-2024/"><u>Facebook Live Vs YouTube Live Vs Twitter Periscope for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-erase-an-apple-iphone-x-without-apple-id-password-by-drfone-ios/"><u>How To Erase an Apple iPhone X Without Apple ID Password?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-start-with-crypto-and-nfts-your-simple-creation-plan/"><u>In 2024, Start with Crypto & NFTs Your Simple Creation Plan</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-showdown-unpacking-the-pros-and-cons-of-nintendo-switch-lite-vs-nintendo-switch-oled/"><u>The Showdown: Unpacking the Pros & Cons of Nintendo Switch Lite Vs Nintendo Switch OLED</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-dying-lights-co-op-gameplay-first-person-perspective-and-exhilarating-parkour-survival-experience/"><u>The Ultimate Guide to Dying Light's Co-Op Gameplay, First-Person Perspective and Exhilarating Parkour Survival Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/to-stay-or-to-switch-your-smartphone-dilemna/"><u>To Stay or to Switch: Your Smartphone Dilemna</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-acer-aspire-e-15-laptop-assessment-exceptional-affordable-performance/"><u>Top Acer Aspire E 15 Laptop Assessment - Exceptional Affordable Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-ranking-asus-network-devices-a-comprehensive-guide/"><u>Top-Ranking ASUS Network Devices : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-giants-unveiling-the-best-17-inch-laptops-in-the-market-2024-edition/"><u>Top-Rated Giants: Unveiling The Best 17-Inch Laptops in the Market - 2024 Edition</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Unleashing the Full Power of Google TV: Top 10 Features Every User Needs to Know"
-date: 2024-09-04T19:46:34.673Z
-updated: 2024-09-05T19:46:34.673Z
+date: 2024-09-30T18:12:47.946Z
+updated: 2024-10-01T21:08:44.815Z
 tags:
   - games
   - tv
@@ -28,9 +28,29 @@ thumbnail: https://thmb.techidaily.com/c2931b7c0e4d12082380cc3ad2ba8216e12e1526e
 
  Google TV packs a punch, but are you using it to its full potential? From hidden gems to time-saving tricks, there are probably some features you didn't know about. We've got ten tips and tricks to help improve your Google TV experience and get the most out of your precious couch time.
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  Add a Quick Settings Shortcut for the Remote
 
 ![Google TV remote quick settings](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/screenshot_20240806-165910.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  One of the best things about an internet-connected streaming device is the ability to [use your phone as a remote](https://extra-tips.techidaily.com/in-2024-comprehensive-guide-to-audiovisual-transmitters/). If you have a Google TV device and an Android phone, you can make it super quick and easy to pull up the virtual remote. Once you install the official Google TV app (and open it and sign in), you'll have [a new Quick Settings toggle available](https://video-content-creator.techidaily.com/updated-in-2024-uncover-the-best-green-screen-software-for-mac-video-editing/) called "Remote." Tapping it instantly opens up the remote on top of whatever you're doing.
 
@@ -38,14 +58,22 @@ thumbnail: https://thmb.techidaily.com/c2931b7c0e4d12082380cc3ad2ba8216e12e1526e
 
 ![Play Store remote app install.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/screenshot_20240806-165959.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Thanks to Google hiding the Play Store on Google TV devices, it's not as easy as it could be to [install apps directly on your TV](https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-poco-m6-5g-drfone-by-drfone-virtual-android/). The good news is you can do it from your phone or a web browser. The Play Store's web version allows you to [install apps on any device connected to your account remotely](https://win-howtos.techidaily.com/resolving-device-detection-issues-with-bluetooth-on-microsofts-latest-os-windows-n11/), and the Play Store on Android phones can [install apps to multiple devices at once](https://instagram-video-files.techidaily.com/updated-in-2024-keeping-content-copyright-compliant-with-instra-watermarking/).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Remap the Buttons on Your Remote
 
 ![Chromecast with Google TV remote](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2020/10/2202984b.jpg) 
@@ -66,68 +94,40 @@ Justin Duino / How-To Geek
 
  Google TV devices offer [multiple profiles](https://facebook.techidaily.com/customizing-profile-information-emailphone-switch/), including a [dedicated Kids profile with parental controls](https://facebook-videos.techidaily.com/new-in-2024-top-facebook-video-mp4-downloaders/). This profile (which will add your child to your [Google Family](https://extra-tips.techidaily.com/exclusive-android-3d-video-enthusiasts-choice/)) doesn't require a separate Gmail account. By setting up a Kid's profile, you can easily manage bedtimes and screen time limits, monitor app usage, and restrict content, ensuring a safe viewing experience for your children on your Google TV device.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Put the Home Screen in Apps Only Mode
 
 ![Google TV apps only home screen.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/screenshot_20240725-081803.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030370/7443" target="_top" id="2030370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Google TV's home screen can be overwhelming with recommendations. Fortunately, ["Apps Only Mode" simplifies the interface by focusing solely on installed apps](https://hardware-help.techidaily.com/inside-look-at-the-asus-rog-swift-pg3nce-oled-monitor-a-game-changer-reviewed/). This hidden feature eliminates distracting content like "Top Picks For You" and "Continue Watching," replacing them with a clean grid of app icons. The only part of the home screen recommendations that can't be removed is the big "Highlights" carousel at the top, but everything else is wiped clean.
 
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Get Recommendations for the Services You Use
 
 ![toggle services on or off](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2020/10/customize-google-tv-8.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  If you don't mind the home screen recommendations, [you should take a minute to improve them](https://extra-hints.techidaily.com/a-beginners-guide-to-adding-depth-with-text-in-photoshop-for-2024/). While some recommendations are just ads, many of them are based on the streaming services you actually use. Make sure you've enabled all the services you're currently subscribed to—and remove the ones you no longer have. There's nothing more annoying than seeing a recommendation for something you can't actually watch.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Turn off Autoplaying Trailers
 
  One of the annoying things about recommendations is when videos start auto-playing on the home screen and in apps. Thankfully, there's an easy way to prevent this from happening. Simply go to Settings > Accounts and Sign-in > Your account > Auto-play Trailers. Toggle the switch off.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  Reorder the Apps
 
  You probably have a few apps that you use more than others, so why not move them to the front of the list? [To rearrange your favorite apps and games](https://extra-guidance.techidaily.com/leading-the-charge-in-online-healthcare-promotions-and-ads-for-2024/) on the "For You" and "Apps" tabs, go to "Your Apps," highlight the app you want to move, and select "See All." Then, hold down the "Select" or "Enter" button on your remote, choose "Move," and use the D-pad to reposition the app to the desired location.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Use Google Photos as Your Screen Saver
 
  Since Google TV is, well, a _Google_ TV, it obviously integrates well with other Google services—including Google Photos. [To use your Google TV device as a giant photo frame](https://extra-resources.techidaily.com/updated-10-top-tools-for-dynamic-image-background-alterations/), set up Google Photos as your "Ambient Mode," a.k.a. screen saver. This can be done during initial setup or through the Google Home app. You can choose albums and even specify certain people or pets.
@@ -138,8 +138,6 @@ Justin Duino / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -147,4 +145,19 @@ Justin Duino / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-essential-low-cost-footage-source-directory/"><u>[New] 2024 Approved Essential Low-Cost Footage Source Directory</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-chroma-key-techniques-for-professional-videos/"><u>[New] Mastering Chroma Key Techniques for Professional Videos</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-mastering-srt-extension-on-both-macwindows-platforms/"><u>2024 Approved Mastering SRT Extension on Both Mac/Windows Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/badminton-teams-disconnect-from-screens/"><u>Badminton Teams Disconnect From Screens</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/compact-and-durable-audew-handheld-air-pump-the-ultimate-buyers-guide/"><u>Compact & Durable Audew Handheld Air Pump: The Ultimate Buyer's Guide</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-differences-in-ai-chatbots-a-head-to-head-of-mistrals-le-chat-and-chatgpt/"><u>Exploring Differences in AI Chatbots: A Head-to-Head of Mistral’s Le Chat and ChatGPT</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/important-criteria-to-review-prior-to-adopting-chatgpt-for-psychological-support/"><u>Important Criteria to Review Prior to Adopting ChatGPT for Psychological Support</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Oppo Find N3 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-fujitsu-scansnap-ix1600-revolutionizing-desktop-document-scanning-experience/"><u>In-Depth Look at the Fujitsu ScanSnap iX1600 - Revolutionizing Desktop Document Scanning Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-the-ps4-pros-ability-to-deliver-true-4k-gameplay/"><u>In-Depth Review of the PS4 Pro's Ability to Deliver True 4K Gameplay</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/smooth-file-migration-to-computer-5-proven-techniques/"><u>Smooth File Migration to Computer – 5 Proven Techniques</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-pros-and-cons-comprehensive-review-of-huions-inspiroy-g10t-tablet/"><u>Unveiling the Pros & Cons: Comprehensive Review of Huion's Inspiroy G10T Tablet</u></a></li>
+</ul></div>
 

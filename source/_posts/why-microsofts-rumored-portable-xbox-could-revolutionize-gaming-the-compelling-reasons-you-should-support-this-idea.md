@@ -1,7 +1,7 @@
 ---
 title: "Why Microsoft’s Rumored Portable Xbox Could Revolutionize Gaming: The Compelling Reasons You Should Support This Idea"
-date: 2024-08-31T16:35:48.397Z
-updated: 2024-09-01T16:35:48.397Z
+date: 2024-09-26T18:45:31.669Z
+updated: 2024-10-01T21:11:24.275Z
 tags:
   - games
   - tv
@@ -22,6 +22,13 @@ thumbnail: https://thmb.techidaily.com/8443124490dd4d26d174966fed147fd5721a95723
 
  Handheld gaming has seen massive growth since the success of the Nintendo Switch and Steam Deck. Now rumors are swirling that Microsoft is introducing a handheld of its own, possibly called the Xbox Series P, and we’re excited.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  A More Powerful Steam Deck
 
  The Steam Deck is a Linux-based handheld gaming PC that uses a compatibility layer called Proton to play games in your Steam library. Thanks to its aggressive price point, impressive-at-the-time hardware, and compatibility with a large number of titles, the Steam Deck was pretty much an overnight success for Valve.
@@ -38,9 +45,6 @@ Marcus Mears III / How-To Geek
 
  What if Microsoft can get within spitting distance of the performance seen in the Xbox Series S, albeit at a smaller and pocket-friendly resolution? Dedicated hardware for upscaling and frame generation using AMD’s [FidelityFX Super Resolution](https://review-topics.techidaily.com/how-to-update-iphone-xs-max-to-the-latest-iosipados-version-drfone-by-drfone-ios-system-repair-ios-system-repair/) could make all the difference.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Potentially Good for the Windows Handheld Experience
 
  There are two routes Microsoft can go with an Xbox handheld, and one involves a fully functional version of Windows. Though we haven’t seen Windows running on an Xbox before, the arrival of so many handheld gaming PCs that run Windows could present Microsoft with an opportunity that’s hard to resist.
@@ -51,15 +55,19 @@ Marcus Mears III / How-To Geek
 
 ![windows display settings on the asus rog ally](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/12/windows-display-settings-on-the-asus-rog-allyjpg_53306024207_o.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Hannah Stryker / How-To Geek
 
  Since Microsoft has pivoted hard towards subscriptions in the form of Game Pass, introducing a handheld-friendly Windows interface makes a lot of sense. Debuting this interface alongside an Xbox handheld but leaving it open to other manufacturers is unlikely to harm the company’s long-term plans. Microsoft is still the PC company and they dominate the non-console gaming market.
 
  Microsoft can solve this problem from the inside, by making a change to the operating system that similar handhelds can make use of. A better handheld Windows gaming experience further cements Windows as _the_ platform for PC gaming, and they can probably sell more Game Pass subscriptions while they’re doing it.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Alternatively, a True Mobile Xbox Experience
 
  The other direction leaves Windows at the door and lets Microsoft focus on providing a proper portable Xbox experience. This would likely resemble the same dashboard you’ll see on a regular Xbox console, a transition that should “just work” on a handheld.
@@ -69,8 +77,12 @@ Hannah Stryker / How-To Geek
 ![Screenshot from Bethesda RPG Starfield on Xbox.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/starfield.jpeg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 _Starfield_  
 Tim Brookes / How-To Geek
 
@@ -90,14 +102,6 @@ Tim Brookes / How-To Geek
 
  If such a portable runs vanilla Windows then there would be no need for a Developer Mode at all, since you’d be able to install regular old Windows emulators.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ##  Game Pass on the Go
 
  Game Pass is arguably the best deal in gaming, offering hundreds of titles for $16.99/month (or $9.99/month on PC, with a reduced selection of games). There’s always _something_ to play, and the subscription includes access to online multiplayer and cloud gaming to boot.
@@ -106,17 +110,18 @@ Tim Brookes / How-To Geek
 
 ![Skyrim's Whiterun guard with a bucket on his head.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/skyrim_guard_bucket.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _The Elder Scrolls V: Skyrim_  
 Tim Brookes / How-To Geek
 
  Handhelds like the ROG Ally can access Game Pass, but only Game Pass for PC. It’s also hit and miss in terms of performance, leaving players to their own devices in terms of tweaking settings to get things working smoothly. Microsoft’s position would enable them to work with developers and curate software in a manner that hopefully guarantees a good level of performance.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Combining Native, Remote, and Cloud Play
 
  The Steam Deck can play games natively, over a local network with Steam Remote Play, but cloud gaming relies on a web browser. The PlayStation Portal can play games over the local network or via the internet but has no native gaming capabilities. A portable Xbox could excel at all three.
@@ -153,8 +158,6 @@ Asus ROG Ally Z1 Extreme (left) versus Steam Deck 512GB LCD (right)
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -162,4 +165,19 @@ Asus ROG Ally Z1 Extreme (left) versus Steam Deck 512GB LCD (right)
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-efficient-screen-capture-devices-for-education-for-2024/"><u>[New] Efficient Screen Capture Devices for Education for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-from-joke-to-jest-constructing-impactful-social-media-memes-for-2024/"><u>[New] From Joke to Jest Constructing Impactful Social Media Memes for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-unveiling-the-most-enlightening-general-knowledge-trivia-channels-in-24-for-2024/"><u>[New] Unveiling the Most Enlightening General Knowledge Trivia Channels in '24 for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-backgroundannihilator-professional-erase-software/"><u>[Updated] In 2024, BackgroundAnnihilator Professional Erase Software</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-essential-linux-software-for-efficient-screen-capture/"><u>[Updated] In 2024, Essential Linux Software for Efficient Screen Capture</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/craft-engaging-yt-titles-in-a-flash-for-2024/"><u>Craft Engaging YT Titles in a Flash for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-13-to-other-iphone-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 13 To Other iPhone? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-lg-27ud88-w-4k-usb-type-c-monitor-complete-review/"><u>In 2024, LG 27UD88-W 4K USB Type-C Monitor Complete Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/stanley-j5c09-assessment-powerful-and-spacious-design/"><u>Stanley J5C09 Assessment: Powerful and Spacious Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/step-by-step-transition-elevating-your-pc-from-windows-8-to-11/"><u>Step-by-Step Transition: Elevating Your PC From Windows 8 to 11</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/survival-or-skid-exploring-the-zombie-apocalypse-in-days-gone-as-an-adventurous-rider/"><u>Survival or Skid: Exploring the Zombie Apocalypse in 'Days Gone' As an Adventurous Rider</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-essential-review-of-speed-and-style-the-gotrax-gxl-v2-commuter-e-scooter-unveiled/"><u>The Essential Review of Speed and Style: The Gotrax GXL V2 Commuter E-Scooter Unveiled</u></a></li>
+</ul></div>
 

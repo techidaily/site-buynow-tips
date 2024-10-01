@@ -1,7 +1,7 @@
 ---
 title: The Cost of Precision with the Ambient WS-10002 WiFi Weather Sensor - A Comprehensive Review
-date: 2024-09-23T16:29:43.010Z
-updated: 2024-09-26T17:00:26.703Z
+date: 2024-09-29T17:10:15.306Z
+updated: 2024-10-01T16:52:46.174Z
 categories:
   - BestProducts
 description: This Article Describes The Cost of Precision with the Ambient WS-10002 WiFi Weather Sensor - A Comprehensive Review
@@ -75,13 +75,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/urRsU5n3D2A-nzQe6NGdQgrDGwM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1lW4043278-Acer-Aspire-2-4cb96f03e4c748a583d14f0c8c9224dc.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
 
 ## **Design: A decent plastic case, but not exactly a premium look**
@@ -96,6 +89,13 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  The keyboard is roomy and comfortable and the keys feel sharp and springy. The trackpad is massive and responsive, but it doesn’t feel as robust as the keyboard. The left and right buttons are incorporated into the main body of the trackpad, and they have far too much give—if we pressed down with more than the absolute minimum necessary force, it felt like the trackpad might collapse.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process:** **A ton of bloatware to remove**
 
  The Acer Aspire E 15 comes with[Windows 10](https://www.lifewire.com/windows-10-2626217) preloaded, and the setup process isn’t really anything out of the ordinary for a Windows 10 laptop. Acer requests some contact information during the initial setup, which is something that most of the[OEMs](https://www.lifewire.com/what-is-oem-software-1701736) do to help with warranties and support. We timed the process from start to finish, and it took about 10 minutes to go from plugging it in and turning it on, to hitting the desktop for the first time.
@@ -105,6 +105,13 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/M-q3UXEJ6htBtTcwPWAH9SLwJeI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1lW4043278-Acer-Aspire-4-1cfdfcc543fa4eb5b5e5449b6ea37413.jpg)
 
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Display: Full HD display with awesome contrast but washed-out color**
 
@@ -134,6 +141,13 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  The takeaway is that we absolutely wouldn’t recommend buying this laptop for the purpose of playing games, but it is capable of rising to the task if you’re willing to lower the settings and stick to older games.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Productivity: Gets the job done at work, home, or on the go**
 
  The Aspire E 15 is designed with productivity in mind. While we found that it was capable of some light gaming, it’s definitely intended for students and people who need a basic[business laptop](https://www.lifewire.com/best-laptops-to-buy-4043650) .
@@ -143,19 +157,33 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/0j4qIM8N-IXUlX66rWrHmqZTjxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1lW4043278-Acer-Aspire-3-8bdb945a491f4f4cbab64c65fa21d9af.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Audio: Decent speakers, but no bass response**
 
  The speakers are decent enough, but the audio quality is still one of the Aspire E 15’s weaker points. They just don’t get all that loud, and when we did crank the volume all the way up, we noticed a bit of distortion in some frequency ranges. There isn’t a whole lot of bass, either, so everything sounds a little tinny—and that only gets worse at louder volumes.
 
  Strangely enough, the audio is actually louder and clearer when the[laptop](https://www.lifewire.com/14-16-inch-laptops-833846) is sitting on a flat surface. It seems like there is a lot of sound escaping from the vents as well as through the actual speaker grills, and placing it on a solid surface seems to improve the audio quality.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Network: Great speeds on both 5 GHz and 2.4 GHz networks**
 
@@ -166,22 +194,15 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
  We found that the Aspire E 15 was able to achieve download speeds of 260 Mbps and upload speeds of 65 Mbps when connected to our 5 GHz network. When connected to our 2.4 GHz network, it notched speeds of 66 Mbps down and 64 Mbps up. These speeds are pretty good across the board.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Camera: 720p webcam takes grainy stills**
 
  The included webcam is capable of capturing 720p video, and while it works well enough for basic video calls on Skype or Discord, it may not be up to the standards necessary for professional video conferencing. It also takes grainy still images, although that may not be a huge concern unless you really need to take[photos](https://www.lifewire.com/best-laptops-to-buy-4043650) with your webcam for some reason.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Battery: Fantastic battery life that goes all day**
 
@@ -193,19 +214,6 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  In a category where a lot of competing devices die out after four or five hours, that’s pretty remarkable.
 
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software: Bogged down by bloatware**
 
  The Acer Aspire E 15 comes with Windows 10, some basic Windows apps, and a free trial of[Microsoft 365](https://www.lifewire.com/how-to-install-office-365-4589808) . It also comes with a whole bunch of bloatware from Acer, Netflix, Evernote, an outdated version of Firefox, and several games you probably won’t want or need.
@@ -215,13 +223,6 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 ## **Price: Extremely competitive pricing**
 
  With an MSRP of just $380, the Aspire E 15 is a fantastic deal. If you can get it for even less than that, then it’s truly a steal. The more expensive configuration with an SSD, discrete graphics, and Core i7, is also a good deal at an MSRP of $599 if you have a little more room in your budget.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Blows the competition out of the water in almost every category**
 
@@ -244,13 +245,6 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 * [Asus Chromebook C202SA](https://www.lifewire.com/asus-chromebook-c202sa-review-4589359)
 * [Microsoft Surface Go](https://www.lifewire.com/microsoft-surface-go-review-4690827)
 * [Lenovo Ideapad 320](https://www.lifewire.com/lenovo-ideapad-320-review-4686723)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -281,19 +275,18 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-elevating-your-desktop-mastering-screenshot-and-recording/"><u>[New] 2024 Approved Elevating Your Desktop Mastering Screenshot and Recording</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-voice-log-retrieval-content-scrutiny/"><u>[Updated] 2024 Approved Voice Log Retrieval, Content Scrutiny</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-mastering-video-editing-for-social-media-standout/"><u>[Updated] In 2024, Mastering Video Editing for Social Media Standout</u></a></li>
-<li><a href="https://blog-min.techidaily.com/2021-guide-for-uploading-and-downloading-dvds-on-google-drive/"><u>2021 Guide for Uploading and Downloading DVDs on Google Drive</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/1722945219217-garmin-vivoactive-3-unveiled-elevating-workouts-and-work-tunes-for-optimal-fitness/"><u>Garmin Vivoactive 3 Unveiled: Elevating Workouts and Work Tunes for Optimal Fitness.</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-apex-workplace-data-sphere/"><u>In 2024, Apex Workplace Data Sphere</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-echoes-of-sound-how-to-enhance-tweeted-visuals/"><u>In 2024, Echoes of Sound How to Enhance Tweeted Visuals</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-the-hottest-meme-battles-reddit-and-twitters-leaders/"><u>In 2024, The Hottest Meme Battles Reddit & Twitter's Leaders</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/integrating-youtube-videos-into-your-instagram-story-for-2024/"><u>Integrating YouTube Videos Into Your Instagram Story for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-ru-cyrillic-sounds-and-speech/"><u>Mastering RU Cyrillic Sounds and Speech</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-next-gen-viewing-expert-review-of-samsungs-stellar-4k-hdr10plus-qn55q60rafxza-television/"><u>Unveiling the Power of Next-Gen Viewing: Expert Review of Samsung's Stellar 4K HDR10+ QN55Q60RAFXZA Television</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-samsung-qn55q60rafxza-a-comprehensive-look-at-this-high-definition-smart-tv/"><u>Unveiling the Samsung QN55Q60RAFXZA: A Comprehensive Look at This High-Definition Smart TV</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/use-strong-unique-passwords-for-all-wallets-and-accounts/"><u>Use Strong, Unique Passwords for All Wallets and Accounts.</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/viair-88p-mini-compressor-assessment-high-performance-meets-small-hiccups/"><u>Viair 88P Mini Compressor Assessment: High Performance Meets Small Hiccups</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-download-and-translate-youtube-videos-for-free/"><u>[New] In 2024, Download and Translate YouTube Videos for Free</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-premium-photographic-archives-for-2024/"><u>[Updated] Premium Photographic Archives for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-photoshop-magic-master-the-art-of-background-elimination/"><u>2024 Approved Photoshop Magic Master the Art of Background Elimination</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/essential-gear-for-the-modern-explorers-dream/"><u>Essential Gear for the Modern Explorer's Dream</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-vive-cosmos-exceptional-virtual-reality-set-in-a-crowded-marketplace/"><u>Exploring the Vive Cosmos: Exceptional Virtual Reality Set in a Crowded Marketplace</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-honor-magic-5-lite-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Honor Magic 5 Lite without App | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Vivo Y02T | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-making-your-channels-subscribe-button-pop/"><u>In 2024, Making Your Channel's Subscribe Button Pop!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-the-functionality-and-features-of-googles-wireless-nest-doorbell-battery/"><u>In-Depth Review: The Functionality and Features of Google's Wireless Nest Doorbell (Battery)</u></a></li>
+<li><a href="https://driver-download.techidaily.com/installing-brother-l2700dw-printer-drivers-on-windows-download-and-setup-tutorial/"><u>Installing Brother L2700dw Printer Drivers on Windows - Download & Setup Tutorial</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/next-level-gaming-with-dell-alienware-aurora-r9-the-cutting-edge-pc-review/"><u>Next-Level Gaming with Dell Alienware Aurora R9 - The Cutting Edge PC Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-resource-for-boosting-your-intel-based-imac-efficiency/"><u>The Ultimate Resource for Boosting Your Intel-Based iMac Efficiency</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-lamicall-s-innovative-design-for-optimal-tablet-viewing-experience/"><u>Unveiling the Lamicall S: Innovative Design for Optimal Tablet Viewing Experience</u></a></li>
 </ul></div>
 

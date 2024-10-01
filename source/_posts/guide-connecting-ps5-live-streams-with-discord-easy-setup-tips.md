@@ -1,7 +1,7 @@
 ---
 title: "Guide: Connecting PS5 Live Streams with Discord - Easy Setup Tips"
-date: 2024-08-31T16:37:17.147Z
-updated: 2024-09-01T16:37:17.147Z
+date: 2024-09-28T20:32:55.705Z
+updated: 2024-10-01T21:15:11.733Z
 tags:
   - games
   - tv
@@ -34,16 +34,40 @@ thumbnail: https://thmb.techidaily.com/b122329db8c6b3d63423f9307655a76116968c0c0
 
 ![Enabling remote play on PS5.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/enable-remote-play-ps5.png) 
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Next, download the PS Remote Play app from Windows or Mac from the [PlayStation website](https://www.playstation.com/en-us/remote-play/). Launch the app once installed, then click “Sign In to PSN” on the welcome screen and go through the steps to log into your PSN account. Once signed in, click “PS5” on the console selection screen.
 
 ![The console selection screen in the PS Remote Play.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/console-selection-screen-ps-remote-play.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  If you have more than one PS5 console linked to your PSN account, select the one you want to connect to in the prompt. The remote play app will then attempt to connect to your PS5\. If it is successful, you should see the PS5’s video output in the PS Remote Play window.
 
 ![PS5 video output in the PS Remote Play app.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/ps5-remote-play-streaming.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  To stream it on Discord, open the Discord app and find the chat you want to stream to then click the “Share Screen” button at the bottom of the left panel.
 
@@ -53,23 +77,28 @@ thumbnail: https://thmb.techidaily.com/b122329db8c6b3d63423f9307655a76116968c0c0
 
 ![Sharing the PS Remote Play application window on Discord.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/select-ps5-remote-play-window-discord.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Set the resolution and frame rate. If you don’t have a [Discord Nitro subscription](https://ios-unlock.techidaily.com/forgot-apple-iphone-12-mini-backup-password-heres-what-to-do-by-drfone-ios/), you won’t be able to set the resolution and frame rate to anything higher than 720p at 30FPS,. Next, click “Go Live” to start the stream.
 
 ![Going live on Discord.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/discord-ps5-stream-go-live.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Your friends should now be able to see your remote play session on the voice channel.
 
 ![Streaming the PS Remote Play app in the Discord app.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/streaming-ps5-remote-play-discord.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  How to Stream PS5 to Discord Using a Capture Card
 
  If you don’t want to use PS Remote Play, you can try using a capture card. This requires the purchase of additional hardware that takes the signal coming out of your PS5 and allows you to record or stream it live. For some recommendations, check out [our favorite capture card roundup](https://fox-helps.techidaily.com/updated-2024-approved-google-ar-decorations-and-their-competing-products/). Once you have the necessary hardware, streaming to Discord is easy.
@@ -82,18 +111,12 @@ thumbnail: https://thmb.techidaily.com/b122329db8c6b3d63423f9307655a76116968c0c0
 
 ![NZXT Signal 4K30 capture card held in hand over desk](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/06/nzxt-signal-4k30-in-hand.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Marcus Mears III / How-To Geek
 
  Then, you will need to connect the capture card to your computer using a USB cable. This will transfer the video signal to the computer as it passes through to the TV. For the capture card to turn on, you might need another USB cable to connect it to a power source, such as a computer or USB-to-outlet adapter.
 
  If you can see the PS5’s video output on your TV, you’ve set everything up correctly.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ###  Stream PS5 Gameplay to Discord
 
  The next step is to share your PS5's screen with everyone in the Discord voice chat. To do that, click “Share Screen” at the bottom of the left panel. Select the "Capture Devices" tab in the window, and then click “USB Video” from the list of sources.
@@ -114,8 +137,6 @@ Marcus Mears III / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -123,4 +144,21 @@ Marcus Mears III / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-soundtrack-synthesis-selecting-audio-for-instagram-visions/"><u>[New] In 2024, Soundtrack Synthesis Selecting Audio for Instagram Visions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-beginners-blueprint-for-initiating-instagram-discussions/"><u>[Updated] 2024 Approved Beginner's Blueprint for Initiating Instagram Discussions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-proven-strategies-for-elevating-your-aspects-in-asmr-production/"><u>[Updated] Proven Strategies for Elevating Your Aspects in ASMR Production</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-true-value-of-applecareplus-protection/"><u>Evaluating the True Value of AppleCare+ Protection.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-insights-analyzing-user-experiences-with-imo-messenger/"><u>Expert Insights: Analyzing User Experiences with Imo Messenger</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/highly-rated-netatmo-weather-station-an-ideal-choice-for-smartphone-enthusiasts/"><u>Highly Rated Netatmo Weather Station: An Ideal Choice for Smartphone Enthusiasts</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-get-the-latest-drivers-for-your-hp-elitebook-x360-103ng2-laptop/"><u>How to Get the Latest Drivers for Your HP EliteBook X360 103nG2 Laptop</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-cricket-iphone-15-pro-for-free-by-drfone-ios/"><u>How To Unlock Cricket iPhone 15 Pro for Free</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/inside-out-the-100-complete-theta-s-study-for-2024/"><u>Inside Out The 100% Complete Theta S Study for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-garmin-venu-your-all-in-one-solution-for-continuous-fitness-and-health-surveillance/"><u>The Ultimate Guide to Garmin Venu - Your All-in-One Solution for Continuous Fitness and Health Surveillance</u></a></li>
+<li><a href="https://win11.techidaily.com/the-ultimate-win11-photos-app-showcase-crafting-captivating-slideshows-and-spot-corrections/"><u>The Ultimate Win11 Photos App Showcase: Crafting Captivating Slideshows & Spot Corrections</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-review-how-the-dreame-bot-l10-pro-revolutionizes-home-cleaning-with-its-innovative-lidar-system/"><u>Top Review: How the Dreame Bot L10 Pro Revolutionizes Home Cleaning with Its Innovative LiDAR System</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-tiktok-wallpaper-templates-uncovered/"><u>Top TikTok Wallpaper Templates Uncovered</u></a></li>
+</ul></div>
 

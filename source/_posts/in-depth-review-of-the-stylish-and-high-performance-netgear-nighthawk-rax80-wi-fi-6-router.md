@@ -1,7 +1,7 @@
 ---
 title: In-Depth Review of the Stylish and High-Performance Netgear Nighthawk RAX80 Wi-Fi 6 Router
-date: 2024-08-27T12:13:28.299Z
-updated: 2024-08-28T12:13:28.299Z
+date: 2024-09-29T17:53:00.765Z
+updated: 2024-10-01T20:23:17.070Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Review of the Stylish and High-Performance Netgear Nighthawk RAX80 Wi-Fi 6 Router
@@ -43,6 +43,13 @@ thumbnail: https://www.lifewire.com/thmb/XkocSdwFR10S2RFDprKa7fLDNz4=/400x300/fi
 
 ![Netgear Nighthawk X10 AD7200](https://www.lifewire.com/thmb/0rm8vUox5EoeaGCQJw0E5XQxwck=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_HeroSquare-885945bb208b49a583aca8da1aa09378.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 [View On Amazon $440](https://www.amazon.com/dp/B01M12RE4A?tag=lifewire-onsite-prod-20&ascsubtag=4846418%7Cnd55a891e250641509ef77229001ead8021%7CB01M12RE4A) [View On Walmart $279](https://www.walmart.com/ip/122396083) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-nighthawk-x10-ad7200-tri-band-wi-fi-router-black%2F5610805.p%3FskuId%3D5610805)
@@ -67,9 +74,6 @@ thumbnail: https://www.lifewire.com/thmb/XkocSdwFR10S2RFDprKa7fLDNz4=/400x300/fi
 
  I recently unpacked a Netgear Nighthawk X10 and plugged it into my own wireless network to see how it performs in the real world. Over several hours of intense testing, and a couple of days of more casual use, I tested connection speeds at various distances, ease of setup and use, and more.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Netgear continues to impress with its off-beat designs**
 
  I’ve tested a lot of[Netgear routers](https://www.lifewire.com/best-netgear-routers-4159862) , and this falls somewhere between the stealth bomber angles of the Nighthawk AC series and the slick flying wing designs seen in the Nighthawk RAX routers.
@@ -85,14 +89,14 @@ thumbnail: https://www.lifewire.com/thmb/XkocSdwFR10S2RFDprKa7fLDNz4=/400x300/fi
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/I8vaunCMjxEzWH-oM1U7fsSYe9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_04-abc45a63844e4ebe8f43e4f6facbd601-d54874ec8e984393b51c0bea9803c849.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process: Zero hassle from start to finish**
 
  Setting up the Netgear Nighthawk X10 AD7200 was easy, from unboxing to plugging it into my network. Unlike most routers, the Nighthawk X10 comes completely assembled. Each antenna comes sheathed in a bit of protective plastic, but even that slips right off. The router is basically ready to go right out of the box, which is a big time saver.
@@ -103,11 +107,15 @@ Lifewire / Jeremy Laukkonen
 
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/RfTANl22rAcY7Xy986eYa_62r44=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_02-1721b933d315435f98631847bf3ebb0b.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Connectivity: AD7200 tri-band with MU-MIMO and 10G SFP+**
 
  The Netgear Nighthawk X10 AD7200 is an AD7200 tri-band router, which means it’s capable of providing 1733Mbps over a 5GHz wireless network, 800Mbps over a 2.4GHz network, and a blistering 4600Mbps over a 60Hz network. That last one is the key feature here, as only 802.11ad routers like this one feature a super-high-speed 60GHz network.
@@ -123,8 +131,12 @@ Lifewire / Jeremy Laukkonen
  For physical connectivity, the Nighthawk X10 features six Ethernet ports, two of which can be used together to create a single 2Gbps connection. You also get two USB 3.0 ports for connecting USB drives and a single 10Gbps SFP+ LAN port. This final port is potentially the most interesting, and also most niche since it allows you to connect a high-speed NAS server, a secondary switch for more Ethernet ports, or other devices that require a bunch of high-speed bandwidth.
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Network Performance: Fantastic 5GHz performance, WiGig leaves a bit to be desired**
 
  Since this is an 802.11ad router, and the 60GHz WiGig network is the key feature here, that’s where I’m going to start. All of my tests are performed using a 1Gbps Mediacom cable internet connection, so any testing done on an 802.11ad router like this involves data transfer speeds within my network, not the internet connection. For testing purposes, I have a[laptop](https://www.lifewire.com/best-laptops-to-buy-4043650) that I retrofitted with a network interface card featuring the QCA9005 chipset.
@@ -149,9 +161,6 @@ Lifewire / Jeremy Laukkonen
 
  Strangely enough, this 802.11ad router’s strongest selling point might be the impressively robust nature of its 5 GHz network.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: Netgear’s web interface and web app, plus Plex and more**
 
  Like its other offerings, Netgear gives you the option to manage the Nighthawk X10 using a web interface or a smartphone app. I used the web interface, and I found it fairly easy to understand and navigate if a bit slow.
@@ -188,6 +197,13 @@ Lifewire / Jeremy Laukkonen
 
  The Netgear Nighthawk X10 AD7200 is a bit of a mixed bag since its key feature is so niche. If you really need an 802.11ad router, you may want to look for one with a stronger range. However, this router has fantastic performance on the 5GHz band, and the Plex Media Server implementation is also a very strong plus. If short-range 802.11ad support with excellent fallback 5GHz performance sounds good to you, then this is the router you’re looking for.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Nighthawk X10 AD7200 Router
@@ -215,8 +231,6 @@ Lifewire / Jeremy Laukkonen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -224,4 +238,17 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-a-comprehensive-list-of-top-10-video-communication-apps/"><u>[New] 2024 Approved A Comprehensive List of Top 10 Video Communication Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-exclusive-android-3d-video-enthusiasts-choice/"><u>[New] Exclusive Android 3D Video Enthusiasts' Choice</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fitbit-versa-3-harnessing-inbuilt-gps-plus-health-apps-to-supercharge-your-workout-motivation-level/"><u>Fitbit Versa 3: Harnessing Inbuilt GPS + Health Apps to Supercharge Your Workout Motivation Level!</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-samsung-galaxy-watch-analysis-a-fusion-of-style-and-functionality/"><u>In-Depth Samsung Galaxy Watch Analysis - A Fusion of Style & Functionality</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/insider-info-on-the-compact-playstation-5-slim-model-release-schedule-specs-and-pricing/"><u>Insider Info on the Compact PlayStation 5 (Slim) Model: Release Schedule, Specs, and Pricing</u></a></li>
+<li><a href="https://win-dash.techidaily.com/installation-instructions-for-the-latest-hp-84t-g3-driver-updates/"><u>Installation Instructions for the Latest HP 84T G3 Driver Updates</u></a></li>
+<li><a href="https://techtrends.techidaily.com/los-top-ripadores-de-dvd-para-windows-11-comparativa-y-recomendaciones-en-2023/"><u>Los Top Ripadores De DVD Para Windows 11: Comparativa Y Recomendaciones en 2023</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionizing-timekeeping-the-amazfit-bip-review-for-up-and-comers-in-wearables/"><u>Revolutionizing Timekeeping: The Amazfit BIP Review for Up-and-Comers in Wearables</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-z-edge-z3-plus-an-accessible-intuitive-and-reliable-dash-cam-solution/"><u>Unveiling the Z-Edge Z3 Plus: An Accessible, Intuitive and Reliable Dash Cam Solution</u></a></li>
+</ul></div>
 

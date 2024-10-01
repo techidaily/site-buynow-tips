@@ -1,7 +1,7 @@
 ---
 title: "Discovering the Ultimate Activity Partner: A Comprehensive Guide to the Samsung Galaxy Fit"
-date: 2024-08-27T12:13:14.914Z
-updated: 2024-08-28T12:13:14.914Z
+date: 2024-09-26T20:36:17.814Z
+updated: 2024-10-01T20:32:19.611Z
 categories:
   - BestProducts
 description: "This Article Describes Discovering the Ultimate Activity Partner: A Comprehensive Guide to the Samsung Galaxy Fit"
@@ -40,6 +40,13 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Kelsey Simon
 
 [View On Amazon](https://www.amazon.com/Techland-Torment-Tides-Numenera-PlayStation-4/dp/B01N2VISUC/?tag=lifewire-onsite-prod-20&ascsubtag=5077302%7Cnac6eb02defc3413da4da5d4ed0dc77ea21%7CB01N2VISUC) [View On Steampowered.com](https://store.steampowered.com/app/272270/Torment%5FTides%5Fof%5FNumenera/) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/torment-tides-of-numenera/141986.html)
@@ -58,10 +65,6 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
@@ -76,10 +79,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ## **Gameplay: Dialogue prompts and effort**
 
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
@@ -87,8 +86,12 @@ The ultimate burning program for all your needs!</a>
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
  Beyond this, the other major gameplay mechanic is a system of effort and inspiration. Every action you take will prompt you to use effort. This effort allows for your character to work harder at the chosen action, and thus gives your character a better chance of accomplishing their goal.
@@ -111,10 +114,14 @@ The ultimate burning program for all your needs!</a>
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Only worth it if you’re keen on the story**
 
@@ -124,9 +131,6 @@ The ultimate burning program for all your needs!</a>
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: Other story focused RPGs**
 
  There are quite a few other games available that are story-focused RPGs besides Tides of Numenera. Wasteland 2 (view on[Amazon](https://www.amazon.com/Wasteland-2-Directors-Cut-PlayStation-4/dp/B013CQHQFU/?tag=lifewire-onsite-prod-20&ascsubtag=5077302%7Cnac6eb02defc3413da4da5d4ed0dc77ea21%7C) ) is a very similar game, as it is made by the same developers, but where Numenera falls flat with its heavy-handed storytelling, Wasteland 2 stands apart with a fun, tactical combat system.
@@ -140,8 +144,18 @@ The ultimate burning program for all your needs!</a>
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Torment: Tides of Numenera
@@ -150,14 +164,11 @@ The ultimate burning program for all your needs!</a>
 * ESRB Rating  M for Mature
 * Available Platforms  PC, MaxOS,Xbox One, PlayStation 4
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -166,4 +177,24 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-tips.techidaily.com/apples-new-m4-processor-launch-announcement-details-and-technical-specifications/"><u>Apple's New M4 Processor Launch: Announcement Details & Technical Specifications</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/getting-to-know-the-samsung-galaxy-budsplus-a-user-guide/"><u>Getting to Know the Samsung Galaxy Buds+: A User Guide</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-infinix-gt-10-pro-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Infinix GT 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, 6 Ways to Change Spotify Location On Your Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-zte-nubia-flip-5g-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring ZTE Nubia Flip 5G to PC? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/cket-your-video-discovery-with-these-essential-youtube-seo-insights-for-2024/"><u>Skyrocket Your Video Discovery with These Essential YouTube SEO Insights for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/spotlight-on-the-pioneer-bdr-xd05bs-blue-ray-burning-flaws-an-expert-review/"><u>Spotlight on the Pioneer BDR-XD05B's Blue-Ray Burning Flaws - An Expert Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/studiofx-unleashes-power-in-softbox-review/"><u>StudioFX Unleashes Power in Softbox Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tbms-used-in-bored-tunneling-are-expensive-and-their-use-depends-on-the-tunnel-length-and-diameter/"><u>TBMs Used in Bored Tunneling Are Expensive, and Their Use Depends on the Tunnel Length and Diameter</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-best-budget-case-for-your-macbook-pro-13-inside-look-at-procases-offering/"><u>The Best Budget Case for Your MacBook Pro 13? Inside Look at ProCase's Offering</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-best-point-of-sale-software-for-retailers-not-including-gpt/"><u>The Best Point-of-Sale Software for Retailers Not Including GPT</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-fixing-discords-nonfunctional-push-to-talk-feature/"><u>Troubleshooting Guide: Fixing Discord's Nonfunctional Push-to-Talk Feature</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unleashing-the-full-potential-of-raspberry-pi-with-remarkable-3ghz-speed-via-advanced-overclocking-techniques/"><u>Unleashing the Full Potential of Raspberry Pi with Remarkable 3GHz Speed via Advanced Overclocking Techniques</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/versatile-bluetooth-speaker-discover-yamaha-mcr-b020bl/"><u>Versatile Bluetooth Speaker - Discover Yamaha MCR-B020BL</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/visual-storytellers-unite-7-prime-3d-design-and-animation-applications/"><u>Visual Storytellers Unite 7 Prime 3D Design & Animation Applications</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-the-tp-link-archer-a9-is-an-unbeatable-choice-for-your-budget-in-depth-review/"><u>Why the TP-Link Archer A9 Is an Unbeatable Choice for Your Budget - In-Depth Review</u></a></li>
+</ul></div>
 

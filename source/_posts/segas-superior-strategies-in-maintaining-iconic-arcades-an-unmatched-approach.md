@@ -1,7 +1,7 @@
 ---
 title: "Sega's Superior Strategies in Maintaining Iconic Arcades: An Unmatched Approach"
-date: 2024-08-31T16:36:33.184Z
-updated: 2024-09-01T16:36:33.184Z
+date: 2024-09-30T18:14:41.041Z
+updated: 2024-10-01T19:06:32.694Z
 tags:
   - games
   - tv
@@ -24,6 +24,19 @@ thumbnail: https://thmb.techidaily.com/675ce17ef0dabd739aa8ee3e2aac7844c7deb38c5
 ##  How _Like a Dragon_ Revisits Sega's Arcade History
 
 ![Official screenshot of Goro Majima playing Out Run in Yakuza 0.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/yakuza-0-outrun.jpg) 
+
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Sega
 
@@ -50,15 +63,23 @@ Sega
 _Like a Dragon_ continues _Shenmue_'s legacy with broader coverage of different genres and series. Sega's fighting games, puzzle games, and even fishing games can all be found in arcades throughout the _Like a Dragon_ series. The inclusion of Sega arcade games has now become a popular tradition for the franchise and has introduced many series fans to the forgotten gems of the arcade era.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Reviving Arcade Classics as "Games Within Games"
 
 ![SpikeOut arcade cabinets in Like a Dragon: Infinite Wealth.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/like-a-dragon-infinite-wealth-spikeout-machines.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Sega
 
  The inclusion of arcade games in _Shenmue_ and _Like a Dragon_ was likely intended to be nothing more than a simple bonus feature, but their presence might set a new standard for the rest of the gaming industry. Sega's decision to revive its arcade classics as games within other games presents a creative solution to one of the most important problems facing arcade re-releases.
@@ -77,25 +98,17 @@ Sega
 
  By reviving lesser-known arcade games through popular releases, more companies can preserve their past works while also bringing attention to both new and old franchises. It's proven to be a success for Sega, and can do the same for other developers with a long history of forgotten arcade games, such as Midway, Bandai Namco, and Konami. Most importantly, re-releasing obscure arcade titles as "games within games" might be the best way to prevent them from becoming lost media.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  A New Standard for Arcade Re-Releases
 
 ![A collection of vintage arcade games in a dark room.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/02/vitnage-arcade-games.jpg) 
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 _[Atmosphere1/Shutterstock.com](https://www.shutterstock.com/image-photo/prague-cz-august-2017-most-iconic-1100949089)_
 
  Fortunately, between retro compilations like _Atari 50_ and Capcom's recent fighting game collections, arcade games seem to be making a resurgence on modern systems. But when it comes to the obscure parts of arcade history, more companies should follow Sega's lead and include their forgotten games in future releases.
@@ -108,8 +121,6 @@ _[Atmosphere1/Shutterstock.com](https://www.shutterstock.com/image-photo/prague-
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -117,4 +128,22 @@ _[Atmosphere1/Shutterstock.com](https://www.shutterstock.com/image-photo/prague-
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-openscreens-the-unchained-gamers-screen-record/"><u>[New] 2024 Approved OpenScreens The Unchained Gamer's Screen Record</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-painting-with-light-advanced-color-techniques/"><u>[New] Painting with Light Advanced Color Techniques</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-resolve-frozen-youtube-videos-on-androidios-for-2024/"><u>[Updated] Resolve Frozen YouTube Videos on Android/iOS for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-premier-radio-systems-for-officers/"><u>2024'S Premier Radio Systems for Officers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/battle-royale-showdown-diving-into-fortnites-latest-fun-filled-season/"><u>Battle Royale Showdown: Diving Into Fortnite's Latest Fun-Filled Season</u></a></li>
+<li><a href="https://some-skills.techidaily.com/compatibility-issues-with-windows-11-built-in-software-emerging-in-certain-computers/"><u>Compatibility Issues with Windows 11 Built-In Software Emerging in Certain Computers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/al-dominance-the-top-global-youtube-creators/"><u>Digital Dominance The Top Global YouTube Creators</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/effective-fixes-for-no-audio-problems-on-toshiba-computers/"><u>Effective Fixes for No Audio Problems on Toshiba Computers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-performance-of-tp-link-archer-c80-budget-friendly-sub-100-speeds/"><u>Evaluating the Performance of TP-Link Archer C80: Budget-Friendly Sub-$100 Speeds</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-dell-xps-13-9310-laptop-ultra-thin-design-meets-powerful-performance/"><u>Exploring the Dell XPS 13 (9310) Laptop: Ultra-Thin Design Meets Powerful Performance</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-realme-v30-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Realme V30 Phones? | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/in-depth-instructions-for-setting-up-dolby-atmos-in-windows-1111/"><u>In-Depth Instructions for Setting Up Dolby Atmos in Windows 11/11</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unmasking-the-avengers-achievements-an-in-depth-film-reception-breakdown/"><u>Unmasking the Avengers' Achievements - An In-Depth Film Reception Breakdown</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-capabilities-detailed-evaluation-of-the-tp-link-re505x-range-extender/"><u>Unveiling the Capabilities: Detailed Evaluation of the TP-Link RE505X Range Extender</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-why-the-huawei-p30-pro-remains-my-preferred-choice-detailed-review/"><u>Unveiling Why the Huawei P30 Pro Remains My Preferred Choice: Detailed Review</u></a></li>
+</ul></div>
 

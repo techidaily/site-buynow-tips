@@ -1,7 +1,7 @@
 ---
 title: "Step-by-Step Guide: Integrating Sony's PS5 Controller Into Your PC Gaming Experience on Windows 10"
-date: 2024-08-31T16:37:59.906Z
-updated: 2024-09-01T16:37:59.906Z
+date: 2024-09-27T19:12:28.126Z
+updated: 2024-10-01T16:55:08.947Z
 tags:
   - games
   - tv
@@ -18,6 +18,13 @@ thumbnail: https://thmb.techidaily.com/d7dc5f497c3ff92b83099053ccb7b434fc4fb16a5
 * [Pairing Your PS5 Controller to a Windows 10 PC](https://instagram-video-files.techidaily.com/updated-tricks-to-improve-instagram-video-load-speeds-mobile/)
 * [Pairing and Configuring a PS5 Controller for Steam](https://buynow-info.techidaily.com/navigating-photoscapes-features-a-detailed-analysis-of-free-high-quality-image-editing-software/)
 * [Using a PS5 Controller for Non-Steam PC Games](https://fox-blue.techidaily.com/updated-through-a-photographers-eye-our-best-10-lenses-list-for-2024/)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -42,8 +49,12 @@ thumbnail: https://thmb.techidaily.com/d7dc5f497c3ff92b83099053ccb7b434fc4fb16a5
 !['Devices and Printers' option in Windows 10 Control Panel.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/ps5-controller-windows-10-2.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Under "Devices," the DualSense controller will appear as a "Wireless Controller."
 
 !['DualSense Wireless Controller' listed among Windows 10 devices.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/ps5-controller-windows-10-3.png) 
@@ -62,11 +73,15 @@ thumbnail: https://thmb.techidaily.com/d7dc5f497c3ff92b83099053ccb7b434fc4fb16a5
 
 ![DualSense controller being used as audio input and output in Windows 10 settings.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/ps5-controller-windows-10-6.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Click on the device and choose disable for both instances, and Windows 10 will no longer default to the DualSense as an audio device.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Pairing and Configuring a PS5 Controller for Steam
 
  Steam will often automatically recognize the DualSense controller and swap action and game control accordingly, but if something is not working correctly, there are a few easy ways to troubleshoot the issue.
@@ -75,16 +90,10 @@ thumbnail: https://thmb.techidaily.com/d7dc5f497c3ff92b83099053ccb7b434fc4fb16a5
 
 ![Steam Settings in Windows 10.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/ps5-controller-windows-10-7.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
  In the next menu's sidebar, there is a "Controller" tab. Click on it, and you'll be able to see the information the app has on your controller. If your PS5 controller is listed as "DualSense Wireless Controller," then everything should automatically work with Steam!
 
 !['DualSense Wireless Controller' selected in Steam Controller settings.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/ps5-controller-windows-10-8.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  If you are having issues, however, check to see if the "PlayStation Controller Support" setting is set to "Enable in Games w/o Support."
 
 !['PlayStation Controller Support' setting in Steam on Windows 10.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/ps5-controller-windows-10-9.png) 
@@ -94,23 +103,34 @@ thumbnail: https://thmb.techidaily.com/d7dc5f497c3ff92b83099053ccb7b434fc4fb16a5
 !['Calibration & Advanced Settings' option for Steam Controller settings.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/ps5-controller-windows-10-10.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  A new menu will open, and you can adjust the PS5 controller's LED lights, the joystick dead zone, rumble output, and calibrate the gyro controls.
 
 ![Joystick settings for Steam controllers.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/ps5-controller-windows-10-11.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  When you're sure that Steam is reading your controller correctly, you can check a game in your Library to see if the game supports a controller in general and if it supports the DualSense 5\. Do this by checking the "Controller" section to the right.
 
 !['Controller' compatibility section in Steam game details.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/ps5-controller-windows-10-12.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Using a PS5 Controller for Non-Steam PC Games
 
  Outside of Steam, your DualSense controller might work natively with other PC gaming clients in Windows 10\. However, more likely than not, you'll need to jump through some additional hoops to get your PS5 controller working with other PC games. While the Xbox controller natively works with many PC games, you'll need to take a few extra steps to ensure the DualSense works with most PC games outside of Steam.
@@ -129,8 +149,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -138,4 +156,21 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-professionals-secret-utilizing-windows-movie-maker-expertly-in-windows-8-systems/"><u>2024 Approved The Professional's Secret Utilizing Windows Movie Maker Expertly in Windows 8 Systems</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/comprehensive-list-best-screenshot-and-video-grabbers-for-windows-10/"><u>Comprehensive List Best Screenshot & Video Grabbers for Windows 10</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/comprehensive-security-report-understanding-organizational-safeguards/"><u>Comprehensive Security Report: Understanding Organizational Safeguards</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/exploring-options-for-mp3-download-cat-noises-and-more/"><u>Exploring Options for MP3 Download Cat Noises and More</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-protective-recording-strategies-to-mask-personal-information/"><u>In 2024, Protective Recording Strategies to Mask Personal Information</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-vloggers-guide-to-choosing-camgear-the-top-9-innovations/"><u>In 2024, The Vlogger's Guide To Choosing CamGear - The Top 9 Innovations</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-lenovo-p11-pro-tablet-exceptional-quality-minor-concerns/"><u>In-Depth Analysis of the Lenovo P11 Pro Tablet: Exceptional Quality, Minor Concerns</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/insights-on-j5-tactical-v1-pro-lightweight-beam-gadget-featuring-robust-design/"><u>Insights on J5 Tactical V1-Pro Lightweight Beam Gadget: Featuring Robust Design</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-choices-best-handheld-video-game-systems-2024-edition/"><u>Leading Choices: Best Handheld Video Game Systems, 2024 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-a20-analysis-remains-an-excellent-affordable-phone/"><u>Samsung Galaxy A20 Analysis: Remains an Excellent Affordable Phone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/step-by-step-guide-to-bulk-upgrade-of-audio-from-aac-to-m4a-for-optimal-playback/"><u>Step-by-Step Guide to Bulk Upgrade of Audio From AAC to M4A for Optimal Playback</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/mers-vs-micro-influencers-which-platform-reigns-supreme-for-brief-videos/"><u>Streamers Vs. Micro-Influencers Which Platform Reigns Supreme for Brief Videos?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-portable-gaming-devices-in-2/"><u>Top Rated Portable Gaming Devices in 2</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-kensun-tire-inflator-evaluation-solid-performance-in-a-small-package/"><u>Top-Rated Kensun Tire Inflator Evaluation: Solid Performance in a Small Package</u></a></li>
+</ul></div>
 

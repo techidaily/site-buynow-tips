@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Productivity: How My Switch to Dual Mice Has Revolutionized My Workflow"
-date: 2024-08-31T16:36:05.043Z
-updated: 2024-09-01T16:36:05.043Z
+date: 2024-09-29T20:33:23.313Z
+updated: 2024-10-01T20:33:09.778Z
 tags:
   - games
   - tv
@@ -34,8 +34,18 @@ _Justin Duino / How-To Geek_
  While I don’t like heft in my gaming mice (the reason why I opted for the MX Master 3S instead of something like the [Logitech G502](https://extra-skills.techidaily.com/in-2024-salt-and-surge-2023s-best-surf-cam-tech-review/)), I do like the MX Master 3S’ heft when casually browsing the web or working, its weight stabilizing and slowing down mouse movements when steering the mouse left and right across the mouse mat instead of turning every mouse movement into a lighting fast flick, which happened with the G305.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  I Also Love Its Quiet Clicks, Infinite Scroll, and a Bunch of Programmable Buttons
 
  But the perfect size, shape, and weight aren’t the only things I love about the MX Master 3S. While its quiet clicks didn’t work for me the first couple of days of owning it (they felt quite mushy compared to the highly tactile and loud clicks on the G305), I’ve gotten used to them since then and have ended up loving them.
@@ -53,8 +63,12 @@ _Justin Duino / How-To Geek_
  Last but not least is the battery life. I’ve charged the mouse just once since I got it, and when I checked the Logi Options+ app just now, the battery still had a 45% charge left. That's phenomenal battery life if you ask me.
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  When I Want to Game, I Can Switch to My Logitech G305 in a Second
 
  Of course, the Logitech MX Master 3S isn't perfect—far from it. This is a [Bluetooth](https://techidaily.com/how-to-reset-honor-magic-5-pro-without-the-home-button-drfone-by-drfone-reset-android-reset-android/) mouse with the option to use a [Logi Bolt adapter](https://twitter-clips.techidaily.com/share-tweets-whatsapp-video-broadcasting-for-2024/), so while the performance is fine for regular usage, the high latency and lack of accuracy in games that require aiming are too high for comfort, at least for me.
@@ -66,8 +80,12 @@ _Justin Duino / How-To Geek_
 ![A Logitech G305 residing under a monitor](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/dual-mouse-setup-01.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Goran Damnjanovic/How-To Geek
 
  The relatively lightweight G305 feels even lighter after I've used the other mouse for days on end, making every gaming session even more enjoyable. I can flick the mouse left and right with almost zero effort, which is the main reason why I like my gaming mouse to be on the lighter side.
@@ -75,8 +93,18 @@ Goran Damnjanovic/How-To Geek
  Also, its fantastic optical sensor might behave erratically on any surface other than a mouse mat, but when on a mat, it works and feels staggeringly better than the one on the MX Master.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  A Dual Mouse Setup Really Is the Best of Both Worlds
 
  At the end of the day, a dual mouse setup really gives me the best of both worlds. I can use my ergo mouse when working and using my PC for anything other than gaming. It’s super comfy, great for casual use, has a ton of programmable buttons, and the best scroll wheel I’ve ever used.
@@ -89,8 +117,6 @@ Goran Damnjanovic/How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -98,4 +124,20 @@ Goran Damnjanovic/How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-unparalleled-sound-quality-microphone-guide/"><u>[New] 2024 Approved Unparalleled Sound Quality Microphone Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-which-video-sharing-platform-prevails-analyzing-igtv-vs-youtube/"><u>[New] Which Video Sharing Platform Prevails? Analyzing IGTV Vs. YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-complete-code-of-conduct-for-youtube-creators/"><u>[Updated] In 2024, Complete Code of Conduct for YouTube Creators</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-repair-keyboards-locked-function-buttons/"><u>How To Repair Keyboard's Locked Function Buttons</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-8-without-swiping-up-6-ways-by-drfone-ios/"><u>How To Unlock iPhone 8 Without Swiping Up? 6 Ways</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/il-migliore-del-settimo-video-converter-gratuito-di-mac-nel-2023-scarica-e-valutazione-completa/"><u>Il Migliore Del Settimo Video Converter Gratuito Di Mac Nel 2023 - Scarica E Valutazione Completa</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/powerhouse-performance-of-alienware-aurora-r7-an-in-depth-review/"><u>Powerhouse Performance of Alienware Aurora R7: An In-Depth Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/propella-7s-40-evaluation-sleek-design-agile-performance-budget-friendly/"><u>Propella 7S 4.0 Evaluation: Sleek Design, Agile Performance, Budget-Friendly</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/quick-fixes-for-players-struggling-with-sea-of-thieves-not-starting-up/"><u>Quick Fixes for Players Struggling with Sea of Thieves Not Starting Up</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/razer-blade-stealth-13-laptop-analysis-unprecedented-advancements-in-thin-and-light-computing/"><u>Razer Blade Stealth 13 Laptop Analysis: Unprecedented Advancements in Thin & Light Computing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-drive-with-aphacas-bt69-wireless-fm-transmitter-our-detailed-assessment-reveals-why-it-stands-out/"><u>Revolutionize Your Drive with Aphaca's BT69 Wireless FM Transmitter - Our Detailed Assessment Reveals Why It Stands Out</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/smooth-gaming-awaits-how-to-successfully-address-fortnites-lag-issues/"><u>Smooth Gaming Awaits: How to Successfully Address Fortnite's Lag Issues</u></a></li>
+<li><a href="https://win-blog.techidaily.com/stop-the-game-crashing-mastering-necromunda-hired-gun-performance-tweaks-on-pc/"><u>Stop the Game Crashing: Mastering 'Necromunda: Hired Gun' Performance Tweaks on PC</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Lessons From the Steam Deck: A Guide on What Nintendo Can Do to Improve"
-date: 2024-08-31T16:37:19.546Z
-updated: 2024-09-01T16:37:19.546Z
+date: 2024-09-26T19:11:53.127Z
+updated: 2024-10-01T19:37:28.243Z
 tags:
   - games
   - tv
@@ -24,6 +24,13 @@ thumbnail: https://thmb.techidaily.com/b7025f879b7f69fff163ff4565fc3f42cd715d8a0
 
  The innovation and nostalgic warmth of Nintendo has been replaced by the sheer power of Valve's portable PC-gaming beast. With [whispers of Nintendo's follow-up](https://video-screen-grab.techidaily.com/in-2024-leveraging-obs-establishing-an-efficient-countdown-clock/) growing, here are some lessons I wish the company would learn from the success of the Steam Deck. If it does so, it just might keep the next Nintendo handheld in my hands and not in my backpack.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1  Properly Prepare Your Product for the Present 
 
  Innovation comes at a cost. With the Switch's power and hardware specs falling significantly shorter than the previous generation of consoles, the future of Nintendo was half-a-decade behind out of the gate. As modern gaming becomes more graphically intensive and technologically advanced, this lack of power is more and more evident. The Switch's capabilities often mean that developers must downgrade their games to fit the console's limitations.
@@ -32,16 +39,17 @@ thumbnail: https://thmb.techidaily.com/b7025f879b7f69fff163ff4565fc3f42cd715d8a0
 
  Valve's Steam Deck boasts modern AMD architecture capable of running games at higher resolutions and frame rates than the last console generation. It isn't that the Steam Deck is just more powerful than the Switch, Valve made sure that its handheld wasn't immediately outclassed by fading hardware. The release of the[OLED Switch was a marked improvement](https://win11.techidaily.com/1719355296197-dimming-windows-11-brightness-simple-fixes-unveiled/) but Nintendo should take further measures to future-proof, well, present-proof their hardware.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 2  Let Me Play the Games I Want to Play 
 
 ![Nintendo Switch game cards.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/game_carts.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Tim Brookes / How-To Geek
 
  If you want to play classic Nintendo games from the SNES, N64, Game Boy and other retro consoles, you'll need to subscribe Nintendo Switch Online (paying extra for the Expansion Pack for some consoles). But even if you do that, Nintendo is oddly restrictive on which games it releases for these emulators.
@@ -53,8 +61,12 @@ Tim Brookes / How-To Geek
  With retro gaming more popular than ever, the lack of flexibility and restrictive selection leaves much to be desired. The open access model of Steam allows for personal curation. Users can build their libraries at their own pace and without the clutter of superfluous, service-included titles—I'm sorry Nintendo, but no one wants to play _Brawl Brothers_. Providing a more expansive—purchasable—catalog of previous generation titles seems like an improvement that makes sense for both financial and quality of life reasons.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3  Provide More Detail and Options in Your eShop 
 
 Close 
@@ -64,16 +76,22 @@ Close
  Valve's bread-and-butter lets me easily filter, search, and discover games based on genre, price, user reviews, and more. This high level of customization and organization makes it easy for me to find new or old titles that fit my interests perfectly. Nintendo could significantly enhance the eShop by integrating similar search functionalities, user-driven features, and a less clunky design.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4  Remember That a Stronger Build Quality Means More Quality Time 
 
 ![Nintendo Switch Joy Cons.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/52659706170_2192629c1a_o.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 Corbin Davenport / How-To Geek
 
  Nintendo has long been a stickler for the quality of its peripherals and games, but the build quality of the Switch's hardware doesn't quite cut the mustard. An easily scratched touchscreen, slightly awkward button placement, and the widespread issue of [Joy-Con drift](https://instagram-video-files.techidaily.com/new-discreet-insta-story-enthusiasts-best-5-tools/) has been a persistent blemish on its otherwise innovative design.
@@ -94,8 +112,6 @@ Corbin Davenport / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -103,4 +119,19 @@ Corbin Davenport / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/updated-become-a-meme-genius-the-best-8-gif-making-methods/"><u>[Updated] Become a Meme Genius The Best 8 GIF-Making Methods</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-ideal-indoor-delights-mastering-mobile-lassitude/"><u>[Updated] Ideal Indoor Delights Mastering Mobile Lassitude</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>3 Things You Must Know about Fake Snapchat Location On Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-review-focused-on-longevity-ergohead-mat-delivers-exceptional-cushioning-for-your-stand-up-office-setup/"><u>A Review Focused on Longevity: Ergohead Mat Delivers Exceptional Cushioning for Your Stand-Up Office Setup</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-a-network-locked-oppo-f23-5g-phone-by-drfone-android/"><u>How to Unlock a Network Locked Oppo F23 5G Phone?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Infinix Zero 30 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-long-distance-wifi-solutions-to-maximize-connectivity/"><u>Leading Long-Distance WiFi Solutions to Maximize Connectivity</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/master-the-meter-elevate-your-instagram-metrics-by-1kmnth/"><u>Master the Meter Elevate Your Instagram Metrics by 1K/Mnth</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-to-greatness-find-your-favorite-trailers-at-these-top-7-sites/"><u>Navigating to Greatness: Find Your Favorite Trailers at These Top 7 Sites</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reviewing-the-immersive-gameplay-in-star-wars-squadrons-exhilarating-dogfights/"><u>Reviewing the Immersive Gameplay in Star Wars: Squadrons' Exhilarating Dogfights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/starlink-the-sat-trific-upgrade-top-4-advantages/"><u>Starlink: The SAT-Trific Upgrade - Top 4 Advantages</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/understanding-bass-management-exploring-the-basics-and-functionality/"><u>Understanding Bass Management: Exploring the Basics & Functionality</u></a></li>
+</ul></div>
 

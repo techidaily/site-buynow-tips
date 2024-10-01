@@ -1,7 +1,7 @@
 ---
 title: "5 Fast Methods: Monitoring Your PC Game's FPS in Under a Minute!"
-date: 2024-08-31T16:36:53.174Z
-updated: 2024-09-01T16:36:53.174Z
+date: 2024-09-25T17:55:14.547Z
+updated: 2024-10-01T17:13:00.810Z
 tags:
   - games
   - tv
@@ -41,27 +41,32 @@ thumbnail: https://thmb.techidaily.com/a6dbe934550b4e8e63b5bdb5b2859a1cbef0d47ae
 
 ![NVIDIA GeForce app with the settings opened and In-Game Overlay option selected.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/nvidia-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Next, go to HUD Layout > Performance > FPS, and then click one of the four quadrants to pick where you want your FPS counter to show up in-game.
 
 ![The NVIDIA GeForce Experience HUD Layout menu.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/nvidia-2.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  This method is more universal than the Steam one, but it's not a perfect solution. The FPS overlay sometimes doesn't show up at all; other times, it displays the incorrect FPS or N/A. Changing the display mode from fullscreen to borderless (or vice versa) is worth a shot if you can't get the FPS counter to work.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3  AMD Software 
 
  Just like NVIDIA, AMD has its own proprietary graphics card software that allows you to monitor your computer's FPS in games. To enable it, open AMD Software and open the "Performance" tab. Make sure you're on the "Metrics" tab. On the right side, click on "Overlay," then switch on "Enable Metrics Overlay."
 
 ![The metrics menu in AMD Software.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/amd-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
  The metrics overlay will show up permanently on your screen by default, but you can enable "Game Detection for Metrics Overlay" if you only wish to see your FPS in games. Just note that the overlay might not work in certain games or borderless mode after enabling this option. You can also modify how and where the metrics overlay appears. Alternatively, you can turn the metrics overlay on and off by pressing Ctrl+Shift+O in games.
 
  AMD Software will display more than just the FPS by default. You can use it to see your frame time, [99th percentile FPS](https://tech-recovery.techidaily.com/discover-the-ultimate-selection-of-great-sports-flicks-available-today/), CPU and GPU utilization and clock speed, and more. If you wish to only see the FPS, you can adjust it in the "Tracking" tab. Simply click the eye icon to select which metrics you wish to monitor, like so:
@@ -69,11 +74,12 @@ thumbnail: https://thmb.techidaily.com/a6dbe934550b4e8e63b5bdb5b2859a1cbef0d47ae
 ![AMD Software Performance tab.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/amd-2.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ## 4  Use a Game's Built-in Options 
 
  Many games have built-in FPS counters you can enable. Depending on the game you're playing, this option is sometimes hard to find. It might be easiest to just perform a web search for the name of the game and "show FPS" to find out if a game has a built-in FPS option and how to enable it, but you can explore the game's options yourself. Depending on the game, you can enable the FPS counter in a variety of ways:
@@ -90,6 +96,20 @@ thumbnail: https://thmb.techidaily.com/a6dbe934550b4e8e63b5bdb5b2859a1cbef0d47ae
     
 ![Performance metrics in Minecraft.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/fps-mc.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5  MSI Afterburner 
 
  If you want a third-party solution to see your FPS counter, one of the best is [MSI Afterburner](https://www.msi.com/Landing/afterburner/graphics-cards). Originally designed for MSI graphics cards, it's one of the most popular graphics card apps for [overclocking](https://desktop-recording.techidaily.com/new-in-2024-top-5-android-screen-recorders-essential-app-selection/) and performance monitoring.
@@ -100,9 +120,6 @@ thumbnail: https://thmb.techidaily.com/a6dbe934550b4e8e63b5bdb5b2859a1cbef0d47ae
 
 ![The monitoring tab in MSI Afterburner.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/msi-afterburner.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  MSI Afterburner will automatically show the FPS counter in the top-left corner when you launch a game. You can configure how it looks from the same menu that you enabled it in.
 
 ---
@@ -115,8 +132,6 @@ thumbnail: https://thmb.techidaily.com/a6dbe934550b4e8e63b5bdb5b2859a1cbef0d47ae
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -124,4 +139,23 @@ thumbnail: https://thmb.techidaily.com/a6dbe934550b4e8e63b5bdb5b2859a1cbef0d47ae
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-exclusive-mac-high-res-screen-and-audio-recorder/"><u>[New] In 2024, Exclusive Mac High-Res Screen & Audio Recorder</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-turnback-artisan-hub/"><u>[New] Turnback Artisan Hub</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-ffmpegs-capabilities-for-unaltered-audio-extraction/"><u>[Updated] FFmpeg's Capabilities for Unaltered Audio Extraction</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-iphone-2024-the-ultimate-selfie-kit-for-8-standouts/"><u>[Updated] Iphone 2024 The Ultimate Selfie Kit for #8 Standouts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/asus-vivobook-11-analysis-portable-and-economical-versatile-computer/"><u>Asus Vivobook 11 Analysis: Portable & Economical Versatile Computer</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/decoding-online-presence-the-dead-internet-theory-demystified-for-modern-users/"><u>Decoding Online Presence: The Dead Internet Theory Demystified for Modern Users</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fintie-macbook-pro-13-sleeve-reviewed-balancing-long-lasting-protection-with-cost-efficiency/"><u>Fintie MacBook Pro 13 Sleeve Reviewed: Balancing Long-Lasting Protection with Cost-Efficiency</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Samsung Galaxy F04 | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-overcoming-pixelation-during-youtube-video-streams/"><u>In 2024, Overcoming Pixelation During YouTube Video Streams</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-apple-tv-4k-analysis-experience-superior-hd-and-voice-command-features/"><u>In-Depth Apple TV 4K Analysis: Experience Superior HD and Voice Command Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximizing-productivity-and-health-how-the-cubefit-terramat-keeps-you-fit-while-stationary/"><u>Maximizing Productivity and Health: How the CubeFit TerraMat Keeps You Fit While Stationary</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/premium-quality-meets-economy-in-depth-look-at-the-best-deals-in-fossil-activewear/"><u>Premium Quality Meets Economy: In-Depth Look at the Best Deals in Fossil Activewear</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-photography-with-lightzone-a-cross-platform-free-darkroom-application/"><u>Revolutionize Your Photography with LightZone - A Cross-Platform, FREE Darkroom Application!</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-securing-facebook-profile-and-group-links/"><u>Step-by-Step: Securing Facebook Profile & Group Links</u></a></li>
+<li><a href="https://media-tips.techidaily.com/streaming-made-simple-use-airplay-on-iphoneipad-even-if-you-dont-own-an-apple-tv/"><u>Streaming Made Simple: Use AirPlay on iPhone/iPad Even If You Don't Own an Apple TV</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rating-of-the-microsoft-sculpt-keyboard-premium-comfort-and-features/"><u>Top Rating of the Microsoft Sculpt Keyboard: Premium Comfort & Features</u></a></li>
+</ul></div>
 

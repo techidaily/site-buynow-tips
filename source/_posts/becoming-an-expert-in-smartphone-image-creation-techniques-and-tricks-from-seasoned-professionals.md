@@ -1,7 +1,7 @@
 ---
 title: "Becoming an Expert in Smartphone Image Creation: Techniques and Tricks From Seasoned Professionals"
-date: 2024-08-31T16:36:57.969Z
-updated: 2024-09-01T16:36:57.969Z
+date: 2024-09-26T16:44:33.626Z
+updated: 2024-10-01T17:55:15.408Z
 tags:
   - games
   - tv
@@ -46,6 +46,13 @@ Ben Lovejoy / How-To Geek
 
 ![1-Literal3](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/1-literal3.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ben Lovejoy / How-To Geek
 
  This one was in Havana, and I positioned myself in front of a hotel. That allowed me to borrow the arch, canopy, and a lamp, all of which nicely framed the busy street scene. Any time you're wandering around a city, look out for archways—you'll be amazed at how common they are.
@@ -56,9 +63,6 @@ Ben Lovejoy / How-To Geek
 
  Sculptures can also provide interesting material to include in a scene, but if they contain cutouts, see whether there might be an interesting shot by shooting through one of them. Depending on how high it is off the ground and how accessible it is, your ability to control the angle of the shot might be limited. In this case, for example, the fact that it's up quite high meant that I couldn't include quite as many of the lower buildings as I'd have liked, but I think it still works well.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  The Rule of Thirds
 
  You may have heard of the Rule of Thirds. Personally, I think of it more as the Guideline of Thirds, as it's certainly not a rule, as we'll see shortly. But as a guide, it does often work incredibly well, which is why most camera apps offer the option of displaying grid lines to help you use it. I use an iPhone, and you can see it here.
@@ -85,18 +89,12 @@ Ben Lovejoy / How-To Geek
 
 ![2-Thirds4](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/2-thirds4.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  Here, I want the viewer to begin looking at the grille of the car and then follow the line of cars back. (That's another technique that can be useful to play with, known as leading lines.) So here, the grille is bottom-right.
 
 ![2-Thirds3](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/2-thirds3.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  In this final example, the woman is, of course, the subject of the shot, and I've positioned her roughly bottom-left. Again, mathematicians might object that her face is more like a sixth of the way from the left, but that's why I refer to it as a guide rather than a rule.
@@ -110,31 +108,35 @@ Ben Lovejoy / How-To Geek
 ![3-Symmetry1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/3-symmetry1.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Ben Lovejoy / How-To Geek
 
  A good example is when you want to draw attention to symmetry. When I was standing in the center of the Brooklyn Bridge, for example, it struck me that I could literally be looking at a mirror image, so I chose a completely symmetrical framing for the shot.
 
 ![3-Symmetry2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/3-symmetry2.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  There will be times when symmetrical framing just looks right. I often find that's the case with beautiful architectural details, for example. In this case, in a grand cafe in Buenos Aires, it seemed clear to me that the architect intended the design to be enjoyed from a central vantage point, so that's how I shot it.
 
 ![3-Symmetry3](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/3-symmetry3.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ben Lovejoy / How-To Geek
 
  Don't assume that a scene has to be perfectly symmetrical for central placement to be the best choice. I still opted to centrally frame this gorgeous art deco Post Office in Miami, even though the building itself is not symmetrical. To me, the round central component is the focus here, and that part _is_ symmetrical. Again, use your judgment, and experiment, to see what you think looks best.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ##  Using Layers to Add Depth
 
  Photographs turn a three-dimensional scene into a two-dimensional image (though things like [Spatial Photos on Vision Pro](https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-zte-blade-a73-5g-by-drfone-android/) may be changing that!). But we can often capture some of that 3D feel by using layering in our photos.
@@ -143,9 +145,6 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
 ![4-Layers1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/4-layers1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  This photo of Sydney Harbour was shot from across the water near a bench known as Mrs Macquarie's Chair. I was standing under the trees, and I took a wide-angle photo to include the tree branches above me. That serves as a partial literal frame, as described above, but also lends a sense of scale. If you use your hand to block the trees when looking at the photo, I think you'll agree it becomes less aesthetically pleasing.
@@ -159,23 +158,20 @@ Ben Lovejoy / How-To Geek
 ![4-Layers3](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/4-layers3.JPG) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  So, it seems I rather frequently use trees for foreground content! This shot of London's Tower Bridge similarly includes the tree on the right, partly to add depth to the shot but also to make for a more pleasing composition, the rounded shape mirroring the curve of the bridge supports.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Getting Creative With Angles
 
  The natural tendency of beginner photographers is to shoot everything square-on, from eye level. Try instead crouching down low, finding a way to get up high, or some other unusual angle. Again, a few examples.
 
 ![5-Angles3](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/5-angles3.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  In this case, I've gotten down low and shot directly upwards to create a more interesting view of the Lloyds of London building that we would have got from a more conventional angle.
@@ -188,9 +184,6 @@ Ben Lovejoy / How-To Geek
 
 ![5-Angles4-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/5-angles4-1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  For a shot of this spectacular hotel atrium in Shanghai, I've taken the opposite approach. While it looked good shooting up from the lobby, I found that taking the elevator to the top floor and shooting down gave an even better view. I've also chosen a tight shot to fill the frame with nothing but the atrium.
@@ -201,14 +194,18 @@ Ben Lovejoy / How-To Geek
 
  Finally, think laterally! It's hard to take a bad shot of a hot-air balloon, but since I was learning to fly them at the time, I had the opportunity to find an unusual angle.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  Near & Far: Mixing It Up
 
  Most premium smartphones these days include both wide-angle and telephoto lenses, so rather than stick to the standard lens all the time, try experimenting with these. The great thing about that kind of flexibility is that you can get _very_ different-looking shots from the same place. For example, I visited a viewing deck in the City of London, and here are two photos taken from the same position:
 
 ![6-Wide-close1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/6-wide-close1.JPG) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ben Lovejoy / How-To Geek
 
@@ -222,17 +219,38 @@ Ben Lovejoy / How-To Geek
 
 ![6-Wide-close0a](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/6-wide-close0a.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ben Lovejoy / How-To Geek
 
  Back to San Francisco, and this is a classic view of the bridge from the viewing point on the Marin Headlands.
 
 ![6-Wide-close0b](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/6-wide-close0b.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ben Lovejoy / How-To Geek
 
  But zoom in, and we get a _very_ different shot, again from the same place at the same time. It was this shot I ended up hanging on my wall.
 
 ![6-Wide-close3](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/6-wide-close3.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ben Lovejoy / How-To Geek
 
@@ -246,9 +264,6 @@ Ben Lovejoy / How-To Geek
 
 ![6-Wide-close5](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/6-wide-close5.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  Finally, don't think that wide shots are only good for wide open landscapes or cityscapes. We just saw a telephoto shot of the Walkie-Talkie building, and now here's a wide-angle shot of the spectacular interior.
@@ -271,8 +286,6 @@ Ben Lovejoy / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -280,4 +293,21 @@ Ben Lovejoy / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-capturing-and-polishing-videography-in-adobe-connect-for-2024/"><u>[New] Capturing and Polishing Videography in Adobe Connect for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-unleashing-full-potential-of-firefox-x-pie-mode-for-2024/"><u>[New] Unleashing Full Potential of Firefox X-Pie Mode for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-combating-content-id-blocks-on-youtube-with-knowledge/"><u>[Updated] 2024 Approved Combating Content ID Blocks on YouTube with Knowledge</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-epic-locations-for-immersive-virtual-adventures/"><u>[Updated] Epic Locations for Immersive Virtual Adventures</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Oppo A79 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/anthropics-smart-photo-editor-comprehensive-review-and-analysis/"><u>Anthropics Smart Photo Editor: Comprehensive Review & Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-dell-g5-5090-laptop-review-exceptional-value-and-endless-customization-for-gamers/"><u>Comprehensive Dell G5 5090 Laptop Review: Exceptional Value & Endless Customization for Gamers</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-install-nvme-drivers-on-windows-a-step-by-step-guide/"><u>Download & Install NVMe Drivers on Windows: A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-pros-and-cons-of-googles-gaming-platform-stadia/"><u>Exploring the Pros and Cons of Google's Gaming Platform - Stadia</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/future-meets-present-in-mobile-tech-analyzing-s23-and-s21-ultras/"><u>Future Meets Present in Mobile Tech: Analyzing S23 and S21 Ultras</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Honor Play 40C? | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/solution-steps-why-cant-my-geforce-experience-load-preferences/"><u>Solution Steps: Why Can't My GeForce Experience Load Preferences?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-how-cumuluspros-anti-fatigue-mat-transforms-your-workspace/"><u>The Ultimate Review: How CumulusPRO's Anti-Fatigue Mat Transforms Your Workspace</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-techniques-for-mastering-finnish-from-home/"><u>Top Techniques for Mastering Finnish From Home</u></a></li>
+</ul></div>
 

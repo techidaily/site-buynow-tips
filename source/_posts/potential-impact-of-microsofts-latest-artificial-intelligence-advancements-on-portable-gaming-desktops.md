@@ -1,7 +1,7 @@
 ---
 title: Potential Impact of Microsoft's Latest Artificial Intelligence Advancements on Portable Gaming Desktops
-date: 2024-08-31T16:34:18.414Z
-updated: 2024-09-01T16:34:18.414Z
+date: 2024-09-30T18:11:54.563Z
+updated: 2024-10-01T20:35:34.937Z
 tags:
   - games
   - tv
@@ -20,6 +20,13 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2
 * ARM chips like the Snapdragon X Elite could power future handheld gaming PCs with promising efficiency.
 
  Microsoft is all in on AI after a recent push for “AI PCs,” is a joint venture with Intel, AMD, and Qualcomm. One of the specs for the upcoming “AI PCs” lists Neural Processing Unit (NPU) performance of at least 45 TOPS. This could be bad news for Steam Deck and the gang. Here’s why.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  A Focus on AI Tech Means Less Cache and Lower Gaming Performance
 
@@ -52,8 +59,12 @@ _AMD_
  While a wider memory bus on next-gen AMD APUs is good news, Intel is cooking something even better, something that could completely solve memory bandwidth issues for future handheld PCs.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  On-Package RAM Could Be a Silver Lining for Handheld Chips
 
  Aside from low bandwidth, APUs also have to deal with high latency since the system memory isn’t placed right next to the iGPU but is instead either soldered to the PCB or slotted into SO-DIMM slots.
@@ -63,17 +74,18 @@ _AMD_
 ![Intel CPU die with on-package RAM chips.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/intel-on-package-ram.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Intel
 
  That said, we don’t yet have any info regarding the memory bandwidth of this on-package RAM solution, but I’m confident it will be pretty high because, like AMD, Intel wants to do this to improve the AI performance of its chips. Once again, an AI-focused improvement could indirectly benefit future gaming handhelds.
 
  Even though NPUs and AI performance are currently all the rage at AMD and Intel, the silver lining here is that both iGPUs and AI-related tasks greatly benefit from increased memory bandwidth. While Microsoft’s AI push looked like pretty bad news for future handhelds at first glance, it could turn out to be a pretty solid boon in the end.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  What About ARM Solutions Like the Snapdragon X Elite?
 
  ARM-based chips and [Windows on ARM](https://fox-http.techidaily.com/essential-list-best-microphones-for-4k-ultra-hd/) have been gaining more and more traction in the recent couple of years.
@@ -85,8 +97,12 @@ Intel
 ![Snapdragon X Elite Hero Revised](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/10/snapdragon-x-elite-hero-revised.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Qualcomm 
 
  This sounds promising for future ARM-based Windows laptops, but it could also mean that we might see handheld gaming PCs powered by ARM chips in the future. ARM SoCs can be incredibly power efficient, making them perfect for mobile solutions. The high-performance version of the Snapdragon X Elite [gulps up to 80W of power](https://tools.techidaily.com/anandtech/products/), the thin and light version of the chip only uses 23W of power, and that’s for the entire device, not only the SoC.
@@ -109,8 +125,6 @@ Qualcomm
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -118,4 +132,21 @@ Qualcomm
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-the-ifunny-meme-journey-downloading-made-easy/"><u>[Updated] 2024 Approved The iFunny Meme Journey Downloading Made Easy</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-effortless-image-incorrante-on-instagram/"><u>[Updated] In 2024, Effortless Image Incorrante on Instagram</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-utilize-youtube-metrics-to-transform-views-into-revenue-for-2024/"><u>[Updated] Utilize YouTube Metrics to Transform Views Into Revenue for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/craft-captivating-gopro-time-lapse-footage-hacks/"><u>Craft Captivating GoPro Time-Lapse Footage Hacks</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/enabling-and-customizing-auto-calculate-and-parallel-processing/"><u>Enabling & Customizing Auto-Calculate & Parallel Processing</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/inspiration-in-frames-top-20-creative-instagrams-for-2024/"><u>Inspiration in Frames Top 20 Creative Instagrams for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/overcoming-the-oops-moment-expert-tips-for-correcting-your-websites-404-page-error/"><u>Overcoming the Oops Moment: Expert Tips for Correcting Your Website's 404 Page Error</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Motorola Edge 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tango-review-ultimate-guide-to-its-voice-and-video-chat-capabilities/"><u>Tango Review: Ultimate Guide to Its Voice & Video Chat Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-definitive-examination-samsung-galaxy-note20-ultra-5g-features-and-performance/"><u>The Definitive Examination: Samsung Galaxy Note20 Ultra 5G Features and Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-latest-on-microsoft-surface-pro-7-reliable-improvement-subtle-differences-highlighted/"><u>The Latest on Microsoft Surface Pro 7: Reliable Improvement, Subtle Differences Highlighted</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-amazon-fire-hd-10-kids-edition-reviews-features-and-parental-protection/"><u>The Ultimate Guide to Amazon Fire HD 10 Kids Edition: Reviews, Features, and Parental Protection</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-choosing-a-smart-weather-station-spotlight-on-netatmo/"><u>The Ultimate Guide to Choosing a Smart Weather Station: Spotlight on Netatmo</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-extollos-lansocket-1500-unparalleled-data-transfer-speeds-superior-response-time-and-efficient-power-management/"><u>The Ultimate Review of Extollo's LANSocket 1500 - Unparalleled Data Transfer Speeds, Superior Response Time, and Efficient Power Management</u></a></li>
+</ul></div>
 

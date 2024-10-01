@@ -1,7 +1,7 @@
 ---
 title: Razer Blade Stealth 13 Ultrabook Breakdown - How It's Raising the Bar for Laptop Performance
-date: 2024-08-27T12:12:45.330Z
-updated: 2024-08-28T12:12:45.330Z
+date: 2024-09-26T19:50:01.539Z
+updated: 2024-10-01T18:42:32.107Z
 categories:
   - BestProducts
 description: This Article Describes Razer Blade Stealth 13 Ultrabook Breakdown - How It's Raising the Bar for Laptop Performance
@@ -41,6 +41,13 @@ Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/CWSAqFXf9klr-Fs5mU-YkCpwF9Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-5-1-668cca140a8e4c1ba59c13f4f2a8d8ec.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Bill Thomas
 
 [View On Amazon $25](https://www.amazon.com/dp/B00IF0JAYE/?tag=lifewire-onsite-prod-20&ascsubtag=4686094%7Cn04462eaac973429b8b417ec47f0b261514%7CB00IF0JAYE) [View On Walmart $76](https://www.walmart.com/ip/NETGEAR-N600-8x4-WiFi-Cable-Modem-Router-Combo-C3700-DOCSIS-3-0-Certified-for-XFINITY-by-Comcast-Spectrum-Cox-and-more-C3700-100NAS/36009477) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-dual-band-n600-router-with-8-x-4-docsis-3-0-cable-modem-black%2F3707003.p%3Fcmp%3DRMX%26skuId%3D3707003)
@@ -73,29 +80,21 @@ Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/kBtdcSRxoIsQvqmnO6OVYnfZ9z8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-4-ad3408c39a524e14a6cebcce10d3be44.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/sNdotwRQaaANrcOOFjoNRrlmeak=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-3-24f328c303ef44929cc9f49334ac5fb8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/zfaMhW3pqkYXVuVTQM9Swnx9cQk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-5-a204a239cbd549c9b5949b2536b49ff8.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Bill Thomas
 
 ## Setup: Nice and simple
@@ -108,9 +107,6 @@ Lifewire / Bill Thomas
 
  We weren’t impressed with the wireless performance, but the wired performance surprised us.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ## Connectivity: Everything a small home needs
 
  The Netgear C3700 is a modem-router combo, which means, hypothetically, it’s the only networking device many people will need. On top of the two Gigabit[Ethernet](https://www.lifewire.com/what-is-an-ethernet-cable-817548) ports, you’re also getting dual antennas, which makes this a dual-band device (2.4GHz and 5.0GHz). It’s not the fastest wireless connection in the world, though—the Netgear C3700 is rated for N600 speeds, something we haven’t seen in a few years.
@@ -119,9 +115,6 @@ Lifewire / Bill Thomas
 
  There is also a USB 2.0 port around the back where you can plug in a hard drive or a printer for network access.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Network Performance: Great when wired, but wireless speeds lag
 
  We didn’t exactly have high hopes for the C3700 and its N600 wireless rating. At its peak during testing, we reached wireless speeds of 130Mbps, but that didn’t last—with multiple devices connected and in use, we were seeing speeds as low as 40Mbps just a few feet away from the router.
@@ -132,7 +125,21 @@ Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/lPF7EXzNUljkXFySwthTmhwRbiY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-6-1c4a748dd9b644c39d8bd8c47180c74f.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Bill Thomas
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Software: No frills
 
@@ -144,9 +151,6 @@ Lifewire / Bill Thomas
 
  You can also download the Netgear Genie app on your phone, which allows you to manage your network from a more attractive interface. Much of the same functionality is here, but it might be a more approachable interface for those who don’t really know where to start with their router settings.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Price: It pays for itself
 
  The Netgear C3700 retails for $109.99, but you should be able to find it for less (as of the time of this writing, it’s on sale for about $95). At this price, the modem has a head start on paying for itself.
@@ -163,12 +167,12 @@ Lifewire / Bill Thomas
  The cable modem’s performance is great, but the wireless performance is just not there. If all you want is the cheapest possible modem with built-in dual-band Wi-Fi, then the Netgear C3700 checks those boxes. But we think you’re better off spending more for better performance or just buying two standalone devices.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Motorola MG7700](https://www.lifewire.com/motorola-mg7700-review-4589346)
@@ -200,8 +204,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -209,4 +211,24 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-superstars-with-a-subscriber-base/"><u>[New] Superstars with a Subscriber Base</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-best-mkv-player-for-pc-and-mobile/"><u>[Updated] Best Mkv Player for PC and Mobile</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-dominate-views-smarter-youtube-timing-strategies-for-2024/"><u>[Updated] Dominate Views Smarter Youtube Timing Strategies for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-overwatch-video-capture-quick-simple-and-effective/"><u>[Updated] In 2024, Overwatch Video Capture – Quick, Simple, and Effective</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1725285202441-windows-11mov/"><u>問題解決:Windows 11のMOVファイル再生に特化したソフトウェアガイド</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/assessing-the-ergohead-mat-a-detailed-review-of-its-suitability-for-sustained-use/"><u>Assessing the Ergohead Mat - A Detailed Review of Its Suitability for Sustained Use</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/first-impressions-and-usage-tips-for-the-samsung-galaxy-budsplus/"><u>First Impressions and Usage Tips for the Samsung Galaxy Buds+</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-honor-magic-v2-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Honor Magic V2 Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/immerse-yourself-in-gaming-the-49-inch-phillips-evnia-curved-oled-display/"><u>Immerse Yourself in Gaming: The 49-Inch Phillips Evnia Curved OLED Display</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/insights-into-the-oneplus-9-pro-outstanding-visual-appeal-quick-responsiveness-and-camera-innovations/"><u>Insights Into the OnePlus 9 Pro - Outstanding Visual Appeal, Quick Responsiveness & Camera Innovations</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximizing-device-connection-with-amazonbasics-7-port-usb-30-hub-an-expert-review/"><u>Maximizing Device Connection with AmazonBasics 7-Port USB 3.0 Hub: An Expert Review</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Tecno Pova 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealthy-fb-tips-to-prevent-strangers-from-viewing-posts/"><u>Stealthy FB Tips to Prevent Strangers From Viewing Posts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-best-prime-day-deals-on-samsung-devices-you-can-still-get/"><u>The Best Prime Day Deals on Samsung Devices You Can Still Get</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-review-of-romers-long-lasting-rechargeable-searchlight-ideal-for-outdoor-enthusiasts/"><u>Top Review of Romer's Long-Lasting, Rechargeable Searchlight Ideal for Outdoor Enthusiasts</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshooting-d3dx939dll-absence-on-windows-11/"><u>Troubleshooting D3DX9_39.dll Absence on Windows 11</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/yn560ivs-manual-control-capturing-moments-efficiently-and-economically/"><u>YN560IV's Manual Control: Capturing Moments Efficiently & Economically</u></a></li>
+</ul></div>
 

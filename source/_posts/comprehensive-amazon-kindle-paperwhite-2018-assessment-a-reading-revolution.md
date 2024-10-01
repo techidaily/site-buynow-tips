@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Amazon Kindle Paperwhite (2018) Assessment: A Reading Revolution"
-date: 2024-08-27T12:12:55.436Z
-updated: 2024-08-28T12:12:55.436Z
+date: 2024-09-28T16:47:26.212Z
+updated: 2024-10-01T17:01:15.490Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Amazon Kindle Paperwhite (2018) Assessment: A Reading Revolution"
@@ -43,6 +43,13 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Emily Ramirez
 
 [View On Amazon](https://www.amazon.com/dp/B009ISU33E?tag=lifewire-onsite-prod-20&ascsubtag=4769837%7Cnf4d47b24328e45aa9d01315a6a6b3e1211%7CB009ISU33E)
@@ -70,15 +77,23 @@ Lifewire / Emily Ramirez
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
@@ -109,9 +124,6 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: Lots of options with mixed utility**
 
  For the tinkerers out there, Sound Blaster provides a myriad of audio adjustments through their Z-Series software package. Here, you can EQ any frequency between 20 and 20,000 Hz or activate “Crystallization,” “Scout Mode,” and “Theater Mode.” Crystallization adds punch to the audio’s treble, making voices stand out against the background. Theater Mode is similar to Crystallization, but it tries to_only_ boost voices instead of the entire treble range. We found it great for watching videos. Meanwhile, Scout Mode is squarely aimed at gamers. It theoretically makes enemy noises like footsteps louder.
@@ -121,15 +133,16 @@ Lifewire / Emily Ramirez
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition:** **Falls short of less expensive options**
 
  As we’ve already emphasized, it’s difficult to recommend the aging ZxR at its inflated $250 MSRP. You can find a number of sound cards for significantly less that provide competitive performance, though they generally don’t offer the same robust software package as the ZxR.
@@ -150,13 +163,17 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -181,14 +198,11 @@ Lifewire / Emily Ramirez
 * Software  Sound Blaster Z-Series Software
 * What’s Included  Sound Blaster ZxR sound card, Sound Blaster DBpro card, Sound Blaster Audio Control Module, 1Optical Cable, 1x Stereo(3.5mm)-to-RCA cable, 1x DBpro cable, Quick Start Leaflet, Installation CD containing: Drivers for Windows 7 and Windows 8, Creative Software Suite, User's Guide
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -197,4 +211,26 @@ Lifewire / Emily Ramirez
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-harmonizing-zoom-audio-elevate-your-listening-experience-for-2024/"><u>[New] Harmonizing Zoom Audio Elevate Your Listening Experience for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-aimp-pro-streaming-enhancer-without-wmsp/"><u>[New] In 2024, AIMP Pro Streaming Enhancer Without WMSP</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-iterative-feedback/"><u>[Updated] Iterative Feedback</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-how-to-fix-blurry-facebook-videos-on-iphoneandroidchrome/"><u>2024 Approved How to Fix Blurry Facebook Videos on iPhone/Android/Chrome?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-apeman-c450-dashcam-is-it-worth-the-buy-full-review/"><u>Affordable Apeman C450 Dashcam - Is It Worth the Buy? [Full Review]</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-photos-from-infinix-hot-30-5g-by-fonelab-android-recover-photos/"><u>Best Android Data Recovery - Retrieve Lost Photos from Infinix Hot 30 5G.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-overview-of-the-propella-7-s4-stylish-and-wallet-wise/"><u>Comprehensive Overview of the Propella #7 S4 - Stylish and Wallet-Wise</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exclusive-auditory-experience-the-pro-x-review/"><u>Exclusive Auditory Experience: The Pro X Review</u></a></li>
+<li><a href="https://driver-download.techidaily.com/fixing-the-issue-how-to-resolve-260ci-wi-fi-adapter-usb-connection-troubles/"><u>Fixing the Issue: How to Resolve 260Ci Wi-Fi Adapter USB Connection Troubles</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-motorola-moto-g-stylus-5g-2023-easily-by-drfone-android/"><u>How To Unlock a Motorola Moto G Stylus 5G (2023) Easily?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-any-infinix-hot-30i-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Infinix Hot 30i Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-motorola-moto-g34-5g-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Motorola Moto G34 5G</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-nhl-2019s-engaging-digital-matches/"><u>In-Depth Analysis of NHL 2019'S Engaging Digital Matches</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-mid-air-marvels-with-the-blade-blh4100-the-premier-120cc-fuel-powered-rc-helicopter-for-outdoor-adventures/"><u>Mastering Mid-Air Marvels with the Blade BLH4100: The Premier 120Cc Fuel-Powered R/C Helicopter for Outdoor Adventures</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mokos-versatile-and-foldable-bluetooth-keyboard-perfect-for-on-the-go-typing/"><u>MoKo's Versatile and Foldable Bluetooth Keyboard Perfect for On-the-Go Typing</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/social-media-savvy-how-to-download-status-vids-on-fb/"><u>Social Media Savvy How to Download Status Vids on FB</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-amplifi-hd-mesh-system-ending-the-era-of-unreliable-wi-fi/"><u>The Ultimate Guide to the Amplifi HD Mesh System: Ending the Era of Unreliable Wi-Fi.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-exploring-the-power-of-ipad-pro-m1-2021-a-new-era-for-mobile-workstations/"><u>Ultimate Guide: Exploring the Power of iPad Pro (M1, 2021) - A New Era for Mobile Workstations</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unique-avantree-aria-hearing-experience/"><u>Unique Avantree Aria Hearing Experience</u></a></li>
+</ul></div>
 

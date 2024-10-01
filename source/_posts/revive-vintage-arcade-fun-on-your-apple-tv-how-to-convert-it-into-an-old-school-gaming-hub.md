@@ -1,7 +1,7 @@
 ---
 title: Revive Vintage Arcade Fun on Your Apple TV – How to Convert It Into an Old-School Gaming Hub
-date: 2024-08-31T16:37:24.364Z
-updated: 2024-09-01T16:37:24.364Z
+date: 2024-09-26T18:40:38.626Z
+updated: 2024-10-01T16:32:12.442Z
 tags:
   - games
   - tv
@@ -34,8 +34,12 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
  Also, RetroArch isn't the most user-friendly emulator frontend out there, and getting some games to work is rather tricky. I'm going to show you the basic process of getting a NES/Famicom game running, but other cores may, for example, require additional resources such as BIOS files to work.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  A Word on Controllers
 
  Believe it or not, you can use your Apple TV's remote to play games on RetroArch. It's not something I would recommend, but if you really just want to try it out and you don't have a controller, you don't strictly need one. That said, Apple's devices support just about every Bluetooth controller you can think of, and they are easy to connect as well.
@@ -49,8 +53,12 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
  Once you've done this, you can control the Apple TV itself with the controller as well, so you can set its own remote aside.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 
 
 ##  Getting ROMs on RetroArch
@@ -61,15 +69,19 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![Retroarch Apple TV startup screen](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/retroarch-apple-tv-startup-screen.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Sydney Louw Butler / How-To Geek
 
  In this case, I created a new folder called "NES Roms" as a subfolder of the "RetroArch" folder, then uploaded a homebrew NES game called [_The Legends of Owlia_](https://gradualgames.itch.io/the-legends-of-owlia) 
 
 ![Retroarch web interface on Apple TV.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/retroarch-web-interface.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
  With my controller paired with my ATV and a game loaded, we can go ahead and launch it.
 
 ##  Launching a Game
@@ -78,29 +90,25 @@ Sydney Louw Butler / How-To Geek
 
 ![Retroarch content loading menu](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/retroarch-content-loading-menu.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Sydney Louw Butler / How-To Geek
 
  Choose "Start Directory", then "\~/Library/Caches/RetroArch", then navigate to the folder you created earlier and select it.
 
 ![The RetroArch file browser](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/the-retroarch-file-browser.jpg) 
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Sydney Louw Butler / How-To Geek
 
  Select the game ROM, then choose one of the suggested cores, or keep the current one if it's appropriate.
 
 ![Retroarch suggested cores menu](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/retroarch-suggested-cores-menu.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 Sydney Louw Butler / How-To Geek
 
  The game should start!
@@ -111,10 +119,14 @@ Sydney Louw Butler / How-To Geek
 
  The last thing you should know is how to open the Quick Menu. You can manually set it under the Settings menu, but for the DualShock 4 controller I was using, the default combo was the PS button + R1\. If you want to change this, look for the hotkeys assignment under the input settings.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  The Coming Apple TV Retro Revolution
 
@@ -128,8 +140,6 @@ Sydney Louw Butler / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -137,4 +147,21 @@ Sydney Louw Butler / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-a-spectrum-of-style-the-finest-photo-frame-software/"><u>[New] A Spectrum of Style The Finest Photo Frame Software</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-gearing-up-for-a-leisurely-view-three-methods-to-tame-video-speed-on-youtube-60-chars-minor-exception-due-to-title-length-but-offers-comprehensi/"><u>[New] In 2024, Gearing Up for a Leisurely View Three Methods to Tame Video Speed on YouTube (60 Chars, Minor Exception Due to Title Length but Offers Comprehensive Insight)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-soundtrack-strategy-elevating-facebook-videos-with-music-for-2024/"><u>[New] The Soundtrack Strategy Elevating Facebook Videos with Music for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-nubia-red-magic-8s-proplus-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Nubia Red Magic 8S Pro+? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/arf-pets-auto-feed-system-simplify-your-pets-mealtime-routine/"><u>Arf Pets Auto Feed System: Simplify Your Pet’s Mealtime Routine</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/byb-e430-led-desk-lamp-with-adjustable-arm-comprehensive-review/"><u>BYB E430 LED Desk Lamp with Adjustable Arm - Comprehensive Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/from-the-original-32-bit-windows-11-advance-to-64-bit-os/"><u>From the Original 32-Bit Windows 11, Advance to 64-Bit OS</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-honor-90-gt-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Honor 90 GT to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-boosting-visuals-implementing-filters-on-devices/"><u>In 2024, Boosting Visuals Implementing Filters on Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-the-premium-samsung-galaxy-tab-s7plus-for-android-enthusiasts/"><u>In-Depth Review of the Premium Samsung Galaxy Tab S^7+ for Android Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tech-solutions-that-transform-your-bedroom-into-a-dream-haven/"><u>Tech Solutions That Transform Your Bedroom Into a Dream Haven</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-advantages-unlocked-by-bigger-screens-a-review-of-the-apple-iphone-12-pro-max/"><u>The Advantages Unlocked by Bigger Screens - A Review of the Apple iPhone 12 Pro Max</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-ranking-televisions-priced-below-1k-industry-experts-review-techradar/"><u>Top-Ranking Televisions Priced Below $1K: Industry Experts' Review | TechRadar</u></a></li>
+<li><a href="https://change-location.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Xiaomi Redmi A2 | Dr.fone</u></a></li>
+</ul></div>
 

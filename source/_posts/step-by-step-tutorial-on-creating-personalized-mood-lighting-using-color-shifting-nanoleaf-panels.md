@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step Tutorial on Creating Personalized Mood Lighting Using Color-Shifting Nanoleaf Panels
-date: 2024-08-31T16:33:30.356Z
-updated: 2024-09-01T16:33:30.356Z
+date: 2024-09-30T18:57:46.486Z
+updated: 2024-10-01T20:10:29.190Z
 tags:
   - games
   - tv
@@ -44,30 +44,18 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
  Let's get building!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ##  Step 1: Download and Print the Enclosure
 
 ![A mini Nanoleaf made with a Raspberry Pi Zero W, showing the STL files.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/screen-shot-2024-04-04-at-3-40-01-pm.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
  First, you'll need to [download the STL files for the enclosure components](http://cults3d.com/en/3d-model/tool/mini-nanoleaf-replica-for-raspberry-pi). These include three mini base/top plates and one each of the box enclosure top and bottom.
 
  Once downloaded, print all the parts according to your 3D printer's instructions. There are also workarounds to [3D print stuff without your own printer](https://extra-information.techidaily.com/new-accelerated-editing-seamless-laptoppc-videos-with-inshot/).
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  Step 2: Prepare the LEDs
 
 ![Cutting the LED strip for a mini Nanoleaf.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/cut-led-strip.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 Cherie Tan / How-To Geek
 
  Using sharp scissors, carefully snip the LED strips along the designated cut lines. For this project, you'll need exactly nine individual LEDs. Be mindful not to cut in between the designated markings, as this can damage the strip.
@@ -75,6 +63,19 @@ Cherie Tan / How-To Geek
  Many LED strips come with a waterproof coating. If yours does, you'll need to carefully remove a small section of the coating from the soldering pads before proceeding.
 
 ![A mini Nanoleaf in a 3D printed panel.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/mini-nanoleaf-in-3d-printed-panel.png) 
+
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Cherie Tan / How-To Geek
 
@@ -84,10 +85,6 @@ Cherie Tan / How-To Geek
 
 ![Three wires soldered to the LED strip in a mini Nanoleaf.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/solder-three-wires-to-led-strip.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 Cherie Tan / How-To Geek
 
  Here comes the delicate part: soldering jumper wires between corresponding pins on the LEDs. Typically, these will be GND (ground), DIN (data), and 5V (power). Make sure to connect the LEDs in series, meaning each LED's output connects to the next LED's input (except for the first and last LEDs in the chain).
@@ -104,11 +101,22 @@ Cherie Tan / How-To Geek
  It's time to add the brain to your DIY Nanoleaf.
 
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Step 4: Attach the Raspberry Pi and Loop Wires
 
 ![The Raspberry Pi Zero W for a mini Nanoleaf.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/raspberry-pi-zero-w-in-panel.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Cherie Tan / How-To Geek
 
@@ -121,13 +129,24 @@ Cherie Tan / How-To Geek
  Repeat the soldering process from Step 3, connecting the three looped wires from the previous enclosure to the new LED. Continue this process for all remaining LEDs and enclosures, ensuring all LEDs are wired in series.
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## ![A completely wired DIY Nanoleaf with a Raspberry Pi (powered).](https://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/led-strips-cut-and-connected-to-pi.png) 
 
  To diffuse the LEDs and create a softer light, we can use plain white printer paper. Trace the outline of the LED enclosure onto the paper and cut out the traced shape with slight adjustments to ensure a snug fit inside the enclosure. Place the paper diffusers inside the enclosures and snap the top components back on.
 
  Now, let's control those LEDs with some code!
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  Step 6: Program Your Pi With the Complete Code
 
@@ -274,8 +293,12 @@ Cherie Tan / How-To Geek
  This might involve individual colors like red, green, and blue, or even a captivating rainbow effect.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Additional Tips and Tricks
 
  This is just the beginning of your mini Nanoleaf's potential! Here are some other exciting ways to personalize your light:
@@ -292,8 +315,6 @@ Cherie Tan / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -301,4 +322,20 @@ Cherie Tan / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-download-final-cut-pro-for-free/"><u>[New] How to Download Final Cut Pro for Free?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-a-comprehensive-guide-to-hp-laptops-screen-recording-features/"><u>[Updated] A Comprehensive Guide to HP Laptop's Screen Recording Features</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/19-cutting-edge-pos-applications-for-businesses-beyond-chatgpt/"><u>19 Cutting-Edge POS Applications for Businesses Beyond ChatGPT</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/convenient-tactics-for-transferring-imovie-projects-to-vimeo/"><u>Convenient Tactics for Transferring iMovie Projects to Vimeo</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-install-latest-dell-monitor-drivers-with-simple-steps/"><u>Download and Install Latest Dell Monitor Drivers with Simple Steps</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-m54-5g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy M54 5G Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-mastering-jump-cuts-for-dynamic-vlogging/"><u>In 2024, Mastering Jump Cuts for Dynamic Vlogging</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1726028550254-pc-dvd/"><u>PCにスムーズ移行! DVDビデオ録画手順</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/streamline-your-music-with-cutting-edge-connectivity-options/"><u>Streamline Your Music with Cutting-Edge Connectivity Options</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-essential-review-testing-out-the-compact-and-cost-effective-lg-um7300-for-your-home-theater-setup/"><u>The Essential Review: Testing Out the Compact and Cost-Effective LG UM7300 for Your Home Theater Setup</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-dji-air-2s-assessment-why-its-taking-over-the-skies/"><u>The Ultimate DJI Air 2S Assessment – Why It's Taking Over the Skies</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-understanding-the-advanced-features-of-the-ring-video-doorbell-pro/"><u>The Ultimate Guide to Understanding the Advanced Features of the Ring Video Doorbell Pro</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-10-list-elite-quality-4k-displays/"><u>TOP 10 List Elite Quality 4K Displays</u></a></li>
+</ul></div>
 

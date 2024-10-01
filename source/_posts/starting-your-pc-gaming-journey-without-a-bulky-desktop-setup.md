@@ -1,7 +1,7 @@
 ---
 title: Starting Your PC Gaming Journey Without a Bulky Desktop Setup
-date: 2024-08-31T16:34:29.397Z
-updated: 2024-09-01T16:34:29.397Z
+date: 2024-09-30T18:16:18.280Z
+updated: 2024-10-01T21:05:10.309Z
 tags:
   - games
   - tv
@@ -21,15 +21,19 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2
 
  The stereotype of PC gaming is a huge desktop tower filled with rainbow lights and spinning fans, while water gurgles through pipes. However, the reality is much more modest, and most people don't even need a big rig PC to play.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  Just What Is PC Gaming Anyway?
 
  It's worth clearing up what I mean when I say "PC gaming" since there are different interpretations of the term. First off, a PC is [a computer that descends from the original IBM PC](https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-infinix-smart-8-plus-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/). There are broader definitions of "PC" that would include non-IBM compatible systems, but that's not what the term "PC gaming" refers to.
 
  So any IBM-compatible modern computer falls into the PC gaming sphere, but that would exclude non-Intel Macs. Hang on, what about the current big consoles? They are basically IBM-compatible PCs on the inside right? Well, yes. However, the very nature of PC is that it's an open standard, and with the PlayStation 5 and Xbox Series consoles the hardware and software has been locked down. You can't run whatever software you want, and not just anyone can make hardware for those systems.
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Gaming PCs Come in All Shapes and Sizes
 
  There has been an absolute proliferation in the form factors that PCs come in. Beyond the desktop tower everyone thinks of, there are tiny mini-ITX systems, Windows gaming tablets like the [ASUS ROG Flow Z13](https://www.amazon.com/ASUS-Gaming-Laptop-Tablet-Display/dp/B0BWHK29QK/?tag=hotoge-20&ascsubtag=UUhtgUeUpU2002558&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fyou-dont-need-a-desktop-gaming-pc-to-get-into-pc-gaming-anymore%2F&asc%5Fcampaign=Evergreen), handheld PCs like the Steam Deck, ultra-thin gaming laptops, ultra thick gaming laptops, and probably even more we haven't seen yet.
@@ -37,8 +41,12 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2
  Not to mention, a device doesn't have to be designated as a "gaming" system to play PC games. Even modest PCs these days have enough performance to competently play most of the PC gaming library, with only games from the last few years out of reach. So, if someone has any sort of PC at all, they can enjoy some form of gaming on it.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Handheld Gaming PCs Are Spreading the Hobby
 
  Handheld PCs have been around for some time, but a combination of Valve's Steam Deck and advances in power-efficient PC hardware has made a new boom in PC gaming possible. The Steam Deck operating system and software makes PC gaming feel as simple as console gaming, without removing the freedom of PC gaming if you want to dig a little deeper. Even Windows gaming handhelds like the [ROG Ally](https://some-guidance.techidaily.com/2024-approved-streamline-and-shine-the-top-5-video-quality-tools/), which offers the raw PC gaming experience, shows that modern PC gaming has come a long way. Most games will just automatically select the right settings for your system, even if you don't know what any of the settings mean.
@@ -46,16 +54,22 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2
  Handheld PCs appeal to the lifestyles of a much broader audience than desktop PCs, and since these devices can be docked just like a Nintendo Switch, it offers a level of portability and versatility which would suit most people, regardless of what their circumstances are.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Gaming Laptops Make the Most Sense for the Average Gamer
 
 ![ROG Ally](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/20230814_093658-1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 #####  Asus ROG Ally
 
 The ASUS ROG Ally is the most powerful handheld gaming PC to date, and offers a fantastic gaming experience and access to the massive PC gaming library, but it's let down by dismal battery life and serious concerns about thermal design and hardware issues.
@@ -75,8 +89,12 @@ The ASUS ROG Ally is the most powerful handheld gaming PC to date, and offers a 
  You'll pay for this laptop now, and it will continue to play games competently until the next-generation of consoles arrive, since these set the minimum bar for cross-platform games.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Even Desktops Are Changing
 
  While big rig gaming towers just seem to get even more ridiculous at the high end of the hardware spectrum, more people are finding the appeal in those small form factor desktop systems I mentioned above.
@@ -93,8 +111,6 @@ The ASUS ROG Ally is the most powerful handheld gaming PC to date, and offers a 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -102,4 +118,20 @@ The ASUS ROG Ally is the most powerful handheld gaming PC to date, and offers a 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-improve-video-comprehensibility-with-effective-use-of-chapters-in-youtube/"><u>[New] In 2024, Improve Video Comprehensibility with Effective Use of Chapters in YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rofessional-content-creation-tools-review-studio-vs-beta/"><u>[New] Professional Content Creation Tools Review Studio Vs. Beta</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-master-video-cropping-for-unique-instagram-visuals/"><u>[Updated] Master Video Cropping for Unique Instagram Visuals</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/advanced-techniques-in-apples-preview-app-for-professional-level-image-editing-on-mac/"><u>Advanced Techniques in Apple's Preview App for Professional-Level Image Editing on Mac</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/amazonbasics-ultimate-guide-to-affordable-hdtv-signal-with-the-free-over-the-air-antenna/"><u>AmazonBasics Ultimate Guide to Affordable HDTV Signal with the Free Over-the-Air Antenna</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-ipod-touch-7th-generation-review/"><u>Apple iPod Touch (7Th Generation) Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/assessing-value-for-money-an-in-depth-look-at-the-swift-and-steeply-priced-swagtron-swagboard-t1/"><u>Assessing Value for Money: An In-Depth Look at the Swift and Steeply Priced Swagtron Swagboard T1</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/effortlessly-transcribe-sound-without-fee-for-2024/"><u>Effortlessly Transcribe Sound, Without Fee for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-about-infinix-hot-40-frp-bypass-by-drfone-android/"><u>In 2024, About Infinix Hot 40 FRP Bypass</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/instagram-edge-constructing-compelling-square-footage-in-imovie/"><u>Instagram Edge Constructing Compelling Square Footage in iMovie</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-from-zero-to-hero-creating-stunning-reaction-videos-using-filmora/"><u>New In 2024, From Zero to Hero Creating Stunning Reaction Videos Using Filmora</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solutions-for-monster-hunter-rise-failed-to-start-issue/"><u>Solutions for Monster Hunter Rise Failed to Start Issue</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-investigating-crickets-sonic-palette-for-effects/"><u>Updated Investigating Crickets Sonic Palette for Effects</u></a></li>
+</ul></div>
 

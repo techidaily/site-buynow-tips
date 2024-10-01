@@ -1,7 +1,7 @@
 ---
 title: "Google Nest Wi-Fi Review: Speedy, Seamless Mesh Networking"
-date: 2024-08-27T12:14:19.614Z
-updated: 2024-08-28T12:14:19.614Z
+date: 2024-09-29T19:07:12.283Z
+updated: 2024-10-01T16:44:47.668Z
 categories:
   - BestProducts
 description: "This Article Describes Google Nest Wi-Fi Review: Speedy, Seamless Mesh Networking"
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/ad35e613eb8093bc386d3ad0e03dab2452cb6287c
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/AfRhNgqeOD7JfcVqpjzm5LwPSB4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 [View On Amazon $185](https://www.amazon.com/dp/B07T89YZWD?tag=lifewire-onsite-prod-20&ascsubtag=4846125%7Cn35b11b2c61b54fa1a2d951691d1a61ed04%7CB07T89YZWD) [View On Walmart $379](https://www.walmart.com/ip/NETGEAR-Nighthawk-AX6000-Dual-Band-WiFi-Wireless-6-Mesh-Range-Extender-EAX80-100NAS/122370265) [View On Best Buy $197](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-nighthawk-ax6000-ax8-dual-band-wi-fi-6-range-extender-black%2F6359409.p%3FskuId%3D6359409)
@@ -66,6 +73,13 @@ thumbnail: https://thmb.techidaily.com/ad35e613eb8093bc386d3ad0e03dab2452cb6287c
 
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -75,13 +89,12 @@ thumbnail: https://thmb.techidaily.com/ad35e613eb8093bc386d3ad0e03dab2452cb6287c
  It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup Process: Avoid the app**
 
  The setup options for the Netgear Nighthawk AX8 are the same as with Netgear’s other extenders—even those without Wi-Fi 6 support. You’ll begin with the extender plugged in near your router. If your router supports[WPS](https://www.lifewire.com/what-is-wps-4842308) , then you can pair the extender with it easily by following the process listed in the included booklet, which is as simple as pressing a button on the router and then doing the same on the extender.
@@ -94,15 +107,8 @@ thumbnail: https://thmb.techidaily.com/ad35e613eb8093bc386d3ad0e03dab2452cb6287c
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Connectivity: Smooth sailing**
 
  Once through the hassle of setup, the Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender really did deliver strong performance. I tested the connection in my office, which reliably sees reduced 5GHz reception from my router due to obstructions in between, and saw a noticeable boost in both reception and speed.
@@ -119,9 +125,6 @@ thumbnail: https://thmb.techidaily.com/ad35e613eb8093bc386d3ad0e03dab2452cb6287c
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -136,9 +139,6 @@ thumbnail: https://thmb.techidaily.com/ad35e613eb8093bc386d3ad0e03dab2452cb6287c
 
  Should you really spend that much on an extender? If you don’t already have a new Wi-Fi 6 router, then probably not. You might see higher peaks of speed as I did, but rather than trying to mix and match old and new tech, you’re probably better off investing in a new Wi-Fi mesh system that can cover the entire house. Netgear’s Orbi is a favorite, as is Google’s similar Nest Wi-Fi system.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Netgear Nighthawk AX8 vs. Netgear Nighthawk X6S (EX8000)**
 
  Both of these Netgear Nighthawk Wi-Fi extenders will set you back $200 or more, and the key difference between them—aside from design—is the Wi-Fi 6 compatibility of the Nighthawk AX8\. The Nighthawk X6S (see on[Amazon](https://www.amazon.com/NETGEAR-Wi-Fi-Range-Extender-EX8000/dp/B074F3M2W8/?tag=lifewire-onsite-prod-20&ascsubtag=4846125%7Cn35b11b2c61b54fa1a2d951691d1a61ed04%7C) ) doesn’t have that, but it does deliver excellent 5GHz range and has four Gigabit Ethernet ports for wired devices. The Nighthawk AX8 is more future-proof as a result, but at a greater cost that becomes increasingly difficult to justify the higher, it climbs.
@@ -150,8 +150,12 @@ thumbnail: https://thmb.techidaily.com/ad35e613eb8093bc386d3ad0e03dab2452cb6287c
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
@@ -169,8 +173,6 @@ thumbnail: https://thmb.techidaily.com/ad35e613eb8093bc386d3ad0e03dab2452cb6287c
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -178,4 +180,24 @@ thumbnail: https://thmb.techidaily.com/ad35e613eb8093bc386d3ad0e03dab2452cb6287c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-power-of-niche-hashtags-for-targeted-instagram-reach/"><u>[New] 2024 Approved The Power of Niche Hashtags for Targeted Instagram Reach</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-easy-guide-to-firefoxs-popup-window-excellence/"><u>[New] In 2024, Easy Guide to Firefox's Popup Window Excellence</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/combatting-fake-chatgpt-pages-a-practical-guide/"><u>Combatting Fake ChatGPT Pages: A Practical Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-picks-leading-usb-wireless-nics-to-upgrade-your-connectivity/"><u>Expert Picks: Leading USB Wireless NICs to Upgrade Your Connectivity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-ultimate-wearable-tech-leading-smart-glasses-ranked/"><u>Exploring the Ultimate Wearable Tech: Leading Smart Glasses Ranked</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-find-and-download-the-newest-drivers-for-your-epson-ds-530-on-a-windows-10-64-bit-system/"><u>How to Find and Download the Newest Drivers for Your Epson DS-530 on a Windows 10 64-Bit System</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Oppo F25 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-art-of-captivating-viewers-instavideo-marketing-essentials/"><u>In 2024, The Art of Captivating Viewers InstaVideo Marketing Essentials</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-unlocking-instagrams-video-sharing-limits/"><u>In 2024, Unlocking Instagram's Video Sharing Limits</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-asus-orbi-tri-band-wi-fi-6-setup-for-ultimate-whole-house-coverage-review/"><u>In-Depth Analysis of the Asus Orbi Tri-Band Wi-Fi 6 Setup for Ultimate Whole-House Coverage Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-tp-links-av2000-powerline-adapter-speedy-connectivity-hindered-by-design-choices/"><u>In-Depth Look at TP-Link's AV2000 Powerline Adapter: Speedy Connectivity Hindered by Design Choices</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/navigating-through-tech-with-tom-essential-hardware-selection-advice/"><u>Navigating Through Tech with Tom: Essential Hardware Selection Advice</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-process-for-safelisting-your-domain-in-apple-mail/"><u>Step-by-Step Process for Safelisting Your Domain in Apple Mail</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tig-welding-is-characterized-by-its-control-which-allows-for-precise-and-clean-welds/"><u>TIG Welding Is Characterized by Its Control, Which Allows for Precise and Clean Welds.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-netgear-orbi-assessment-ultimate-mesh-wifi-system-of-the-day/"><u>Top Netgear Orbi Assessment: Ultimate Mesh WiFi System of the Day</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-dbpower-600a-portable-charger-peak-output-and-impressive-18000mah-explained/"><u>Top Rated DBPower 600A Portable Charger - Peak Output & Impressive 18,000mAh Explained</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-premier-fitness-monitoring-gadgets-of-2024/"><u>Unveiling the Premier Fitness Monitoring Gadgets of 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Why Certain Players Can't Get Enough of Independent Gaming Titles
-date: 2024-08-31T16:34:45.480Z
-updated: 2024-09-01T16:34:45.480Z
+date: 2024-09-30T16:46:11.339Z
+updated: 2024-10-01T16:07:54.011Z
 tags:
   - games
   - tv
@@ -29,6 +29,13 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![Browsing Early Access games on the Steam storefront.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/screenshot-2024-06-27-at-11-27-12.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  It's worth noting that some games "disguise" themselves as indie games but are actually backed by major publishers. The [_Dave the Diver_](http://www.gameleap.com/articles/the-game-awards-2023-dave-the-diver-controversy-explained)[controversy](http://www.gameleap.com/articles/the-game-awards-2023-dave-the-diver-controversy-explained) at the Game Awards 2023 is a good example of a game that looks like an indie but is backed by a multi-billion company.
 
  The lack of a large budget and infrastructure matters because the average game can take hundreds or thousands of work hours to create. An average video game developer can earn over [$100,000 a year](https://www.ziprecruiter.com/Salaries/What-Is-the-Average-GAME-Developer-Salary-by-State#:~:text=How%20Much%20Do%20Game%20Developer%20Jobs%20Pay%20per%20Year%3F&text=%2481%2C500%20is%20the%2025th%20percentile,Salaries%20below%20this%20are%20outliers.&text=%24124%2C000%20is%20the%2075th%20percentile.), so just hiring ten developers for a couple of years to develop a smaller game can cost well over $2 million. That's without accounting for audio, level, and character designs, artwork, and the numerous other professionals necessary to make a good game.
@@ -41,9 +48,6 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![Person holding Backbone game controller connected to iPad mini, with Stardew Valley playing on screen.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/ipadministardew.jpeg) 
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Hannah Brostrom / How-To Geek
 
  If an indie developer wants their game to succeed, they have to make it fun and original. Unlike triple-A developers who have a lot of expectations to live up to, indie developers are more prone to taking risks. In a way, they have to take risks if they want their game to stand out among thousands of other games.
@@ -57,8 +61,18 @@ Hannah Brostrom / How-To Geek
  Cutting-edge graphics aren't usually the focal point of these games, though some games like _Bodycam_ leverage high-resolution photo-realism as their unique selling point. Other games just go for a unique aesthetic, as was the case with _Hollow Knight_ and _Cuphead_.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Near-Endless Variety
 
  Once you dive into the world of indie games, you'll quickly realize how many good examples there are out there waiting to be played. Want 2D _Minecraft_? You got _Terraria_ (or _Factorio_ if you want 2D Minecraft with industrial mods). Looking for a heavy metal rhythm FPS _Doom_ clone? Try _Metal: Hellsinger_ and _BPM: Bullets Per Minute_. There are games that appeal to every niche you can imagine.
@@ -67,14 +81,15 @@ Hannah Brostrom / How-To Geek
 
 ![A collage of boomer shooters consisting of Ion Fury, Quake, Duke Nukem 3D, and Doom.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/boomer-shooter-hero.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ID Software/3D Realms
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Smaller Scope, Bigger Impact
 
  Since indie teams are smaller both in terms of size and budget, it inevitably affects the finished product. I've already mentioned sacrifices in the visual department, but another common sacrifice is game length. Many of them provide a shorter story that takes around 3–15 hours to beat. This isn't necessarily a bad thing, as many gamers are slowly starting to dislike games that overstay their welcome. I know I do.
@@ -91,16 +106,17 @@ ID Software/3D Realms
 
 ![Hades ultrawide screenshot](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/01/70b599fb.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  If you want an example, look no further than [Yacht Club Games](https://www.cbr.com/game-companies-listens-ignores-fans/), the developer of _Shovel Knight_. Perhaps nobody listens to players more than indie developers whose games are being crowdfunded or are still in early access and need money to keep the game in development.
 
  Also, being part of a small, tightly-knit community means you can enjoy the game with like-minded individuals, make new friends, and enjoy a deep connection with the game. Discord servers and subreddits are good places to talk to the community and developers.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Don’t Ignore Indie Games
 
  There are so many original indie games; you're bound to find at least a dozen that you'll enjoy as much, or even more than a triple-A release. I was more excited about _Hades II_ than any other game that was released this year. It's still in early access, but I've sunk over twenty hours into it. In contrast, I've barely touched _Horizon: Forbidden West_, which is big budget a sequel to a game I really enjoyed. This speaks volumes about how much a simple indie game can offer.
@@ -113,8 +129,6 @@ ID Software/3D Realms
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -122,4 +136,20 @@ ID Software/3D Realms
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-ultimate-overview-dji-inspire-1-reviewed/"><u>[New] In 2024, The Ultimate Overview DJI Inspire 1 Reviewed</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-navigating-the-world-of-instantaneous-public-sharing-for-2024/"><u>[New] Navigating the World of Instantaneous Public Sharing for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-secure-communication-made-easy-the-best-10-free-and-protected-video-conferencing-tools/"><u>[New] Secure Communication Made Easy The Best 10 Free and Protected Video Conferencing Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-precision-in-photos-mastering-insta-story-zoom-levels/"><u>[Updated] In 2024, Precision in Photos Mastering Insta Story Zoom Levels</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-unveiling-the-secrets-of-effective-hp-screen-capture-for-2024/"><u>[Updated] Unveiling the Secrets of Effective HP Screen Capture for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>All You Need To Know About Mega Greninja For Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discover-the-leading-13-gopro-video-editors-ultimativa-redigeringslaerrer-og-skjonner-pa-gopro/"><u>Discover the Leading 13 GoPro Video Editors – Ultimativa Redigeringslærrer Og Skjønner På GoPro</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-honor-x9a-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unboxing-nokia-n31-the-ultimate-starter-phone-for-tech-newbies/"><u>Unboxing Nokia N3.1: The Ultimate Starter Phone for Tech Newbies</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/uncovering-the-capabilities-a-thorough-examination-of-the-garmin-forerunner-265-running-watch/"><u>Uncovering the Capabilities: A Thorough Examination of the Garmin Forerunner 265 Running Watch</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/understanding-compromises-in-the-hp-stream-14-a-cost-effective-windows-portable-computer-assessment/"><u>Understanding Compromises in the HP Stream 14: A Cost-Effective Windows Portable Computer Assessment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/understanding-the-value-of-the-samsung-galaxy-tab-s3-in-todays-market-a-fresh-evaluation/"><u>Understanding the Value of the Samsung Galaxy Tab S3 in Today's Market - A Fresh Evaluation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleash-your-sky-adventure-with-the-blade-blh4100-120s-ready-to-fly-rc-helicopter-review/"><u>Unleash Your Sky Adventure with the Blade BLH4100 120S Ready-to-Fly RC Helicopter Review</u></a></li>
+</ul></div>
 

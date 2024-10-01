@@ -1,7 +1,7 @@
 ---
 title: Do You Need More Than 8GB VRAM? Your Gaming Needs May Dictate That
-date: 2024-08-31T16:35:04.286Z
-updated: 2024-09-01T16:35:04.286Z
+date: 2024-09-24T19:13:13.630Z
+updated: 2024-10-01T20:08:26.258Z
 tags:
   - games
   - tv
@@ -40,8 +40,12 @@ Cianna Garrison / How-To Geek
  But I haven't let that stop me. I’ve managed to play it at 1080p with ray-traced reflections and ray-traced lighting set to ultra with DLSS Balanced, with a few performance drops due to the game filling up the memory buffer at some specific places, such as when you enter Afterlife.
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Things Get Complicated With Newer AAA Games
 
  If you’re eyeing AAA games released in 2021 and later, 8GB of video memory will limit performance in some scenarios. For example, _Forza Horizon 5_, released in the second part of 2021, runs fine with textures set to extreme, even though the game hits you with a low memory warning minutes after you start driving.
@@ -51,8 +55,12 @@ Cianna Garrison / How-To Geek
 ![A screenshot of a virtual Corvette driving in a race from the game "Forza Horizon 5."](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/screenshot-2023-11-01-172430.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Cianna Garrison / How-To Geek
 
 "Forza Horizon 5"
@@ -80,16 +88,23 @@ _Returnal_ is another game I had to play with textures on high instead of ultra 
 ![GIGABYTE GeForce RTX 4060 GAMING OC against an orange background.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/gigabyte-geforce-rtx-4060-gaming-oc-best-graphics-cards-01.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 _GIGABYTE_
 
  When it comes to ray tracing, you can forget about it in most cases. Some 8GB GPUs, such as the RTX 4060 and RTX 4060 Ti 8GB, can give you playable frame rates at 1080 with RT effects and [DLSS frame generation](https://fox-blue.techidaily.com/add-music-in-premiere-pro-for-2024/) in games that support the technology. In most instances, however, turning on ray tracing eye candy and using high textures results in massive performance drops. You can play some older games with ray tracing effects enabled, but in general, 8GB GPUs aren’t enough for ray tracing in 2024.
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Should You Buy an 8GB GPU in 2024?
 
  Unless you’re shopping for a budget graphics card you plan on using for 1080p or 1440p gaming, you should avoid 8GB GPUs in 2024\. Future AAA games can only become more demanding, and you shouldn’t limit yourself to medium texture quality unless you’re gaming on a budget.
@@ -104,8 +119,6 @@ _GIGABYTE_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -113,4 +126,26 @@ _GIGABYTE_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-datasafe-experts-assessment-for-2024/"><u>[New] DataSafe Experts Assessment for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-framefusion-instagram-photo-fusion-across-oses/"><u>[New] In 2024, FrameFusion Instagram Photo Fusion Across OSes</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-eye-catchers-of-tomorrow-discovering-6-future-oriented-genres/"><u>[Updated] Eye Catchers of Tomorrow Discovering 6 Future-Oriented Genres</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-enrich-your-brain-with-these-15-ultimate-science-youtubes/"><u>2024 Approved Enrich Your Brain with These 15 Ultimate Science Youtubes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/alexa-or-google-assistant-which-smart-assistant-suits-you-best/"><u>Alexa or Google Assistant – Which Smart Assistant Suits You Best?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/amazonbasics-micro-cut-the-ultimate-in-document-safety-a-comprehensive-review-of-the-12-sheet-shredder/"><u>AmazonBasics Micro-Cut, The Ultimate in Document Safety: A Comprehensive Review of the 12 Sheet Shredder</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-wireless-router-faceoff-tp-link-archer-c9-review-and-comparison/"><u>Budget Wireless Router Faceoff: TP-Link Archer C9 Review & Comparison</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/burning-critique-the-culinary-chaos-of-overcooked-n-review/"><u>Burning Critique: The Culinary Chaos of Overcooked! N Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-fongo-the-top-voice-over-ip-solution-in-canada/"><u>Comprehensive Analysis of Fongo – The Top Voice Over IP Solution in Canada</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-why-the-iphone-xs-max-claims-the-title-of-premier-device/"><u>Comprehensive Analysis: Why the iPhone XS Max Claims the Title of Premier Device</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-philips-hf3505-sunrise-alarm-your-essential-timepiece/"><u>Comprehensive Evaluation of Philips HF3505 Sunrise Alarm - Your Essential Timepiece</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/conquering-new-heights-with-dji-robomasters-s1-comprehensive-examination-of-the-battle-and-programming-drone/"><u>Conquering New Heights with DJI Robomasters S1: Comprehensive Examination of the Battle and Programming Drone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decoding-the-value-of-google-pixelbook-go-superior-chromebook-experience-with-a-hefty-price-point/"><u>Decoding the Value of Google Pixelbook Go: Superior Chromebook Experience with a Hefty Price Point</u></a></li>
+<li><a href="https://extra-information.techidaily.com/from-novice-to-expert-navigating-telegram-web/"><u>From Novice to Expert Navigating Telegram Web</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-vivo-y56-5g-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Vivo Y56 5G.</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Motorola Edge 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-ranking-the-ultimate-selection-the-9-superior-podcast-microphones/"><u>New Ranking the Ultimate Selection The 9 Superior Podcast Microphones</u></a></li>
+<li><a href="https://driver-download.techidaily.com/sas-driver-updates-available-now-for-windows-users-windows-10-8-and-7-downloads-included/"><u>SAS Driver Updates Available Now for Windows Users: Windows 10, 8 & 7 Downloads Included!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sonos-nomad-review-seamless-sound-mobility/"><u>Sonos Nomad Review: Seamless Sound Mobility</u></a></li>
+</ul></div>
 

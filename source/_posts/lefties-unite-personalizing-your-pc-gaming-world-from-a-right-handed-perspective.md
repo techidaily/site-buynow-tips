@@ -1,7 +1,7 @@
 ---
 title: Lefties Unite! Personalizing Your PC Gaming World From a Right-Handed Perspective
-date: 2024-08-31T16:33:21.068Z
-updated: 2024-09-01T16:33:21.068Z
+date: 2024-09-24T16:24:53.868Z
+updated: 2024-10-01T20:06:17.996Z
 tags:
   - games
   - tv
@@ -31,22 +31,23 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![The Razer Viper Ultralight Ambidextrous PC gaming mouse.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/pxl_20240322_221821518.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Zachary Cimaglio / How-To Geek
 
  MMO mice also come in ambidextrous versions, though they are more specific to each hand, with extra keys for in-game abilities oriented on just one side of the mouse. These can often be a little pricier, like [the Razer Naga Left-Handed Edition](https://razer.a9yw.net/c/156932/642901/10229?subId1=UUhtgUeUpU2002419&subId2=ehtg&u=https%3A%2F%2Fwww.razer.com%2Fgaming-mice%2FRazer-Naga-Left-Handed-Edition%2FRZ01-03410100-R3M1%3Futm%5Fsource%3Dgoogle%26utm%5Fmedium%3Dgoogle-shopping%26utm%5Fcampaign%3D210101%5FRS%5FTXN%5FMID%5FUS%5FEGR-peripherals-BAU%5FTR%26cid%3D210101%5FRS%5FTXN%5FMID%5FUS%5FEGR-peripherals-BAU%5FTR%26gad%5Fsource%3D1%26gclid%3DCj0KCQjw2PSvBhDjARIsAKc2cgMQpCJ88msvaVqcSbBab-DHl2rm%5FT%5Fgn2KVtnSeZEGLqvyrW%5Fz5gG8aAtfeEALw%5FwcB) which retails for just under $100, but the extra functionality may be worth it if you play MMORPGs or other complex role-playing titles.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Say Goodbye to WSAD Controls
 
  Practically every PC game ever made defaults to the WSAD keys for movement, but this can be quite annoying if you're left-handed since your fingers are oriented the wrong way. Luckily, most titles also let you remap the controls to use whatever keys you want for in-game mechanics.
 
 ![A PC gamer using the WASD keyboard layout and a mouse to play.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/06/wasd_controls.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 [Tugce Simsek / Shutterstock](https://www.shutterstock.com/image-photo/gamer-playing-pc-video-game-gaming-1793728492)
 
  To change the keybinds in most games, simply navigate to the "Settings" or "Options" menu and find the "Controls" menu where you should be able to customize which key does what one by one. Some games will have separate control settings for various mechanics, so make sure you keep things consistent and change those too, when necessary.
@@ -55,12 +56,16 @@ Zachary Cimaglio / How-To Geek
 
 ![The "WASD" keys compared to the "IJKL" keys on the typical keyboard.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/pxl_20240322_222550892.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 Zachary Cimaglio / How-To Geek
 
  I recommend experimenting with keys oriented on the right side of the keyboard since you ideally want your hands far apart from each other to prevent strain or fatigue. The IKJL control scheme is on the opposite end of the keyboard from WSAD, making it much more comfortable in tandem with a left-handed or ambidextrous mouse (plus you can still easily reach Shift, Ctrl, and so on with your pinky finger).
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  When in Doubt, Use a Controller
 
@@ -70,21 +75,19 @@ Zachary Cimaglio / How-To Geek
 
 ![The "Devices" section in the Windows 10 PC settings.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/screenshot-2024-03-22-143806.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Here, you should see an option called "Add Bluetooth or Other Device," which will automatically scan for nearby Bluetooth devices that are trying to connect. Provided both your PC and controller are enabled with Bluetooth functionality, hold down the main power button on your controller of choice and it should automatically pair.
 
 ![The Bluetooth option in Windows settings that will search for and connect to nearby devices.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/screenshot-2024-03-22-153406.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Some older games on Steam will still use Xbox button prompts regardless of which controller you use, so you may want to remember the equivalent button layout on your preferred controllers.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Reassign Your Keys Directly
 
  If you are tired of remapping the controls in every single game you play, you could [create a custom keyboard mapping](https://www.pcmag.com/how-to/remap-your-keyboard) for your PC. This allows you to change the function of your preferred keys to the controls used in PC games.
@@ -96,6 +99,13 @@ Zachary Cimaglio / How-To Geek
  From here, it's simply a matter of deciding which control scheme you would like to use and remapping your preferred keys accordingly. For instance, you might make the "I" key take on the function of the "W" key instead to favor the IKJL controls.
 
 ![The key remap screen in the PowerToys app.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/screenshot-2024-03-22-153839.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  These settings will become the default for all functions on your PC, but most apps will let you save your layouts for later use so you can switch between them when needed. I find it easier to remap the controls in every game one at a time since controls can vary across titles, but this can be useful for those who only play one or a few different games with similar controls.
 
@@ -111,8 +121,6 @@ Zachary Cimaglio / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -120,4 +128,22 @@ Zachary Cimaglio / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/n-2024-shorts-issue-fixed-now-visible-on-youtube/"><u>[New] In 2024, Shorts Issue Fixed – Now Visible on YouTube</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-transform-your-images-basic-tips-with-lunapic/"><u>[New] Transform Your Images Basic Tips with LunaPic</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-elevate-ig-stories-with-seamless-audio-integration/"><u>[Updated] Elevate IG Stories With Seamless Audio Integration</u></a></li>
+<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Samsung Galaxy A34 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/cutting-edge-vr-tools-for-drones/"><u>Cutting-Edge VR Tools for Drones</u></a></li>
+<li><a href="https://fox-links.techidaily.com/design-and-share-your-unique-humor-piece-for-2024/"><u>Design and Share Your Unique Humor Piece for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-essential-youtube-seo-techniques-for-enhanced-video-rankings/"><u>In 2024, Essential YouTube SEO Techniques for Enhanced Video Rankings</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/latest-sapphire-driver-updates-available-get-them-here/"><u>Latest Sapphire Driver Updates Available: Get Them Here!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-players-guide-activating-your-nintendo-network-profile-for-an-enhanced-3ds-experience/"><u>The Player's Guide: Activating Your Nintendo Network Profile for an Enhanced 3DS Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-syma-x5c-hovering-companion-reviewed-affordable-for-new-drone-enthusiasts/"><u>The SYMA X5C Hovering Companion Reviewed: Affordable for New Drone Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-verdict-on-lenovos-130s-constricted-processing-strength-meets-unexpectedly-easy-to-use-experience/"><u>The Verdict on Lenovo's 130S: Constricted Processing Strength Meets Unexpectedly Easy-to-Use Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-waterproof-durable-nikon-w100-guide/"><u>The Waterproof, Durable Nikon W100 Guide</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Lava Yuva 3 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-cellular-signal-amplifiers-a-comprehensive-guide/"><u>Top Rated Cellular Signal Amplifiers : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-programming-lessons-find-your-ideal-course/"><u>Top Rated Programming Lessons : Find Your Ideal Course!</u></a></li>
+</ul></div>
 

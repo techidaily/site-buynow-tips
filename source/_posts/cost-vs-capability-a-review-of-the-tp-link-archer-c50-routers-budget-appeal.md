@@ -1,7 +1,7 @@
 ---
 title: "Cost Vs. Capability: A Review of the TP-Link Archer C50 Router's Budget Appeal"
-date: 2024-09-25T17:17:14.092Z
-updated: 2024-09-26T18:26:12.949Z
+date: 2024-09-28T20:53:16.912Z
+updated: 2024-10-01T19:45:00.633Z
 categories:
   - BestProducts
 description: "This Article Describes Cost Vs. Capability: A Review of the TP-Link Archer C50 Router's Budget Appeal"
@@ -40,23 +40,9 @@ Lifewire / Jeremy Laukkonen
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## TP-Link Archer A6 AC1200 Gigabit Smart Wi-Fi Router
 
 ![TP-Link Archer A6 AC1200 Router](https://www.lifewire.com/thmb/eB886Wl9r3D8YMg227kYv9GRkJs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_HeroSquare-3758788658a244148a04b7346643557b.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -82,6 +68,13 @@ Lifewire / Jeremy Laukkonen
 
  Specifications don’t always tell the whole story, so I recently spent about five days with a TP-Link Archer A6 plugged into my own network. I tested how well it holds up under daily use with a lot of data-hungry devices connected at once, tested top speeds and range on both bands, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Improved over older designs**
 
  The Archer A6 doesn’t exactly stand out of the crowd, but it’s a definite improvement over the older C7 that I keep around for testing purposes. Instead of the flat or glossy black finish seen on most routers, the A6 has a two-tone crosshatched pattern that creates an interesting visual effect. The edges are rounded instead of angular, and the top actually curves gently downward when viewed head-on.
@@ -91,10 +84,10 @@ Lifewire / Jeremy Laukkonen
 ![TP-Link Archer A6 AC1200](https://www.lifewire.com/thmb/eeaRHW4APuNCYThw1t-TVwYpmSI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_04-4739ffd6705348959e05e41ab9da2292.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
@@ -115,6 +108,13 @@ Lifewire / Jeremy Laukkonen
 
 ![TP-Link Archer A6 AC1200](https://www.lifewire.com/thmb/2zSHbpT2Rq4Ac-0-u73213g1rlk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_02-8fd53e1cd8284fd4a40091d7896fe8db.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 ## **Connectivity: Dual-band with MU-MIMO, but lacking in physical ports**
@@ -124,6 +124,13 @@ Lifewire / Jeremy Laukkonen
  On the physical side, the A6 comes with a bare minimum single WAN port and four LAN ports. There isn’t even a single USB port, so you can’t use this router to host a networked USB drive. That isn’t completely unexpected from a budget router, but it would have been nice if it included at least one USB port.
 
  On the physical side, the A6 comes with a bare minimum single WAN port and four LAN ports. There isn’t even a single USB port, so you can’t use this router to host a networked USB drive.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Network Performance: Decent performance for a budget router**
 
@@ -141,13 +148,6 @@ Lifewire / Jeremy Laukkonen
 
  You may end up needing a Wi-Fi range extender with the Archer A6 even if your house isn’t that large.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software: Basic and easy to use**
 
  The Archer A6 uses the same familiar web interface TP-Link has used for years. If you’ve ever used a TP-Link router before, you’ll already be familiar with the system. If you haven’t, it’s very easy to pick up.
@@ -162,14 +162,20 @@ Lifewire / Jeremy Laukkonen
 
 ![TP-Link Archer A6 AC1200](https://www.lifewire.com/thmb/2qgk2j764OivVDjAgICPpQb-Xig=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_03-7abb56dd933947dc892f8ec43ef36863.jpg)
 
- Lifewire / Jeremy Laukkonen
-
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Jeremy Laukkonen
 
 ## **Price: Good price for the features**
 
@@ -225,22 +231,22 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-top-5-ios-apps-for-seamless-psp-gaming-experience/"><u>[New] In 2024, Top 5 iOS Apps For Seamless PSP Gaming Experience</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-sharpen-aesthetic-focus-learning-border-techniques-for-insta-videos-for-2024/"><u>[New] Sharpen Aesthetic Focus Learning Border Techniques for Insta-Videos for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-strategic-cloud-cost-management-best-price-options/"><u>[Updated] Strategic Cloud Cost Management Best Price Options</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/cutting-edge-webcam-utilization-at-home-for-2024/"><u>Cutting-Edge Webcam Utilization at Home for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/expert-tips-for-high-quality-video-resizing-techniques-that-preserve-original-excellence-watermark-free/"><u>Expert Tips for High-Quality Video Resizing Techniques That Preserve Original Excellence [Watermark-Free]</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-can-i-remove-the-apple-watch-activation-lock-by-iphone-13-mini-without-the-previous-owner-by-drfone-ios/"><u>In 2024, Can I Remove the Apple Watch Activation Lock By iPhone 13 mini without the Previous Owner?</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-step-by-step-crafting-professional-valorant-thumbnails-for-youtube/"><u>In 2024, Step-by-Step Crafting Professional Valorant Thumbnails for Youtube</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/most-effective-replacements-for-microsoft-office-software/"><u>Most Effective Replacements for Microsoft Office Software</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/navigating-through-time-an-in-depth-review-of-lgs-traditional-smartwatch-lineup-powered-by-wear-os-20/"><u>Navigating Through Time: An In-Depth Review of LG's Traditional Smartwatch Lineup Powered by Wear OS 2.0</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/nook-glowlight-3-by-barnes-and-noble-a-comprehensive-nighttime-ebook-reader-assessment/"><u>Nook GlowLight 3 by Barnes & Noble - A Comprehensive Nighttime eBook Reader Assessment</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ourlink-u631-tiny-usb-wi-fi-receiver-powerful-performance-in-a-small-package/"><u>Ourlink U631 Tiny USB Wi-Fi Receiver: Powerful Performance in a Small Package</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/samsung-cf591-review-a-viable-gaming-monitor/"><u>Samsung CF591 Review: A Viable Gaming Monitor</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/saving-space-and-spending-less-with-the-impressive-samsung-galaxy-s10e/"><u>Saving Space and Spending Less with the Impressive Samsung Galaxy S10e</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/smart-home-showdown-can-google-assistant-outperform-alexa-in-convenience-and-functionality/"><u>Smart Home Showdown: Can Google Assistant Outperform Alexa in Convenience and Functionality?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/solution-thermal-testing-using-cold-or-heat-stimuli-alongside-assessing-the-pains-quality-and-duration-can-provide-additional-clues-for-differentiating-betw93/"><u>Solution: Thermal Testing Using Cold or Heat Stimuli, Alongside Assessing the Pain's Quality and Duration, Can Provide Additional Clues for Differentiating Between Reversible and Irreversible Pulpitis.</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/streamlined-processes-transforming-mac-videos-into-snaps/"><u>Streamlined Processes Transforming Mac Videos Into Snaps</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-realme-11x-5g-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Realme 11X 5G Location | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-comprehensive-guide-to-ios-screenshotting/"><u>[New] 2024 Approved Comprehensive Guide to iOS Screenshotting</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/advanced-techniques-for-gradual-volume-change-for-2024/"><u>Advanced Techniques for Gradual Volume Change for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/deverrouiller-la-protection-contre-le-copiage-de-votre-dvd-pour-une-utilisation-sur-pc-et-mac/"><u>Déverrouiller La Protection Contre Le Copiage De Votre DVD Pour Une Utilisation Sur PC Et Mac</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/everything-you-need-to-know-about-unlocked-iphone-14-drfone-by-drfone-ios/"><u>Everything You Need To Know About Unlocked iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/gopro-spectrum-an-intensive-feature-by-feature-comparison/"><u>GoPro Spectrum An Intensive Feature-By-Feature Comparison</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-repair-windows-10-brightness-dialing-issues-successfully/"><u>How To Repair Windows 10 Brightness Dialing Issues Successfully</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-mastering-windows-pc-live-tv-recording-tips-and-tricks/"><u>In 2024, Mastering Windows PC Live TV Recording Tips & Tricks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-ps5-storage-drives-a-comprehensive-guide/"><u>Top Rated PS5 Storage Drives - A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-smart-home-controllers-the-ultimate-selection/"><u>Top Rated Smart Home Controllers : The Ultimate Selection</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-photography-gear-totes-the-ultimate-list/"><u>Top-Rated Photography Gear Totes: The Ultimate List</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-protective-covers-for-google-pixel-7-2023-edition/"><u>Top-Rated Protective Covers for Google Pixel 7 - 2023 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-the-most-efficient-usb-c-adapters-available/"><u>Ultimate Guide to the Most Efficient USB-C Adapters Available</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-premium-storage-solutions-the-leading-external-hdds/"><u>Ultimate Guide: Premium Storage Solutions – The Leading External HDDs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-list-most-effective-ergonomic-keyboards-for-optimal-typing-this-year/"><u>Ultimate List: Most Effective Ergonomic Keyboards for Optimal Typing This Year</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-ranking-leading-liquid-metal-greases-for-cpu-cooling-2024-edition/"><u>Ultimate Ranking: Leading Liquid Metal Greases for CPU Cooling - 2024 Edition</u></a></li>
+<li><a href="https://win-forum.techidaily.com/unveiling-the-powerhouse-platforms-facebook-twitter-instagram-and-youtube-for-ultimate-engagement/"><u>Unveiling the Powerhouse Platforms: Facebook, Twitter, Instagram & YouTube for Ultimate Engagement</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-to-do-if-your-apple-iphone-6s-plus-has-bad-esn-or-blacklisted-imei-by-drfone-ios/"><u>What to do if your Apple iPhone 6s Plus has bad ESN or blacklisted IMEI?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "From Clicking Keys to Comfortable Controls: A PC Gamer's Dilemma Explained"
-date: 2024-08-31T16:36:11.000Z
-updated: 2024-09-01T16:36:11.000Z
+date: 2024-09-29T17:10:11.520Z
+updated: 2024-10-01T16:58:45.611Z
 tags:
   - games
   - tv
@@ -31,6 +31,13 @@ thumbnail: https://thmb.techidaily.com/99bb08ac4320921b1ffab3e5a5166b4c117aac2cf
 
 ![Fingers in awkward position on a keyboard.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/fingers-in-awkward-position-on-a-keyboard.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ismar Hrnjicevic / How-To Geek
 
  I remember the days when my fingers could dance on the keyboard like a virtuoso pianist, pinky poised over Ctrl, thumb on the Space bar, the rest gliding effortlessly. If I try to do that now, I’ll end up with an aching pinky or a cramped forearm.
@@ -42,15 +49,16 @@ Ismar Hrnjicevic / How-To Geek
  Controllers offer a more ergonomic alternative. Your fingers wrap naturally around them, moving freely, especially the [Xbox Elite controllers](https://youtube-clips.techidaily.com/the-rise-and-challenges-of-video-streaming-profits/) and their [game-changing back buttons](https://some-skills.techidaily.com/the-best-ai-naming-assistants-for-podcast-innovation-for-2024/).
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 2  Controllers Are Better for My Preferred Game Genres 
 
 ![A collage of hypothetical 3rd person ARPG games.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/a-collage-of-hypothetical-3rd-person-arpg-games.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Dibakar Ghosh / How-To Geek | Midjourney
 
  Keyboard and mouse are the go-to for FPS and RTS enthusiasts, but those aren't my jam. I'm more into action RPGs, 2D and 3D platformers, _EA Sports FC_, and twin-stick shooters. For these genres, I find a gamepad is often the superior choice.
@@ -67,9 +75,6 @@ Dibakar Ghosh / How-To Geek | Midjourney
 
  If you're interested in emulation, there are various [gamepads better suited for different types of emulated systems](https://apple-account.techidaily.com/how-to-fix-apple-id-verification-code-not-working-from-iphone-12-pro-by-drfone-ios/). That said, most emulators allow you to remap buttons, so you can adapt a single gamepad to mimic different controller layouts.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4  A Lack of Vibration Feedback 
 
  Let's talk about something that keyboard and mouse setups sorely lack: [vibration feedback](https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/). If your keyboard or mouse is vibrating, you might want to get that checked out. And if it's battery-powered and vibrating, maybe step away slowly—we don't want any surprise fireworks!
@@ -81,11 +86,22 @@ Dibakar Ghosh / How-To Geek | Midjourney
  This is to say nothing of the modern haptic feedback seen on the PS5 DualSense controller with its adaptive triggers, and the rumble feedback that Xbox Core controllers feature in the triggers.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5  Not Ideal for Local Co-op or PvP 
 
 ![illustration of two people awkwardly trying to share a single keyboard and mouse setup for gaming.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/illustration-of-two-people-awkwardly-trying-to-share-a-single-keyboard-and-mouse-setup-for-gaming.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Dibakar Ghosh / How-To Geek | Midjourney
 
@@ -96,6 +112,13 @@ Dibakar Ghosh / How-To Geek | Midjourney
  Then there's the logistical nightmare. If I'm on a keyboard and mouse, I need to be right in front of my PC. So where does my friend sit? Beside me, they're looking at the screen at an awkward angle. Behind me, they're basically watching the back of my head instead of the game. Granted, I have great hair, but that’s not the point.
 
  I've experienced this first-hand with _EA Sports FC 24_, my current go-to game for local multiplayer. But it translates to other titles like _Street Fighter_, _It Takes Two_, or _Overcooked_. Trust me, you don't want to play _Overcooked_ with one person on a gamepad and another fumbling with a keyboard.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6  I’m Tied to My Desk 
 
@@ -113,16 +136,10 @@ Dibakar Ghosh / How-To Geek | Midjourney
 
  By associating gaming with a gamepad and keeping it out of sight during work hours, I created just enough friction to resist sneaking into quick gaming sessions when work got challenging. I established a clear boundary: work mode is a keyboard and mouse, and play mode is a gamepad. It's simple, effective, and [keeps me disciplined](https://extra-information.techidaily.com/the-insiders-guide-to-captivating-youtube-headlines/).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 8  Because I Love My Keyboard and Mouse 
 
 ![Image of Keyboard and Mouse of a Deskpad.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/image-of-keyboard-and-mouse-of-a-deskpad.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ismar Hrnjicevic / How-To Geek  
 
  This is not as contradictory as it sounds. I cherish my keyboard and mouse for work, which is precisely why I avoid using them for gaming. They're essential tools for my livelihood, and I'd rather keep them safe from the rigors of intense gaming sessions.
@@ -151,8 +168,6 @@ Ismar Hrnjicevic / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -160,4 +175,22 @@ Ismar Hrnjicevic / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-virtual-escapades-with-top-samsung-gear-vr-games/"><u>[New] In 2024, Virtual Escapades with Top Samsung Gear VR Games</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-elevate-your-filmmaking-top-strategies-for-gopro-timelapses/"><u>2024 Approved Elevate Your Filmmaking Top Strategies for GoPro Timelapses</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-features-and-changes-in-the-latest-samsung-galaxy-s21-model-industry-experts-weigh-in/"><u>Exploring the Features and Changes in the Latest Samsung Galaxy S21 Model - Industry Experts Weigh In</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-google-nest-hubs-second-generation-why-no-cameras-and-other-insights/"><u>Exploring the Google Nest Hub's Second Generation: Why No Cameras and Other Insights.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-remarkable-quests-of-yokus-island-express-an-insightful-review/"><u>Exploring the Remarkable Quests of Yoku’s Island Express: An Insightful Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fintie-vs-competitors-unmatched-durability-and-value-in-macbook-pro-n13-cases/"><u>Fintie vs Competitors: Unmatched Durability and Value in MacBook Pro N13 Cases</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/free-raw-photo-processing-for-macoslinux-discover-darktables-full-potential/"><u>Free Raw Photo Processing for macOS/Linux: Discover Darktable's Full Potential!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/gamers-guide-to-razer-portal-top-wi-fi-headset-unveiled/"><u>Gamer's Guide to Razer Portal: Top Wi-Fi Headset Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/get-up-close-with-the-cycwagen-cargo-e-bike-an-in-depth-experience-report/"><u>Get Up Close with the CycWagen Cargo E-Bike: An In-Depth Experience Report</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-google-pixel-8-pro-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Google Pixel 8 Pro to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-vivo-y78plus-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Vivo Y78+ to New Phone | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-motorola-moto-g-stylus-2023-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Motorola Moto G Stylus (2023)?</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-cubic-cottages-for-newcomers-to-mc-world/"><u>In 2024, Cubic Cottages for Newcomers to MC World</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-top-5-xiaomi-redmi-12-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Xiaomi Redmi 12 Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-the-art-of-incremental-volume-decrease-with-lumafusion-for-2024/"><u>Mastering the Art of Incremental Volume Decrease with Lumafusion for 2024</u></a></li>
+</ul></div>
 

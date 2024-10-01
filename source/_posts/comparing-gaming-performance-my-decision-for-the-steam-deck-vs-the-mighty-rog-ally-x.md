@@ -1,7 +1,7 @@
 ---
 title: "Comparing Gaming Performance: My Decision for the Steam Deck Vs. The Mighty Rog Ally X"
-date: 2024-08-31T16:36:59.067Z
-updated: 2024-09-01T16:36:59.067Z
+date: 2024-09-27T17:52:31.107Z
+updated: 2024-10-01T20:33:39.001Z
 tags:
   - games
   - tv
@@ -35,9 +35,6 @@ Goran Damnjanovic / How-To Geek
 
  In other words, ASUS appeared to be skirting the line when it came to RMAs to make it harder for consumers to send back defective hardware for repair or replacement, something which Valve seems much more willing to do.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ##  The Steam Deck is More Cost-Effective
 
  The Steam Deck might be the less powerful system, but the trade-off is that it is built from cheaper parts, which makes it more affordable in the long run compared to the Ally X. It will still run most current games in the Steam library, but comes at a much lower entry point depending on the model. The Steam Deck starts at $600 for the premium 512GB OLED model versus the $800 base version of the Ally X.
@@ -45,21 +42,29 @@ Goran Damnjanovic / How-To Geek
  With the Steam Deck, you'll save money right out of the gate, giving you more to spend on games and accessories like a dock to play it on a monitor or TV. There are also multiple options with different price ranges, with the cheapest being the LCD model with 256GB of storage at only $400.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  I Love the Steam Deck's Trackpads
 
  While the Ally X might be the more powerful system in terms of hardware, it does miss out on a few useful features that the Steam Deck has to offer. The most obvious of these are the trackpads.
 
 ![The right side of the Steam Deck OLED model with the trackpad underneath the joystick.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/pxl_20240625_190936982.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Zachary Cimaglio / How-To Geek
 
  These simulate the function of using a mouse and make it more convenient to navigate certain UI elements or aim in-game weapons with a little more precision than a joystick would offer. They're great for strategy titles or mouse-heavy games like _Papers, Please_ and _Return to Monkey Island_. They also make navigating the desktop UI with a pointer far more pleasant.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ##  Linux is More Reliable
 
  Another issue that kept coming up during my research was the [problems Ally owners have had with Windows 11](https://youtube-webster.techidaily.com/cially-flourishing-online-media-personality/), which is not built specifically for the platform and is prone to bugs and crashes thanks to mandatory software updates.
@@ -68,10 +73,6 @@ Zachary Cimaglio / How-To Geek
 
  While navigating file folders and external software on the Steam Deck has a little more of a learning curve, you can soon [get up to speed with the Linux directory structure](https://instagram-clips.techidaily.com/crafting-captivating-ig-stories-with-youtube-content-for-2024/). SteamOS, which uses Linux as its base, is made specifically for the Steam Deck. ASUS relies on software like Armory Crate to better adapt the Windows UI to its handheld form factor.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ##  Controls Feel More Intuitive
 
  With the trackpads and four extra buttons on the back, the Steam Deck's controls feel surprisingly intuitive for just how big it is compared to a traditional controller. The triggers and shoulder buttons are easier to reach and the joysticks are positioned parallel to one another as opposed to the Ally X's diagonal orientation, something which I have always preferred even for console controllers.
@@ -79,8 +80,12 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 ![Asus ROG Ally and Steam Deck being held in hands.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/12/2023-12-08-14-23-57.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Bill Logudice / How-To Geek
 
 Asus ROG Ally Z1 Extreme (left) versus Steam Deck 512GB LCD (right)
@@ -90,8 +95,12 @@ Asus ROG Ally Z1 Extreme (left) versus Steam Deck 512GB LCD (right)
  You can rebind controls on the ROG Ally too, but you'll need to use ASUS' software to do it.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  OLED is the New Standard
 
  One of the biggest advantages the Steam Deck has over many of its competitors, including the Ally X, is its brightly lit OLED screen. This has quickly become the new standard for handhelds with its 90Hz refresh rate and HDR support. With higher refresh rates, capping out at 90hz as opposed to the original 60hz in the LCD model, the Steam Deck OLED enjoys higher graphical fidelity and performance in certain instances.
@@ -110,8 +119,6 @@ Asus ROG Ally Z1 Extreme (left) versus Steam Deck 512GB LCD (right)
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -119,4 +126,26 @@ Asus ROG Ally Z1 Extreme (left) versus Steam Deck 512GB LCD (right)
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-tips.techidaily.com/efficient-radar-alertness-top-budget-friendly-options-with-extended-monitoring-as-per-our-s55-examination/"><u>'Efficient Radar Alertness': Top Budget-Friendly Options with Extended Monitoring, As Per Our S55 Examination</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-enhance-audio-visual-fidelity-use-av1-on-youtube/"><u>[New] Enhance Audio-Visual Fidelity Use AV1 on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-your-content-in-depth-guide-to-youtube-video-edits/"><u>[New] In 2024, Elevate Your Content In-Depth Guide to YouTube Video Edits</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-top-15-ae-title-tricks-for-dynamic-content-headers/"><u>[New] In 2024, Top 15 AE Title Tricks for Dynamic Content Headers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-enjoy-a-stream-of-nine-complete-christmas-capsules-on-youtube-for-2024/"><u>[Updated] Enjoy a Stream of Nine Complete Christmas Capsules on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-ultimate-guide-to-beauty-channels-your-step-by-step-blueprint/"><u>[Updated] In 2024, The Ultimate Guide to Beauty Channels Your Step-By-Step Blueprint</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/1-top-4-free-dvd-ripper-applications-for-macos-catalina-x8664-and-x86/"><u>1. Top 4 Free DVD Ripper Applications for macOS Catalina (X86_64 & X86)</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-maximizing-performance-with-pro-windows-10-skills/"><u>2024 Approved Maximizing Performance with Pro Windows 10 Skills</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024-ultimate-buyers-guide-to-premium-flash-drives/"><u>2024 Ultimate Buyer's Guide to Premium Flash Drives</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/choreographed-battle-top-5-martial-arts-video-game-list/"><u>Choreographed Battle Top 5 Martial Arts Video Game List</u></a></li>
+<li><a href="https://win-able.techidaily.com/excel-pro-tip-harnessing-the-power-of-the-watch-window-to-monitor-your-formulas-efficiently/"><u>Excel Pro Tip: Harnessing the Power of the Watch Window to Monitor Your Formulas Efficiently</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-maximizing-your-tv-signal-with-the-1byone-digital-indoor-antenna-on-a-budget/"><u>Expert Review: Maximizing Your TV Signal with the 1Byone Digital Indoor Antenna on a Budget</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/next-level-video-streaming-experience-explored-in-our-comprehensive-amazon-fire-tv-cube-evaluation/"><u>Next-Level Video Streaming Experience Explored in Our Comprehensive Amazon Fire TV Cube Evaluation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/steam-deck-revolutionizing-handheld-pc-gaming/"><u>Steam Deck: Revolutionizing Handheld PC Gaming?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-reliable-and-swift-motorola-mg7700-smartphone-reviewed/"><u>The Reliable and Swift Motorola MG7700 Smartphone Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-comparison-of-1byone-hdtv-antennas-enhanced-digital-reception-at-affordable-prices/"><u>The Ultimate Comparison of 1byOne HDTV Antennas: Enhanced Digital Reception at Affordable Prices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-linksys-wrt3200acm-wifi-router-analysis-the-ultimate-choice-for-open-source-enthusiasts/"><u>Top-Rated Linksys WRT3200ACM WiFi Router Analysis: The Ultimate Choice for Open Source Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-benefits-of-d-links-powerline-networking-swift-configuration-and-rapid-throughput/"><u>Unveiling the Benefits of D-Link's Powerline Networking - Swift Configuration & Rapid Throughput</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/xiaomi-g34wqi-gaming-monitor-ultimate-value-in-depth-analysis-of-34-screen-180hz-refresh-rate-with-stunning-colors-and-contrast/"><u>Xiaomi G34WQi Gaming Monitor - Ultimate Value: In-Depth Analysis of 34 Screen, 180Hz Refresh Rate with Stunning Colors & Contrast</u></a></li>
+</ul></div>
 

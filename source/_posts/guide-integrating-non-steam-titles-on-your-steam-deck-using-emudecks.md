@@ -1,7 +1,7 @@
 ---
 title: "Guide: Integrating Non-Steam Titles on Your Steam Deck Using EmuDecks"
-date: 2024-08-31T16:36:12.221Z
-updated: 2024-09-01T16:36:12.221Z
+date: 2024-09-30T16:43:59.501Z
+updated: 2024-10-01T19:28:19.216Z
 tags:
   - games
   - tv
@@ -27,9 +27,6 @@ thumbnail: https://thmb.techidaily.com/5c0c9eb8f56df5fe4db5872765fea7c0cdfb1d4cf
 
 ![The "Collections" tab on the Steam Deck Library with emulated games added.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/download-3.jfif) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ##  What Can You Run With EmuDeck?
 
  On a Steam Deck, EmuDeck can reliably run almost everything from the earliest home consoles to the PS2 and Wii with few problems in terms of performance. It can run some Wii U games and Switch titles too, but performance largely depends on the game. Emulating these systems is more complicated and taxing on the hardware.
@@ -47,8 +44,12 @@ thumbnail: https://thmb.techidaily.com/5c0c9eb8f56df5fe4db5872765fea7c0cdfb1d4cf
  You do have some control over which emulators are installed, however. I'd recommend only choosing the ones designed for the platforms that you actually want to use, since there are lots of options. Adding more emulators at a later date is as simple as opening up the EmuDeck app in Desktop Mode and selecting the ones that you're missing. It's easy!
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Before Getting Started With EmuDeck
 
  The requirements for running EmuDeck are pretty minimal, as you can technically do everything with just the handheld, but this would not be ideal. I'd recommend getting a [USB-C flash drive to move files from a PC to the system](https://buynow-marvelous.techidaily.com/top-insights-from-experts-unveiling-the-benefits-of-using-the-fitbit-charge-6-user-testimonials-and-opinions/), since downloading things on the Deck directly can be cumbersome.
@@ -62,8 +63,12 @@ thumbnail: https://thmb.techidaily.com/5c0c9eb8f56df5fe4db5872765fea7c0cdfb1d4cf
  Confirm that you want to run it and the installer will download the necessary files, and then install. From here you can follow the on-screen instructions to configure EmuDeck to your liking.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Adding Emulated Games to Your Steam Library
 
  My favorite EmuDeck feature is the ability to add emulated games directly to the Steam Library, complete with their respective box art. This means that instead of opening up an emulator manually and loading ROMs or ISO files, you can boot into games directly from your library like you would any other game.
@@ -78,32 +83,41 @@ thumbnail: https://thmb.techidaily.com/5c0c9eb8f56df5fe4db5872765fea7c0cdfb1d4cf
 
 ![Various game files inside the "PS2" ROMs folder in Emudeck.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/files3.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
  I recommend using an external mouse and keyboard to navigate Desktop Mode while moving files around, as the touch screen controls can make this process a little cumbersome.
 
  Once this is complete, open the EmuDeck app in Desktop mode and select "Steam ROM Manager." Click "Yes" if a pop-up window appears and it will bring you to the "Parsers" window where you can select which emulators you want to add to your Steam library, which I'd recommend so you can easily change settings later on.
 
 ![The ROM Manager application in Emudeck](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/rom-manager.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Click the "Add Games" button in the bottom left corner to see a list of all the games you've added as long as you put them in the right folder.
 
 ![The Parsers menu in Emudeck](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/parsers2.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
  Once you have selected all of your desired games, select "Save to Steam" and the program should automatically parse all your installed games directly to your Steam library.
 
 ![The Emudeck ROM manager adding games to Steam](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/rom-manager-2.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Multiplayer, Quality of Life Features, and Easy Expansion
 
  Now that you've added your games and verified that they all appear in your library, you can start doing some retro gaming. Playing them handheld might already be a nice perk as it is, but [with a dock and a Bluetooth controller](https://techidaily.com/will-moto-g-5g-2023-play-avchd-mts-files-by-aiseesoft-video-converter-play-mts-on-android/) (or several) you can even simulate playing on the real thing.
@@ -117,6 +131,13 @@ Shutterstock/REDPIXEL.PL
  Save states are also a given, since emulators usually allow them by default. EmuDeck goes the extra mile and creates button mappings to save and load state automatically. You can set a custom keybinding to save or load states. switch between files. and cut out load times or unskippable cutscenes.
 
  EmuDeck is also easy to expand and adding new games is as simple as dropping the files into the proper emulation folder and letting the program do the rest for you. You can add new emulators and update current ones automatically through the EmuDeck application in Desktop Mode without much hassle with just an internet connection.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  Add Retro Achievement Support (Optional)
 
@@ -138,8 +159,6 @@ Shutterstock/REDPIXEL.PL
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -147,4 +166,23 @@ Shutterstock/REDPIXEL.PL
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-analyzing-youtubes-process-for-selective-comment-showcasing/"><u>[New] 2024 Approved Analyzing YouTube's Process for Selective Comment Showcasing</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/uperior-sound-transformation-gear-for-online-vloggers-for-2024/"><u>[New] Superior Sound Transformation Gear for Online Vloggers for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-internet-companion-fb-story-backup-tool/"><u>2024 Approved Internet Companion FB Story Backup Tool</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/7-ways-to-unlock-a-locked-motorola-edge-40-pro-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Motorola Edge 40 Pro Phone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/getting-more-bang-for-your-buck-in-depth-look-at-the-caixun-4k-android-tv-75-inches/"><u>Getting More Bang for Your Buck? In-Depth Look at the Caixun 4K Android TV (75 Inches)</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-90-pro-phone-without-google-account-by-drfone-android/"><u>How to Unlock Honor 90 Pro Phone without Google Account?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-6s-with-a-mask-on-by-drfone-ios/"><u>How to Unlock iPhone 6s with a Mask On</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Honor Magic 6 Lite? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-huawei-p20-pro-exceptional-photography-meets-quality-smartphone/"><u>In-Depth Analysis of Huawei P20 Pro: Exceptional Photography Meets Quality Smartphone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-netgear-nighthawk-rax120-unmatched-speed-and-performance/"><u>In-Depth Analysis of the Netgear Nighthawk RAX120 - Unmatched Speed and Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-of-microsofts-outlook-vs-googles-gmail-in-email-services/"><u>In-Depth Evaluation of Microsoft's Outlook vs Google's Gmail in Email Services</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-yokus-island-express-exploring-unconventerous-pathways/"><u>In-Depth Review of Yoku's Island Express: Exploring Unconventerous Pathways</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ion-tailgater-plus-review-experience-continuous-high-bass-music-with-easy-one-touch-controls/"><u>ION Tailgater Plus Review: Experience Continuous High-Bass Music with Easy One-Touch Controls</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-nokia-c12-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Nokia C12? Fixed | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-cable-modem-and-wireless-router-bundles-of-2024-a-comparative-review/"><u>Leading Cable Modem and Wireless Router Bundles of 2024: A Comparative Review</u></a></li>
+<li><a href="https://win-dash.techidaily.com/mastering-the-setup-how-to-get-the-arduino-nano-drivers-running-smoothly-in-windows/"><u>Mastering the Setup: How To Get The Arduino Nano Drivers Running Smoothly In Windows</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Holy Stone HS170 Predator Mini RC Helicopter Drone Review: A Drone on a Budget"
-date: 2024-09-21T16:31:47.474Z
-updated: 2024-09-26T16:04:31.741Z
+date: 2024-09-26T17:14:51.737Z
+updated: 2024-10-01T18:36:31.691Z
 categories:
   - BestProducts
 description: "This Article Describes Holy Stone HS170 Predator Mini RC Helicopter Drone Review: A Drone on a Budget"
@@ -37,16 +37,16 @@ Lifewire / Bill Thomas
 
 3
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Netgear C3000 Cable Modem Router
 
 ![Netgear C3000](https://www.lifewire.com/thmb/Ga2OrNlpcgoBAByp_iB08VrN5h0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-4_1-3b77a598c3cd4836b8b632578b3b437e.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Bill Thomas
 
@@ -82,16 +82,16 @@ Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/vcoYESWM5JJLo3l3KiPZd0A4uEU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_4-b3293ad0ed2b4bffb51f8e5f71f1914d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/_9ERrc4mSXFjpZAVMAwwqbfpLwM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_3-2f5e1e38512d41019430d063e63b7f9b.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
@@ -101,38 +101,11 @@ Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/7eGgp_5LZf8d-PMDe578GB4_hEI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_5-7c5c666203504b9ab932de0b70f14522.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Bill Thomas
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Setup Process: Exceptionally easy
 
  Setting up a cable modem can be a complicated and time consuming process. Not so with the Netgear C3000—when we set it up it was almost plug-and-play. It could be because this modem isn’t the most complex piece of hardware, but it was ready for activation_seconds_ after we plugged it in. We connected via ethernet, launched a browser and within minutes we activated our 250 Mbps Xfinity service. We’re not sure if our experience was a fluke, but we were pleasantly surprised.
-
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Connectivity: Pretty limited
 
@@ -142,14 +115,14 @@ Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/vmrfrWyvGROwVpR7Y2UQmaZOPEU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_6-e34bd6e4000f49c3b6a0d1653d23f6ff.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Bill Thomas
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Network Performance: Keep your expectations low
 
@@ -159,6 +132,13 @@ Lifewire / Bill Thomas
 
  There is a silver lining: the wired performance is reliable. When connected this way, we consistently got our rated 250 Mbps speeds with little to no drops. We spent some time playing The Division 2 while hardwired into the Netgear C3000 and didn’t run into any lag. That’s surprising given that a 8x4 DOCSIS 3.0 modem is capable of just 343 Mbps download speeds. But Netgear delivered where it truly counts: modem performance.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Software: Pretty standard and easy to use
 
  The Netgear C3000 uses the same Genie backend that many of its networking products use. It’s a simple backend that’s easy to understand, laid out as a series of six tiles that will show you the status of your network at a glance. Connected devices, online status, even your network SSID are all displayed prominently. You can click any of these tiles to change their accompanying settings.
@@ -167,6 +147,13 @@ Lifewire / Bill Thomas
 
  There’s also a Netgear Genie mobile app on both Google Play and the App Store. The app gives you the same controls as the management portal, but with a much more user-friendly interface. This is what we’d recommend most people use to[manage their network](https://www.lifewire.com/how-to-set-up-your-home-wi-fi-network-2378223) .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: Expensive for what it is
 
  The Netgear C3000 cable modem will set you back a whopping $94.99 at retail. Considering that you can get a 8x4 DOCSIS 3.0 cable modem for around $50 and an N300 wireless router for less than $20, it’s not exactly the best deal out there.
@@ -174,6 +161,13 @@ Lifewire / Bill Thomas
  If you can find it refurbished—and you’re comfortable buying a refurbished modem—that might bring it down to a better price point. At the time of this writing, we were able to find refurbished models for around $49, which puts it in the same ballpark as a comparable standalone modem.
 
  Unless you’re dead-set on buying an all-in-one device, buying a separate modem and router is going to be the more economical option.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Netgear C3000 vs. TP-Link TC-W7960S
 
@@ -224,20 +218,15 @@ Lifewire / Bill Thomas
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-exploring-youtubes-regular-pay-structure/"><u>[New] 2024 Approved Exploring YouTube’s Regular Pay Structure</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-pioneering-giants-in-vr-development/"><u>[New] In 2024, Pioneering Giants in VR Development</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-how-to-stream-google-meet-to-youtube-step-by-step-guide-for-2024/"><u>[Updated] How To Stream Google Meet to YouTube [Step-by-Step Guide] for 2024</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/book-lovers-guide-to-portable-e-readers-unveiling-the-kobo-clara-hd/"><u>Book Lovers' Guide to Portable E-Readers: Unveiling the Kobo Clara HD</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Poco F5 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/from-tape-to-trending-seamless-mp3-to-youtube-transition-for-2024/"><u>From Tape to Trending Seamless MP3 to YouTube Transition for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/hear-thy-villain-addressing-audio-problems-within-evil-genius-2-playthrough/"><u>Hear Thy Villain: Addressing Audio Problems Within 'Evil Genius 2' Playthrough</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-nokia-c02-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Nokia C02? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/inside-the-ultra-rapid-transmission-a-detailed-look-at-extollos-lansocket-1500-featuring-unmatched-velocity-and-efficiency/"><u>Inside the Ultra-Rapid Transmission: A Detailed Look at Extollo's LANSocket 1500 Featuring Unmatched Velocity and Efficiency</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/kootek-laptop-cooling-pad-review/"><u>Kootek Laptop Cooling Pad Review</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/mac-video-editing-made-easy-a-yosemite-users-handbook-for-2024/"><u>Mac Video Editing Made Easy A Yosemite Users Handbook for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-home-networks-with-eero-pro-mesh-system-review-seamless-wi-fi-everywhere/"><u>Mastering Home Networks with Eero Pro Mesh System Review: Seamless Wi-Fi Everywhere</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/minecraft-game-walkthrough-and-evaluation-for-all-skill-levels/"><u>Minecraft Game Walkthrough and Evaluation for All Skill Levels</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/motorola-edgeplus-reviewed-fails-to-reach-apex-of-mobile-excellence/"><u>Motorola Edge+ Reviewed: Fails to Reach Apex of Mobile Excellence</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/navigating-the-best-parental-control-routers-available-this-year/"><u>Navigating the Best Parental Control Routers Available This Year</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-maximize-engagement-discover-the-right-youtube-thumbnail-size/"><u>[New] 2024 Approved Maximize Engagement Discover the Right YouTube Thumbnail Size</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-enhancing-instagram-visibility-with-powerful-promotions/"><u>[New] Enhancing Instagram Visibility with Powerful Promotions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ditch-costly-reimaginations-create-personalized-editions-using-game-mods/"><u>Ditch Costly Reimaginations: Create Personalized Editions Using Game Mods</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/diy-repair-correcting-joystick-drift-in-playstation-5-controllers-with-easy-fixes/"><u>DIY Repair: Correcting Joystick Drift in PlayStation 5 Controllers with Easy Fixes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/effortless-navigation-on-google-tv-learn-how-to-establish-connection-unlink-devices-and-refresh-settings-with-ease/"><u>Effortless Navigation on Google TV: Learn How to Establish Connection, Unlink Devices & Refresh Settings with Ease!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/eliminate-stick-drift-problems-on-your-steam-deck-with-these-simple-solutions/"><u>Eliminate Stick Drift Problems on Your Steam Deck with These Simple Solutions</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/enhancing-development-workflows-innovative-uses-of-chatgpt-and-vs-code/"><u>Enhancing Development Workflows: Innovative Uses of ChatGPT & VS Code</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-vivo-y56-5g-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Vivo Y56 5G To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/navigate-the-best-online-education-resources-with-our-expert-picks-for-top-notch-course-platforms/"><u>Navigate the Best Online Education Resources with Our Expert Picks for Top-Notch Course Platforms</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/step-by-step-enablingdisabling-picture-in-picture/"><u>Step by Step Enabling/Disabling Picture-in-Picture</u></a></li>
 </ul></div>
 

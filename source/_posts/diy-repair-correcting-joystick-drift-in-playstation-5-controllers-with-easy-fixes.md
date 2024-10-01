@@ -1,7 +1,7 @@
 ---
 title: "DIY Repair: Correcting Joystick Drift in PlayStation 5 Controllers with Easy Fixes"
-date: 2024-08-31T16:37:03.262Z
-updated: 2024-09-01T16:37:03.262Z
+date: 2024-09-24T16:21:02.129Z
+updated: 2024-10-01T20:39:35.401Z
 tags:
   - games
   - tv
@@ -32,8 +32,12 @@ thumbnail: https://thmb.techidaily.com/a48de872a6c6993681d46785e55907dbe1a82ff0e
  Once stick drift starts, the problem is unlikely to go away on its own. The problem is likely to only get worse and worse until you decide to do something about it. [Hall Effect joysticks](https://youtube-blog.techidaily.com/esthetic-alignment-for-online-glamour-content-for-2024/) use magnets which makes them far more resilient to stick drift.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Adjust Dead Zones and Sensitivity
 
  The dead zone refers to the distance you can move a controller before movement is registered. The larger the dead zone, the more you’ll need to move the stick before seeing the result on screen. A larger dead zone can help mask stick drift by essentially ignoring small unwanted inputs.
@@ -45,8 +49,12 @@ thumbnail: https://thmb.techidaily.com/a48de872a6c6993681d46785e55907dbe1a82ff0e
 ![DualSense controller dead zone settings in Death Stranding: Director's Cut.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/death_stranding_dead_zone.JPG) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  If you have a [DualSense Edge controller](https://unlock-android.techidaily.com/full-guide-to-unlock-your-google-pixel-8-by-drfone-android/), you’re in luck. You can adjust the dead zone settings by creating and using a custom profile. To do this, turn on your PS5 and head to Settings > Accessories > DualSense Edge Wireless Controller > Custom Profiles. Use the “Create Custom Profile” option followed by the “Stick Sensitivity/Deadzone” setting to effectively “trim” the stick drift.
 
  Once you’ve increased the dead zone your controller will feel less precise and you may feel like you have less fine control over in-game actions. It’s probably better to have a controller that feels less precise than one that exhibits stick drift.
@@ -54,9 +62,12 @@ thumbnail: https://thmb.techidaily.com/a48de872a6c6993681d46785e55907dbe1a82ff0e
  You may also have success by adjusting the stick sensitivity settings within whatever game it is you’re playing. This won’t eliminate drift, but it will make it less noticeable. Unfortunately, it will also make things feel more sluggish across the board.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  File a Warranty Claim
 
  If your controllers are still covered by warranty, stop reading right now and file a warranty claim with Sony or whichever retailer you purchased them from. Even though sticks are likely to drift eventually, they shouldn’t start exhibiting this problem within the warranty period (usually a year). You should get a good few years out of your controller, even with heavy use.
@@ -71,9 +82,6 @@ thumbnail: https://thmb.techidaily.com/a48de872a6c6993681d46785e55907dbe1a82ff0e
 
 ![Things you'll need to clean a DualSense controller analog stick.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/iso_dual_sense.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 Tim Brookes / How-To Geek
 
  Alcohol is great at loosening grime and it has the bonus of evaporating quickly. This makes it relatively safe for use on electronics and means that you don’t need to worry about “drying” the controller out afterward. That said, there are some precautions to take when going this route.
@@ -89,8 +97,12 @@ Tim Brookes / How-To Geek
  Essentially, you’re working the grease and grime loose using the alcohol as a cleaning solvent. It’s worth repeating this method until you’re happy that you’ve done all you can and that more alcohol won’t necessarily help.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Replace Faulty Analog Sticks
 
  One thing that will resolve your stick drift issue is replacing the faulty stick. Depending on which DualSense controller you have, this could take anywhere from a few minutes to over an hour.
@@ -103,9 +115,6 @@ Tim Brookes / How-To Geek
 
  The silver lining is that the parts aren’t that expensive, so if the alternative is to simply recycle your old controller then you might want to give it a shot. Who knows, maybe you’re a soldering pro?
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  Get Someone to Fix It for You
 
  Do you know someone with soldering skills and a penchant for fixing technology? Now might be the time to buddy up to them, and if you follow along you might be able to learn something along the way.
@@ -120,8 +129,6 @@ Tim Brookes / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -129,4 +136,26 @@ Tim Brookes / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-mastering-whatsapps-call-conversation-strategy/"><u>[Updated] 2024 Approved Mastering WhatsApp's Call Conversation Strategy</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/citing-ai-tools-correctly-the-step-by-step-process-for-mentioning-chatgpt/"><u>Citing AI Tools Correctly: The Step-by-Step Process for Mentioning ChatGPT</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-the-fujitsn-scansnap-ix1600-top-tier-document-scanner/"><u>Comprehensive Analysis of the Fujitsn ScanSnap iX1600 - Top-Tier Document Scanner</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decoding-the-apple-m4-chip-when-it-hits-shelves-how-it-works-and-its-capabilities/"><u>Decoding the Apple M4 Chip: When It Hits Shelves, How It Works, and Its Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/dive-into-visual-and-auditory-brilliance-with-the-newly-tested-huawei-mediapad-m5/"><u>Dive Into Visual and Auditory Brilliance with the Newly Tested Huawei MediaPad M5</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-advantages-and-disadvantages-of-using-webex-for-virtual-conferences/"><u>Evaluating the Advantages & Disadvantages of Using Webex for Virtual Conferences</u></a></li>
+<li><a href="https://windows11.techidaily.com/festive-features-for-a-windows-11-christmas-spread/"><u>Festive Features for a Windows 11 Christmas Spread</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-call-of-duty-wwii-display-problems-complete-guide-for-windows-users/"><u>Fixing Call of Duty: WWII Display Problems - Complete Guide for Windows Users</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-does-pope-francis-communicate-in-the-digital-age-is-email-part-of-his-routine/"><u>How Does Pope Francis Communicate in the Digital Age: Is Email Part of His Routine?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/huaweis-mediapad-m5-an-in-depth-look-at-a-tablet-designed-with-visual-and-audio-excellence/"><u>Huawei's MediaPad M5: An In-Depth Look at a Tablet Designed with Visual & Audio Excellence</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-mastering-social-media-marketing-essential-24-trend-alerts/"><u>In 2024, Mastering Social Media Marketing Essential '24 Trend Alerts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/kindleoasisreview-a-deep-dive-into-the-ultimate-2019-reading-experience/"><u>KindleOasis_Review: A Deep Dive Into the Ultimate 2019 Reading Experience</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/leading-software-options-for-recovering-deleted-contacts-from-iphone/"><u>Leading Software Options for Recovering Deleted Contacts From iPhone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maneuvering-the-skies-on-a-shoestring-budget-holy-stone-predator-mini-rc-helicopter-evaluation/"><u>Maneuvering the Skies on a Shoestring Budget: Holy Stone Predator Mini RC Helicopter Evaluation</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/secrets-revealed-the-best-youtube-thumbnails-for-virality/"><u>Secrets Revealed The Best YouTube Thumbnails for Virality</u></a></li>
+<li><a href="https://app-tips.techidaily.com/top-5-free-gba-emulators-your-ultimate-guide-to-playing-game-boy-advance-titles-on-pc/"><u>Top 5 Free GBA Emulators: Your Ultimate Guide to Playing Game Boy Advance Titles on PC</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-tips-for-optimal-online-vhs-photo-enhancement-for-2024/"><u>Top Tips for Optimal Online VHS Photo Enhancement for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unpacking-security-the-pros-and-cons-of-battery-based-google-wireless-nest-doorbells/"><u>Unpacking Security: The Pros and Cons of Battery-Based Google Wireless Nest Doorbells</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-allure-of-skagen-falster-3-a-review-of-high-tech-functionality-with-vintage-appeal/"><u>Unveiling the Allure of Skagen Falster 3: A Review of High-Tech Functionality with Vintage Appeal</u></a></li>
+</ul></div>
 

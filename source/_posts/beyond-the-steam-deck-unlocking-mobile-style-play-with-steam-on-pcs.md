@@ -1,7 +1,7 @@
 ---
 title: "Beyond the Steam Deck: Unlocking Mobile-Style Play with Steam on PCs"
-date: 2024-08-31T16:34:55.905Z
-updated: 2024-09-01T16:34:55.905Z
+date: 2024-09-28T16:33:20.501Z
+updated: 2024-10-01T20:47:50.999Z
 tags:
   - games
   - tv
@@ -22,6 +22,13 @@ thumbnail: https://thmb.techidaily.com/ad4388017aad038e4020bb83bed704ce1407b9c4a
 * [Stream Steam Games to Your Retro Gaming Handheld Too](https://android-transfer.techidaily.com/top-5-from-realme-narzo-60x-5g-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/)
 * [Moonlight is Also Available for the Nintendo Switch and PS Vita](https://remote-screen-capture.techidaily.com/new-acclaimed-pc-emulators-for-vintage-ps1-titles-for-2024/)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Turn your phone or tablet into a Steam handheld by downloading Steam Link or Moonlight and completing the setup process.
@@ -30,9 +37,6 @@ thumbnail: https://thmb.techidaily.com/ad4388017aad038e4020bb83bed704ce1407b9c4a
 
  The Steam Deck is a fantastic gaming handheld, but you don’t have to own one to play your Steam games on the go. All you need is a smartphone, tablet, streaming handheld, Nintendo Switch, PS Vita, or a compatible retro handheld, along with the Steam Link app or the Moonlight and Sunshine combo.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  Turn Your Phone or Tablet Into a Steam Handheld
 
 ![Galaxy S21FE Running Steam Link with an Xbox controller under it.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/galaxy-s21fe-running-steam-link-with-an-xbox-controller-under-it.jpg) 
@@ -44,6 +48,13 @@ _Goran Damnjanovic/How-To Geek_
  Once you have installed Steam Link, open the app, and tap the "Allow" button to enable the necessary permissions. Also, make sure Steam is running on your PC.
 
 ![Allowing Steam Link permissions on an Android phone.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/you-don-t-need-a-steam-deck-for-handheld-steam-gaming-01-2.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Next, tap the “Get Started” button.
 
@@ -57,43 +68,42 @@ _Goran Damnjanovic/How-To Geek_
 
 ![Steam Link PIN Window on Steam.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/you-don-t-need-a-steam-deck-for-handheld-steam-gaming-03.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Now, all you have to do is tap the “Start Playing” button, and Steam will launch in Big Picture mode on your PC as well as on your phone or tablet.
 
 ![Steam Link home screen.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/you-don-t-need-a-steam-deck-for-handheld-steam-gaming-04.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  You’ll be greeted with a virtual controller, but if you [connect a Bluetooth controller to your phone](https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oppo-a79-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/) or use a mobile controller such as the [Razer Kishi](https://desktop-recording.techidaily.com/splitscreen-study/), Steam Link should automatically recognize it and allow you to use it instead of the unwieldy virtual controller.
 
  After you see that everything's working, exit Steam Big Picture by tapping the three-dot options menu.
 
 ![Steam Big Picture Home Screen streaming to Steam Link.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/you-don-t-need-a-steam-deck-for-handheld-steam-gaming-05.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
  There, press the power button.
 
 ![Steam Link Streaming Options menu.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/you-don-t-need-a-steam-deck-for-handheld-steam-gaming-06.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Next, press the "Stop Streaming" button.
 
 ![Steam Link Streaming options menu.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/you-don-t-need-a-steam-deck-for-handheld-steam-gaming-07.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Next, I recommend opening the Steam Link options menu. There you can set the resolution, maximum bandwidth, framerate limit, and more.
 
 ![Steam Link streaming quality options menu.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/you-don-t-need-a-steam-deck-for-handheld-steam-gaming-08.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
  I recommend manually tweaking these settings because Steam Link is quite conservative when it comes to default options. Experiment with different settings until you’re satisfied with the quality of the streaming experience.
 
 ##  Stream Steam Games to Android or iOS With Moonlight
@@ -106,9 +116,6 @@ _Goran Damnjanovic/How-To Geek_
 
  Whichever of the two apps you end up using, make sure you connect your PC to your router via an Ethernet cable, and not wirelessly, to get the best streaming performance and lowest latency.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ##  Own a Streaming Handheld? Stream With Steam Link or Moonlight
 
 ![Logitech-gaming-handheld](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/09/c198a40b.jpg) 
@@ -118,15 +125,16 @@ _[Logitech](https://ir.logitech.com/press-releases/press-release-details/2022/Lo
  If you own a streaming handheld such as the [Logitech G Cloud](https://win-answers.techidaily.com/overcome-your-game-blockade-battlefield-5-launch-fixes-for-gamers/), you can locally stream your games with Steam Link or the Moonlight and Sunshine combo, too. Since most streaming handhelds run Android, consult the guide for Android phones and tablets available above.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Turn Your Windows Gaming Handheld Into a Steam Deck
 
 ![An ASUS ROG Ally Running Steam in Big Picture mode.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/an-asus-rog-ally-running-steam-in-big-picture-mode.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _Goran Damnjanovic/How-To Geek_
 
  If you’ve got a Windows Gaming Handheld such as the [ASUS ROG Ally](https://some-guidance.techidaily.com/2024-approved-streamline-and-shine-the-top-5-video-quality-tools/) or [Lenovo Legion Go](https://buynow-help.techidaily.com/wire-free-wonderment-the-allure-of-m06-headphones/), you can set Steam Big Picture to automatically launch at startup, making Steam your default game launcher.
@@ -135,16 +143,10 @@ _Goran Damnjanovic/How-To Geek_
 
 ![Opening Steam settings.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/you-don-t-need-a-steam-deck-for-handheld-steam-gaming-09.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Then go to the “Interface” tab and set “Start Up Location” to “Library” if you haven’t already set it, and turn on the “Start Steam in Big Picture Mode” toggle.
 
 ![Steam Interface menu.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/you-don-t-need-a-steam-deck-for-handheld-steam-gaming-10.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
  You also want to allow Steam to automatically launch at startup. You can find out how and where to do this by reading [our guide on how to disable startup programs in Windows](https://youtube-webster.techidaily.com/prehensive-walkthrough-creating-channel-banners/). Just make sure Steam is _enabled_ and not disabled.
 
  Next, open the “Controller” tab in Steam Settings, scroll down to the “External Gamepad Section” section, and turn on the “Guide Button Focuses Steam” toggle.
@@ -160,6 +162,13 @@ _Goran Damnjanovic/How-To Geek_
  If you own an ROG Ally, the Xbox button is mapped as the secondary function of the Menu button in both Gamepad and Desktop modes by default.
 
 ![ROG Ally's gamepad configuration menu.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/you-don-t-need-a-steam-deck-for-handheld-steam-gaming-16.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You can activate the Xbox button by pressing either of the two bottom buttons—labeled as M1 and M2—and then the Menu button because, by default, both the M1 and M2 buttons are mapped as secondary function modifiers.
 
@@ -185,13 +194,6 @@ _Goran Damnjanovic/How-To Geek_
 
 ![Button configuration menu on an ROG Ally.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/you-don-t-need-a-steam-deck-for-handheld-steam-gaming-13.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
  Next, select the “Secondary Function” box and press the A button to open the selection menu.
 
 ![ROG Ally Secondary function menu for the View button.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/you-don-t-need-a-steam-deck-for-handheld-steam-gaming-14.jpg) 
@@ -201,15 +203,23 @@ No advertising on the website.
 ![Secondary function configuration menu on an ROG Ally.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/you-don-t-need-a-steam-deck-for-handheld-steam-gaming-15.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Now you’re set and can open Steam in Big Picture Mode by pressing the modifier button and then the controller button to which you mapped the Xbox button.
 
  The good news is that you can add any non-Steam game to your Steam library, even Game Pass and Microsoft Store games. Learn how by reading our [guide on adding non-Steam games to Steam](https://ai-voice-clone.techidaily.com/chrome-video-translators-top-5-video-translation-chrome-extensions/) and [my guide on how to add PC Game Pass and Microsoft Store games to Steam](https://discover-able.techidaily.com/troubleshooting-difficulties-when-altering-your-email-address/). That’s it; you’ve now turned your Windows handheld into a Steam Deck!
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Stream Steam Games to Your Retro Gaming Handheld Too
 
  If you own an Android retro gaming handheld such as the AYN Odin, follow the guide for Android mobile devices mentioned above.
@@ -240,8 +250,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -249,4 +257,18 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-that.techidaily.com/response-when-you-multiply-a-number-by-itself-you-are-essentially-squaring-the-number-the-operation-can-be-represented-as-follows/"><u>[Response]: When You Multiply a Number by Itself, You Are Essentially Squaring the Number. The Operation Can Be Represented as Follows</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/deciphering-gpts-inbuilt-features-and-their-uses/"><u>Deciphering GPT’s Inbuilt Features & Their Uses</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-best-cell-phone-contracts-for-elders-this-year/"><u>Discover the Best Cell Phone Contracts for Elders This Year</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-power-of-portability-with-the-hp-stream-11-for-daily-use/"><u>Discover the Power of Portability with the HP Stream 11 for Daily Use</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-a-novel-world-in-watch-dogs-legion-game-review/"><u>Discovering a Novel World in Watch Dogs: Legion - Game Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/dji-phantom-4-pro-v-20-review/"><u>DJI Phantom 4 Pro V. 2.0 Review</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-se-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone SE? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/lock-your-nubia-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Nubia Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/masterys-journey-celebrating-1500-free-daily-educational-stops/"><u>Mastery's Journey: Celebrating 1500 Free, Daily Educational Stops</u></a></li>
+<li><a href="https://howto.techidaily.com/my-videos-arent-playing-on-itel-p55-5g-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Itel P55 5G – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/social-simulacrum-sculpting-constructing-playful-profiles-for-2024/"><u>Social Simulacrum Sculpting Constructing Playful Profiles for 2024</u></a></li>
+</ul></div>
 

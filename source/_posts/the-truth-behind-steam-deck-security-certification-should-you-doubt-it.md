@@ -1,7 +1,7 @@
 ---
 title: The Truth Behind Steam Deck Security Certification – Should You Doubt It?
-date: 2024-08-31T16:38:02.389Z
-updated: 2024-09-01T16:38:02.389Z
+date: 2024-09-30T19:06:12.837Z
+updated: 2024-10-01T18:54:16.149Z
 tags:
   - games
   - tv
@@ -21,11 +21,31 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
  Valve's Deck Verified program aims to curate a game catalog for Steam Deck owners, but the program isn’t perfect. Some verified games run poorly, while other unsupported games work great. Here’s what you can do about it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  "Deck Verified" Labels Aren't to Be Trusted
 
  The [Deck Verified](https://www.steamdeck.com/en/verified) program has four compatibility categories.
 
 ![Four categories of Steam Deck compatibility](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/steam-deck-verified-01.png) 
+
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _Valve_
 
@@ -34,6 +54,13 @@ _Valve_
  The only performance-related statement is “good default settings,” which doesn’t say much about actual in-game performance.
 
 ![Steam Deck Verified requirements.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/steam-deck-verified-02.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _Valve_
 
@@ -57,9 +84,6 @@ _Baldur’s Gate 3_ is another example of a Deck Verified game that doesn’t wo
 
  Don’t get me wrong, many Verified games do perform rather well on the Deck. But I just want to draw your attention to the fact that a game featuring the Deck Verified badge doesn’t mean it runs great and without issues. You shouldn't base your purchasing decision solely on whether a game is Deck Verified or not.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Steam Deck Unsupported Games Can Run Great on Deck
 
  On the other hand, a game being labeled Unsupported or sporting the Unknown badge doesn’t mean it won’t work on your Deck.
@@ -73,8 +97,12 @@ _Baldur’s Gate 3_ is another example of a Deck Verified game that doesn’t wo
  If a game’s labeled as Unsupported or Unknown, there’s a good chance it will work great on your Deck without issues out of the box or after a few tweaks. This is more proof that you shouldn’t blindly trust Steam Deck Verified labels.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  What Can You Do About This?
 
  My advice is to use [ProtonDB](https://www.protondb.com/) instead of Deck Verified. ProtonDB is a website that provides crowdsourced Linux and Steam Deck game compatibility reports, and, from my experience, it’s much more reliable than the Steam Deck Verified program.
@@ -107,8 +135,6 @@ _Baldur’s Gate 3_ is another example of a Deck Verified game that doesn’t wo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -116,4 +142,23 @@ _Baldur’s Gate 3_ is another example of a Deck Verified game that doesn’t wo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-your-video-presence-with-stellar-intros-in-imovie/"><u>[New] 2024 Approved Elevate Your Video Presence with Stellar Intros in iMovie</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-creating-smooth-time-lapses-with-samsung-mobile/"><u>[New] Creating Smooth Time-Lapses with Samsung Mobile</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-deciding-the-optimal-social-media-platform-tiktok-vs-youtube-shorts/"><u>[Updated] 2024 Approved Deciding the Optimal Social Media Platform TikTok Vs. YouTube Shorts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-compreenas-an-insightful-guide-to-photography-mastery/"><u>[Updated] Compreenas An Insightful Guide to Photography Mastery</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-ultimate-5-gaming-monitors-for-playstation-and-xbox/"><u>[Updated] In 2024, The Ultimate 5 Gaming Monitors for PlayStation & Xbox</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-shadow-flight-new-camera-frontier/"><u>2024 Approved Shadow Flight New Camera Frontier</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-the-error-code-0x80072ee7-issue-with-windows-store-a-step-by-step-guide/"><u>Fixing the 'Error Code 0X80072EE7' Issue with Windows Store – A Step-by-Step Guide</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-prevent-and-resolve-persistent-ark-software-failures/"><u>How to Prevent and Resolve Persistent ARK Software Failures</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-prime-6-web-spaces-for-corporate-social-connections/"><u>In 2024, Prime 6 Web Spaces for Corporate Social Connections</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-of-the-linksys-wrt1900acs-a-comprehensive-open-source-wireless-router-assessment/"><u>In-Depth Evaluation of the Linksys WRT1900ACS: A Comprehensive Open Source Wireless Router Assessment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/michael-kors-access-gen-5e-mkgo-review/"><u>Michael Kors Access Gen 5E MKGO Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/must-know-elements-in-buying-sound-gear/"><u>Must-Know Elements in Buying Sound Gear</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-a71-5g-unveiled-the-smart-choice-for-flagship-features-without-breaking-the-bank/"><u>Samsung Galaxy A71 5G Unveiled: The Smart Choice for Flagship Features without Breaking the Bank</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-tab-s7-review/"><u>Samsung Galaxy Tab S7 Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unmatched-performance-in-a-phone-in-depth-review-of-the-samsung-galaxy-s21-ultra/"><u>Unmatched Performance in a Phone: In-Depth Review of the Samsung Galaxy S21 Ultra</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unpacking-the-value-of-thermaltakes-massive-t-cooler-for-laptops-high-benefits-high-price/"><u>Unpacking the Value of Thermaltake's Massive T Cooler for Laptops: High Benefits, High Price</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Lenovo Tab 4 Analyzed: Great Value for Money with Some Trade-Offs"
-date: 2024-09-20T16:24:00.048Z
-updated: 2024-09-26T17:58:41.383Z
+date: 2024-09-29T17:59:21.095Z
+updated: 2024-10-01T18:14:57.250Z
 categories:
   - BestProducts
 description: "This Article Describes Lenovo Tab 4 Analyzed: Great Value for Money with Some Trade-Offs"
@@ -38,13 +38,6 @@ Lifewire / Andy Zahn
 [View On Walmart $562](https://www.walmart.com/ip/Canon-PowerShot-SX70-HS-20-3MP-65x-Optical-Zoom-Digital-Point-Shoot-Camera/773178799?slfpid=3) [View On Adorama.com $699](https://www.adorama.com/icasx70.html) [View On B&H Photo Video $599](https://www.bhphotovideo.com/c/product/1435399-REG/canon%5F3071c001%5Fpowershot%5Fsx70%5Fhs%5Fdigital.html)
 
 4.3
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
 
@@ -98,6 +91,13 @@ Lifewire / Andy Zahn
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
@@ -112,13 +112,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Autofocus: Blazing fast**
 
  We were shocked by how fast and consistent the autofocus is in the SX70 HS, even in low-light situations. It rarely fails to lock on to your intended subject, and focus tracking works flawlessly.
@@ -126,6 +119,13 @@ Lifewire / Andy Zahn
  The autofocus is really one of the standout features of the SX70 HS—it makes the camera ideal for anyone who will be photographing fast and erratic subjects. Whether you’re capturing precious family moments, sporting events, or wildlife, the SX70 HS will really help ensure you get the shot when it counts the most.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
 
@@ -142,13 +142,6 @@ Lifewire / Andy Zahn
  RAW files are rich and detailed, and[JPEG images](https://www.lifewire.com/jpeg-myths-and-facts-1701548) are well-rendered, though JPEG images do show the compression artifacts typical of point-and-shoot cameras. The built-in flash raises and lowers manually and is functional if unexceptional.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Modes: Plenty to choose from (and only some are useful)**
 
@@ -188,18 +181,18 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Big brand, big price tag**
 
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
 
@@ -218,16 +211,10 @@ Lifewire / Andy Zahn
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
 
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -235,6 +222,13 @@ Lifewire / Andy Zahn
 * [Panasonic Lumix DC-FZ80](https://www.lifewire.com/panasonic-lumix-dc-fz80-review-4691071)
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -270,16 +264,24 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-snapchat-private-chronicles-top-120plus-innovative-ideas-to-distinguish-you/"><u>[New] 2024 Approved Snapchat Private Chronicles Top 120+ Innovative Ideas to Distinguish You</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-enhancing-zooms-visual-clarity-tips-and-tricks/"><u>[Updated] 2024 Approved Enhancing Zoom's Visual Clarity Tips and Tricks</u></a></li>
-<li><a href="https://techtrends.techidaily.com/discover-concealed-mac-folders-and-files-with-easy-terminal-tricks/"><u>Discover Concealed Mac Folders & Files with Easy Terminal Tricks</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-oneplus-12r-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For OnePlus 12R | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-voice-assistants-and-smart-speaker-picks-for-the-year-2ebrity-2024/"><u>Leading Voice Assistants and Smart Speaker Picks for the Year 2Ebrity 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lgs-latest-gem-the-stylo-6-smartphone-where-aesthetics-meet-usability/"><u>LG's Latest Gem: The Stylo 6 Smartphone – Where Aesthetics Meet Usability</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lgs-newest-addition-a-comprehensive-guide-to-the-updated-classic-in-wear-os-20-the-stylish-timepiece/"><u>LG's Newest Addition: A Comprehensive Guide to the Updated Classic in Wear OS 2.0 - The Stylish Timepiece</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lightlux-kit-zx93-ultra-affordable-design/"><u>LightLux Kit ZX93 - Ultra Affordable Design</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/m3-macbook-air-a-smart-tech-spending-decision/"><u>M3 MacBook Air: A Smart Tech Spending Decision</u></a></li>
-<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Infinix Note 30 VIP | Dr.fone</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/the-value-of-budget-friendly-soundbars-quality-meets-savings/"><u>The Value of Budget-Friendly Soundbars: Quality Meets Savings</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-embrace-the-synergy-streaming-fb-videos-through-your-apple-device/"><u>[New] Embrace the Synergy Streaming FB Videos Through Your Apple Device</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-streamlining-your-rl-gameplay-videography/"><u>[Updated] In 2024, Streamlining Your RL Gameplay Videography</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/2024s-step-by-step-solution-why-isnt-my-rust-mic-working-how-to-fix-it/"><u>2024'S Step-by-Step Solution: Why Isn't My Rust Mic Working? How to Fix It</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-oneplus-nord-n30-5g-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your OnePlus Nord N30 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-airpods-pro-vs-samsung-galaxy-buds-pro/"><u>Apple AirPods Pro Vs. Samsung Galaxy Buds Pro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-testing-and-evaluation-of-sumind-bt7c-bluetooth-fm-transmitter-your-ideal-in-car-companion/"><u>Comprehensive Testing & Evaluation of Sumind BT7C Bluetooth FM Transmitter - Your Ideal In-Car Companion</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-best-innovative-gadgets-that-will-enhance-your-nightly-repose/"><u>Discover The Best Innovative Gadgets That Will Enhance Your Nightly Repose</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-features-of-mobvoi-ticwatch-pro-3-gps-maximizing-longevity-with-two-screens/"><u>Exploring the Features of Mobvoi TicWatch Pro 3 GPS - Maximizing Longevity with Two Screens</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-honor-using-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix corrupt video files of Honor using Video Repair Utility on Mac?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-the-moto-g-stylus-delivers-topnotch-performance-reliable-battery-life-and-a-functional-stylus/"><u>In-Depth Evaluation: The Moto G Stylus Delivers Topnotch Performance, Reliable Battery Life, and a Functional Stylus</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/in-depth-gadget-analysis-by-tom-decoding-the-world-of-computers-and-peripherals/"><u>In-Depth Gadget Analysis by Tom - Decoding the World of Computers and Peripherals</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/is-it-smart-to-fix-apples-device-batteries/"><u>Is It Smart to Fix Apple's Device Batteries?</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/nba-2k23-no-longer-crashing-top-7-remedies-for-a-smooth-gaming-experience-on-pc/"><u>NBA 2K23 No Longer Crashing - Top 7 Remedies for a Smooth Gaming Experience on PC</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tablet-selection-guide-assessing-chipset-performance-and-efficiency/"><u>Tablet Selection Guide: Assessing Chipset Performance and Efficiency</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/tailoring-accessibility-for-your-private-chatgpt-talks/"><u>Tailoring Accessibility for Your Private ChatGPT Talks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-cost-of-precision-with-the-ambient-ws-10002-wifi-weather-sensor-a-comprehensive-review/"><u>The Cost of Precision with the Ambient WS-10002 WiFi Weather Sensor - A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tp-link-archer-c9-the-ultimate-review-of-a-cost-effective-wireless-router/"><u>TP-Link Archer C9: The Ultimate Review of a Cost-Effective Wireless Router</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/truck-drivers-audio-choice-a-budget-friendly-high-performing-gadget-review/"><u>Truck Driver’s Audio Choice: A Budget-Friendly, High-Performing Gadget Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unexpected-insights-on-the-universe-from-an-analytical-mind-aminys-review/"><u>Unexpected Insights on the Universe From an Analytical Mind - Aminy's Review</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Section 2A: Understanding Compressive Strength of Concrete with Different Aggregates"
-date: 2024-08-31T16:37:25.530Z
-updated: 2024-09-01T16:37:25.530Z
+date: 2024-09-25T16:23:39.751Z
+updated: 2024-10-01T16:11:52.051Z
 tags:
   - games
   - tv
@@ -84,6 +84,13 @@ Expand
 
 [$500 at Amazon](https://www.amazon.com/Projector-Portable-Autofocus-120-Inch-Playtime/dp/B0CHW11C8H?th=1&tag=hotoge-20&ascsubtag=UUhtgUeUpU2001994&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fanker-nebula-capsule-3-review%2F&asc%5Fcampaign=Affiliate) [$549 at anker](https://us.seenebula.com/products/capsule-3-projectors-d2425) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  The Capsule 3 Is Ultra-Portable
 
 ![Nebula Capsule 3 being held by a persona and compared to a can of la crox](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/02/jerome-thomas-photo-1.jpg) 
@@ -95,8 +102,18 @@ Jerome Thomas / How-To Geek
  It’s a little too big to be pocketable but incredibly small for a projector. It got an “Oh, that’s cool” from people in my family when they saw its size in my hand. The Capsule 3 even has touch controls on top, so if the remote isn’t close by, you can still pause the movie or adjust the volume. On the surface, it’s a very neat device.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  A Projector That Can Travel
 
 ![Nebula Capsule 3 turned on, sitting on a tripod](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/02/nebula-capsule-3-turned-on.jpg) 
@@ -117,13 +134,17 @@ Jerome Thomas / How-To Geek
 
  On the trip, my original plan was to stream content from my iPad to the projector, but I had trouble casting to it wirelessly over hotel Wi-Fi. This is almost certainly because these networks are typically set up to keep devices from seeing one another. Even with my iPad and Capsule 3 on the same network, the Netflix app couldn’t see the device to cast to it. If this is your primary use case, I would simply recommend picking up an HDMI cable.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  Google TV Is Good But Has Its Problems
 
 ![Nebula Capsule 3 projecting its picture on a wall](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/02/nebula-capsule-3-projector.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 Jerome Thomas / How-To Geek
 
  The idea of casting to it is a little silly anyway because each time I tried to at home, it still wanted me to sign in to the app on Capsule 3\. The Google TV software on the projector can handle nearly every streaming capability natively, so there’s little point in using two devices instead of just controlling it from Capsule 3\. When I did get casting to work, there was some buffering and pauses that were not present when using the native apps.
@@ -141,23 +162,20 @@ Jerome Thomas / How-To Geek
  When the Capsule 3 was fully charged, I made it through the 87-minute “Fantastic Mr. Fox” and then about 50 to 60 minutes into “Star Wars: The Force Awakens” before the projector died. Whenever I used the projector, I also opted for the standard brightness level versus the less bright eco mode.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Price and Availability
 
  The Nebula Capsule 3 retails for $549\. If you like everything it offers but think you’ll need more brightness, there’s also the [Nebula Mars 3 Air](https://us.seenebula.com/products/mars-3-air-projectors-d2325), which retails for $599\. Despite being a little bulkier and heavier, it offers 400 ANSI lumens of brightness but the same 1080p resolution and 2.5 hours of battery life.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ##  Should You Buy the Anker Nebula Capsule 3?
 
 ![Nebula Capsule 3 next to its box, remote, and power adapter](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/02/nebula-capsule.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Jerome Thomas / How-To Geek
 
  The [Anker Nebula Capsule 3](https://us.seenebula.com/products/capsule-3-projectors-d2425) projector offers a lot of capabilities packed inside a palmable-sized canister. In my use, it performed about as well as I expected it to. It’s not quite the watch-anywhere device it might seem like from its promotional material, simply because its brightness can’t handle lighter areas.
@@ -166,9 +184,6 @@ Jerome Thomas / How-To Geek
 
 ![Nebula Capsule 3 Projector (1)](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/nebula-capsule-3-projector-1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #####  Anker Nebula Capsule 3 Mini Projector
 
 7/ 10 
@@ -183,8 +198,6 @@ Ultra-Portable Cinema Experience: Transform any space into a movie theater with 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -192,4 +205,17 @@ Ultra-Portable Cinema Experience: Transform any space into a movie theater with 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-clip-weaver-workshop/"><u>[Updated] 2024 Approved Clip Weaver Workshop</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-deciphering-screens-a-comprehensive-review-of-recording-apps/"><u>[Updated] Deciphering Screens A Comprehensive Review of Recording Apps</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-mastery-in-mac-screen-capture-format-conversion/"><u>[Updated] In 2024, Mastery in Mac Screen Capture Format Conversion</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1722878944589-best-budget-petcam-in-high-definition/"><u>Best Budget Petcam in High Definition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/critical-insights-godfalls-inability-to-captivate-players-as-ps5s-exclusive-game/"><u>Critical Insights: Godfall's Inability to Captivate Players as PS5's Exclusive Game</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-canon-pixma-mg6240-driver-here-download-supports-windows-11-8-and-7/"><u>Get Your Canon Pixma MG6240 Driver Here: Download Supports Windows 11, 8 & 7</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-get-roblox-running-again-top-tips-for-overcoming-launch-errors/"><u>How to Get Roblox Running Again: Top Tips for Overcoming Launch Errors</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-complete-guide-to-the-gaomon-pd1560-drawing-pad-and-its-stylus-features-reviewed/"><u>The Complete Guide to the Gaomon PD1560 Drawing Pad and Its Stylus Features Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-7-budget-friendly-mobile-phone-contracts/"><u>Top 7 Budget-Friendly Mobile Phone Contracts</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/uncovering-the-art-of-toggling-between-window-terminals-concentration-and-normalcy/"><u>Uncovering the Art of Toggling Between Window Terminal's Concentration and Normalcy</u></a></li>
+</ul></div>
 

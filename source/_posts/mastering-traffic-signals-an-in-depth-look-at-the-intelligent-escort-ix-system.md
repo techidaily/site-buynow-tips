@@ -1,7 +1,7 @@
 ---
 title: "Mastering Traffic Signals: An In-Depth Look at the Intelligent Escort iX System"
-date: 2024-08-27T12:13:19.778Z
-updated: 2024-08-28T12:13:19.778Z
+date: 2024-09-25T18:39:25.023Z
+updated: 2024-10-01T16:08:17.451Z
 categories:
   - BestProducts
 description: "This Article Describes Mastering Traffic Signals: An In-Depth Look at the Intelligent Escort iX System"
@@ -40,6 +40,13 @@ Lifewire / Zach Sweat
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/JA4MI_SE7Alxl0MLR7rMoIVzKgI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -94,14 +101,8 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/TRrezKVbAUPs2Rud3g4_iOHyxB8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-2-4b3f9d8acd1440089989378253d902f4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Comfort: Hefty, but darn comfy**
 
  The original Elite was perhaps the most comfortable controller I’ve ever used, so with the Series 2, I had high hopes in this department. Thanks to some clever but subtle changes by the Microsoft team, this controller is even better.
@@ -119,8 +120,12 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup Process and Software: Bluetooth, at long last**
 
  One of our biggest gripes with the original Elite controller was that it lacked Bluetooth functionality despite its premium price tag. Seeing how the much cheaper ONE S variant included this, it was even more frustrating. Thankfully, Microsoft listened to our collective rants and added Bluetooth to the Series 2, which drastically improves the number of devices it can be used with.
@@ -144,8 +149,12 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance/Durability: Enhanced performance and durability**
 
  To test the performance of the new Elite Series 2 controller, I put this device through several hours of gaming on both PC and Xbox One platforms running a number of games and layouts. The results were promising, so let’s take a closer look.
@@ -169,8 +178,12 @@ Lifewire / Zach Sweat
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Like buying a brand new console**
 
  Right now, the Elite Series 2 controller retails at an MSRP of $249.99, about $100 more than its predecessor. This price tag makes it not only the most expensive first-party controller around, but also nearly the cost of a brand new Xbox One S console (or three brand new titles). That can be a tough sell for your average gamer.
@@ -184,8 +197,12 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Xbox One Elite Series 2 Controller vs. Xbox One Elite Series 1 Controller**
 
  Since the Elite controller really is in a league of its own, the biggest competitor to it is the first generation, which can still be purchased from a number of retailers. We’re going to quickly compare the two to see which might be best for you.
@@ -217,14 +234,11 @@ Lifewire / Zach Sweat
 * Warranty  90-day warranty
 * Compatibility  All Xbox One Consoles, Windows 10 PCs, Bluetooth devices
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -233,4 +247,26 @@ Lifewire / Zach Sweat
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-stream.techidaily.com/new-free-guide-recording-youtube-videos-on-screencasts/"><u>[New] Free Guide Recording YouTube Videos on Screencasts</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-essential-tools-and-tricks-for-minecraft-recordings/"><u>[Updated] 2024 Approved Essential Tools and Tricks for Minecraft Recordings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-stylish-and-modern-swagtron-swagger-electric-scooter/"><u>Comprehensive Review of the Stylish and Modern Swagtron Swagger Electric Scooter</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/critical-considerations-before-investing-in-a-wearable-exerceband-device/"><u>Critical Considerations Before Investing in a Wearable Exerceband Device</u></a></li>
+<li><a href="https://fox-that.techidaily.com/diagnosing-and-repairing-the-dark-display-problem-on-iphones/"><u>Diagnosing and Repairing the Dark Display Problem on iPhones</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/flashspeedlight-tt560-simplicity-meets-consistent-power/"><u>FlashSpeedlight TT560: Simplicity Meets Consistent Power</u></a></li>
+<li><a href="https://fox-search.techidaily.com/how-can-we-optimize-our-ebook-for-flawless-display-and-functionality-on-an-ipad-learn-with-flipbuildercom/"><u>How Can We Optimize Our eBook for Flawless Display and Functionality on an iPad? [Learn with FlipBuilder.com]</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-change-location-on-yik-yak-for-your-vivo-s18-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Vivo S18 to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-itel-p55plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Itel P55+ | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-moto-g-powers-remarkable-battery-performance-in-a-compelling-design/"><u>In-Depth Analysis: Moto G Power's Remarkable Battery Performance in a Compelling Design</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/navigating-your-way-through-effective-spotify-promotion-techniques/"><u>Navigating Your Way Through Effective Spotify Promotion Techniques</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/pros-and-cons-of-home-mesh-networks/"><u>Pros and Cons of Home Mesh Networks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-the-lenovo-tab-m10-with-fhdplus-screen-quality-at-an-affordable-price/"><u>Review of the Lenovo Tab M10 with FHD+ Screen - Quality at an Affordable Price</u></a></li>
+<li><a href="https://article-helps.techidaily.com/scan-and-select-from-these-premium-10-sources-of-vectors-for-2024/"><u>Scan and Select From These Premium 10 Sources of Vectors for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/seamless-cinema-experience-get-and-use-popcorn-time-on-your-mac-for-hassle-free-film-viewing/"><u>Seamless Cinema Experience: Get and Use Popcorn Time on Your Mac for Hassle-Free Film Viewing</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-7-essentials-what-you-need-to-know-before-purchasing-your-next-smart-television/"><u>Top 7 Essentials: What You Need To Know Before Purchasing Your Next Smart Television</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/trail-blazing-cars-key-security-breakers-2024/"><u>Trail-Blazing Cars' Key Security Breakers, 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unboxing-the-oneplus-nord-n10-5g-a-must-read-comprehensive-guide/"><u>Unboxing the OnePlus Nord N10 5G: A Must-Read Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-potential-a-complete-walkthrough-and-review-of-the-advanced-samsung-gear-s3-frontier-wrist-device/"><u>Unveiling the Potential: A Complete Walkthrough and Review of the Advanced Samsung Gear S3 Frontier Wrist Device</u></a></li>
+</ul></div>
 

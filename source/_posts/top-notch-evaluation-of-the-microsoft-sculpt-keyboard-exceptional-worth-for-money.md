@@ -1,7 +1,7 @@
 ---
 title: Top-Notch Evaluation of the Microsoft Sculpt Keyboard – Exceptional Worth for Money
-date: 2024-09-24T17:27:05.856Z
-updated: 2024-09-26T17:33:50.055Z
+date: 2024-09-30T16:42:03.074Z
+updated: 2024-10-01T20:49:10.608Z
 categories:
   - BestProducts
 description: This Article Describes Top-Notch Evaluation of the Microsoft Sculpt Keyboard – Exceptional Worth for Money
@@ -79,22 +79,29 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
@@ -104,18 +111,18 @@ Lifewire / Emily Isaacs
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Great for the features**
 
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -132,10 +139,16 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
@@ -149,19 +162,6 @@ Lifewire / Emily Isaacs
  **A secure, mid-priced wireless keyboard with lots of customization options.**
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
-
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -193,22 +193,22 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-discover-every-shared-element-with-friends/"><u>[New] Discover Every Shared Element with Friends</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-editors-face-off-which-is-superior-filmora-or-democreator-in-2024/"><u>[New] Editors Face-Off Which Is Superior, Filmora or Democreator, In 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for ZTE Blade A73 5G | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-capturing-competitive-overwatch-in-minutes/"><u>2024 Approved Capturing Competitive Overwatch in Minutes</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-navigating-obs-livestream-integration-for-maximum-facebook-reach/"><u>2024 Approved Navigating OBS Livestream Integration for Maximum Facebook Reach</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/deconstructing-the-microsoft-surface-go-a-comprehensive-look-at-its-price-point-and-ambiguous-persona/"><u>Deconstructing the Microsoft Surface Go - A Comprehensive Look at Its Price-Point and Ambiguous Persona</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-nature-on-a-new-level-with-sealocs-sleek-sturdy-and-weatherproof-55-inch-4k-outdoor-television-our-review-inside/"><u>Experience Nature on a New Level with Sealoc's Sleek, Sturdy & Weatherproof 55-Inch 4K Outdoor Television - Our Review Inside!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-superior-signal-quality-with-the-clearstream-eclipse-antenna-simplicity-meets-excellence/"><u>Experience Superior Signal Quality with the ClearStream Eclipse Antenna – Simplicity Meets Excellence</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-evaluation-why-netgears-nighthawk-c7000-stands-out-as-a-leading-wireless-modem-solution/"><u>Expert Evaluation: Why Netgear's Nighthawk C7000 Stands Out as a Leading Wireless Modem Solution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-the-lenovo-ideapad-flex-5-yoga-a940-thorough-reviews-and-ratings/"><u>Expert Insights on The Lenovo IdeaPad Flex 5 (Yoga A940) - Thorough Reviews and Ratings</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-cutting-edge-performance-of-the-creative-sound-blaster-zxr-a-closer-look-at-the-2013-flagship-model/"><u>Exploring the Cutting-Edge Performance of the Creative Sound Blaster ZxR: A Closer Look at the 2013 Flagship Model</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/fortnite-chapter-season-10-overview-revitalized-fun-and-exciting-gameplay/"><u>Fortnite Chapter - Season 10 Overview: Revitalized Fun and Exciting Gameplay</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/future-proof-entertainment-identifying-leading-home-theater-pc-brands-and-models/"><u>Future-Proof Entertainment: Identifying Leading Home Theater PC Brands and Models</u></a></li>
-<li><a href="https://program-issues.techidaily.com/preventing-and-fixing-pc-game-crashes-during-playthroughs-call-of-duty-warzone-20-tips/"><u>Preventing and Fixing PC Game Crashes During Playthroughs - Call of Duty Warzone 2.0 Tips</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resident-evil-village-pc-lag-troubles-discover-effective-fixes-today/"><u>Resident Evil Village [PC] Lag Troubles? Discover Effective Fixes Today</u></a></li>
-<li><a href="https://extra-information.techidaily.com/top-10-places-for-accessing-gratis-graphics/"><u>Top 10 Places for Accessing Gratis Graphics</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-explore-8-essential-rainfall-audio-libraries-available-to-download/"><u>Updated 2024 Approved Explore 8 Essential Rainfall Audio Libraries Available to Download</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-mastering-zoom-discussion-essential-tactics-for-virtual-conversations-for-2024/"><u>[New] Mastering Zoom Discussion Essential Tactics for Virtual Conversations for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-elevate-video-playback-with-youtubes-latest-feature-av1/"><u>[Updated] In 2024, Elevate Video Playback with YouTube's Latest Feature - AV1</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-quick-guide-incorporating-more-photos-into-your-instagram-story/"><u>2024 Approved Quick Guide Incorporating More Photos Into Your Instagram Story</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-innovation-on-your-wrist-the-ultimate-guide-to-the-beantech-bitwatch-s1plus-smartwatch/"><u>Affordable Innovation on Your Wrist: The Ultimate Guide to the Beantech Bitwatch S1+ Smartwatch</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/aperture-authority-picking-the-top-10-camera-lenses/"><u>Aperture Authority Picking the Top 10 Camera Lenses</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-complete-guide-on-unlocking-apple-iphone-x-with-a-broken-screen-drfone-by-drfone-ios/"><u>In 2024, Complete Guide on Unlocking Apple iPhone X with a Broken Screen? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-gimp-a-versatile-and-cost-free-photo-editing-suite-across-multiple-os/"><u>In-Depth Analysis of GIMP - A Versatile and Cost-Free Photo Editing Suite Across Multiple OS</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/insights-into-the-advantages-and-disadvantages-of-using-pidgin-messenger/"><u>Insights Into the Advantages & Disadvantages of Using Pidgin Messenger</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/managing-pet-nutrition-with-ease-a-review-of-the-petsafe-automatic-feeders-role-in-weight-management/"><u>Managing Pet Nutrition with Ease: A Review of the PetSafe Automatic Feeder's Role in Weight Management</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ranking-the-most-advanced-and-trendy-smartwatches-available/"><u>Ranking the Most Advanced and Trendy Smartwatches Available</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-samsung-galaxy-s23-fe-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Samsung Galaxy S23 FE</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/seamless-routine-for-pets-innovative-petsafe-six-port-meal-scheduler-and-dispenser/"><u>Seamless Routine for Pets: Innovative PetSafe Six-Port Meal Scheduler and Dispenser</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/spk10-037-kit-unveiled-bright-and-versatile-studio-essential/"><u>SPK10-037 Kit Unveiled: Bright & Versatile Studio Essential</u></a></li>
+<li><a href="https://howto.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-vivo-y36-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Vivo Y36 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-6-iphone-security-applications-the-ultimate-protection-list/"><u>Top 6 iPhone Security Applications: The Ultimate Protection List</u></a></li>
 </ul></div>
 

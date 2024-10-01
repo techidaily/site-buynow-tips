@@ -1,7 +1,7 @@
 ---
 title: "Comparing Gaming Portability: Nintendo Switch Lite Vs. Nintendo Switch OLED"
-date: 2024-08-27T12:13:43.138Z
-updated: 2024-08-28T12:13:43.138Z
+date: 2024-09-28T18:34:40.379Z
+updated: 2024-10-01T17:59:10.904Z
 categories:
   - BestProducts
 description: "This Article Describes Comparing Gaming Portability: Nintendo Switch Lite Vs. Nintendo Switch OLED"
@@ -63,8 +63,12 @@ Lifewire / Kelsey Simon
  The Elder Scrolls V: Skyrim is an action role-playing game focused on single-player immersion in a fantasy world. It was originally released in 2011 and has most recently been ported over to the Switch. We took a close look at this game on its newest platform, playing it on the go to test the handheld gameplay experience, along with the plot and graphics.
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup Process: Simple for all users**
 
  As with other games on the Nintendo Switch, you’ll need to insert the cartridge into your device. Skyrim does take a while to launch, so be patient as it loads up. There shouldn’t be any special downloads required, like with other games, and as soon as things load you’ll be able to play.
@@ -74,8 +78,12 @@ Lifewire / Kelsey Simon
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Plot: A huge world with loads to explore**
 
  First, let’s just take a moment to mention that this review covers The Elder Scrolls V: Skyrim―a game that was originally released in November of 2011 for PC, Xbox 360, and PlayStation 3\. That’s right, the game is now over seven years old. In 2016, Skyrim released for PlayStation 4 and Xbox One. They even released a VR version of the game last year, shortly after releasing the Switch version.
@@ -96,6 +104,13 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Gameplay: Not as smooth as on other platforms**
 
  The first real interactive thing you do with the game is to create your character, and true to other Elder Scrolls games, you can change your character’s appearance in the most minute way. Pick your race, gender, hairstyle, eye color, and even tweak the height of your cheekbones and brows if you want. This is the first sign of just how encompassing and involved the role-playing aspects of Skyrim are.
@@ -114,9 +129,6 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/2Fk-UTwglmoCdE7IXrXqlnXs9do=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460712-6cec58625d13430db671be3144451cbc.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
 ## **Graphics: A bit outdated**
@@ -137,6 +149,13 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: A tad expensive**
 
  The Elder Scrolls V: Skyrim costs roughly $60 dollars for the Switch (MSRP). You might be able to find it on sale on Amazon for less, but it’s still on the more expensive side like other popular Switch games. This is disappointing since you can find Skyrim on other platforms for a fraction of the cost, even snatching it up for sale on Steam for $25 or less on PC. Considering the cost difference, the PC version of the game is the better deal, especially since the gameplay is better looking. But if you’re looking to take Skyrim on the go, or a Switch is your preferred gaming system, the price isn’t unreasonable.
@@ -144,18 +163,14 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: Other action RPGs**
 
  The Elder Scrolls V: Skyrim almost competes with itself, due to how many other versions of the game are available on other platforms. But if you’re looking for role-playing games specifically designed for the Switch, it would be worth looking at The Legend of Zelda: Breath of the Wild. It was designed for the Switch from the beginning, sharing Skyrim’s action role-playing gameplay, but with crisp, beautiful graphics and smoother controls. If you’re interested in Japanese RPGs (JRPGs), it might also be worth looking into Xenoblade Chronicles 2, which will also share the same action-packed feel as Skyrim, but with a completely different graphics style and somewhat more complex combat and leveling.
@@ -166,9 +181,6 @@ Lifewire / Kelsey Simon
 
  Even though The Elder Scrolls V: Skyrim is a great game and the Switch is an amazing platform, our advice is only to buy Skyrim for the Switch if you’re looking to play on the go. Otherwise, we’d suggest purchasing Skyrim for the PC, where you’ll really be able to enjoy superior graphics and customization options.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [The Legend of Zelda: Breath of the Wild](https://www.lifewire.com/the-legend-of-zelda-breath-of-the-wild-review-4685759)
@@ -176,8 +188,12 @@ Lifewire / Kelsey Simon
 * [Splatoon 2](https://www.lifewire.com/splatoon-2-review-4688940)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  The Elder Scrolls V: Skyrim (Nintendo Switch)
@@ -185,14 +201,11 @@ Lifewire / Kelsey Simon
 * Price  $59.99
 * Available Platforms  Microsoft Windows, Nintendo Switch, PlayStation 3, PlayStation 4, Xbox 360, Xbox One
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -201,4 +214,22 @@ Lifewire / Kelsey Simon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/updated-alter-twitter-video-headline-image/"><u>[Updated] Alter Twitter Video Headline Image</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-poco-x5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/complete-tutorial-activating-and-linking-network-id-with-your-nintendo-3ds-device/"><u>Complete Tutorial: Activating and Linking Network ID with Your Nintendo 3DS Device</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-best-bang-for-your-buck-the-oneplus-nord-n1-100-unboxed-and-tested/"><u>Discover the Best Bang for Your Buck: The OnePlus Nord N1 100 Unboxed and Tested</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-on-apple-watch-or-iphone-8-plus-by-drfone-ios/"><u>How To Bypass Activation Lock On Apple Watch Or iPhone 8 Plus?</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-correct-the-not-plugged-in-warning-on-amd-audio-hardware/"><u>How to Correct the 'Not Plugged In' Warning on AMD Audio Hardware</u></a></li>
+<li><a href="https://extra-information.techidaily.com/identifying-tech-giants-iphone-x-and-samsungs-face-recognition/"><u>Identifying Tech Giants IPhone X & Samsung's Face Recognition</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-who-leads-the-streaming-race-twitch-vs-youtube-showdown/"><u>In 2024, Who Leads the Streaming Race? Twitch vs YouTube Showdown</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/making-a-smart-move-buying-the-right-smart-tv/"><u>Making a Smart Move: Buying the Right Smart TV</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/status-audio-bt-one-review/"><u>Status Audio BT One Review</u></a></li>
+<li><a href="https://app-tips.techidaily.com/the-comprehensive-guide-to-bings-ai-integration-with-the-cutting-edge-gpt-4-model/"><u>The Comprehensive Guide to Bing's AI Integration with the Cutting-Edge GPT-4 Model</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-experience-and-price-breakdown-of-the-microsoft-sculpt-keyboard/"><u>Ultimate Guide: Experience & Price Breakdown of the Microsoft Sculpt Keyboard</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-of-high-quality-ipad-mouse-options/"><u>Ultimate Selection of High-Quality iPad Mouse Options</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/zen-5-flagship-ryzen-9-9950x-claims-5th-place-in-global-cpu-performance-race-against-core-loaded-xeon-and-threadripper-chips/"><u>Zen 5 Flagship Ryzen 지킨 9 9950X Claims 5Th Place in Global CPU Performance Race Against Core-Loaded Xeon and Threadripper Chips</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Runner's Choice? - A Critical Review of the Garmin Forerunner 265
-date: 2024-09-22T16:54:25.648Z
-updated: 2024-09-26T18:13:37.928Z
+date: 2024-09-24T20:36:19.162Z
+updated: 2024-10-01T16:40:02.603Z
 categories:
   - BestProducts
 description: This Article Describes The Runner's Choice? - A Critical Review of the Garmin Forerunner 265
@@ -38,10 +38,10 @@ Lifewire / Jonno Hill
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Mohu Leaf 30
@@ -71,29 +71,22 @@ Lifewire / Jonno Hill
 
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Basic but effective**
 
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
 
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup: Dead simple**
 
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Acceptable but not incredible**
 
@@ -106,10 +99,10 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Excellent for the performance**
@@ -117,6 +110,19 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
 
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
+
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
 
@@ -154,19 +160,16 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-innovating-video-streams-for-the-modern-gamer-on-youtube/"><u>[New] Innovating Video Streams for the Modern Gamer on Youtube</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-the-ultimate-guide-to-sharing-your-screen-in-skype-work-sessions/"><u>[New] The Ultimate Guide to Sharing Your Screen in Skype Work Sessions</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-unlocking-clear-communication-zooms-best-transcription-services/"><u>[Updated] Unlocking Clear Communication Zoom's Best Transcription Services</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-twitters-revised-video-standards-aspect-ratios-included/"><u>2024 Approved Twitter's Revised Video Standards Aspect Ratios Included</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/cut-the-clutter-advanced-techniques-with-youtube-studio-editor/"><u>Cut the Clutter Advanced Techniques with YouTube Studio Editor</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ng-into-tseries-streaming-revenue-model-on-youtube-for-2024/"><u>Delving Into TSeries' Streaming Revenue Model on YouTube for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-erase-your-online-presence-post-facebook-stories/"><u>In 2024, Erase Your Online Presence Post-Facebook Stories</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-reviews-of-the-new-fitbit-charge-6-is-it-a-step-up-from-its-predecessor/"><u>Top Reviews of the New Fitbit Charge 6: Is It a Step Up From Its Predecessor?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-of-the-line-review-for-razer-blade-pro-17-unleashing-unmatched-power-on-the-go/"><u>Top-of-the-Line Review for Razer Blade Pro 17 – Unleashing Unmatched Power on the Go</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-dji-robomaster-s1-the-innovative-combination-of-entertainment-programming-and-battle/"><u>Ultimate Guide: DJI RoboMaster S1 - The Innovative Combination of Entertainment, Programming & Battle</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unboxing-the-future-in-depth-analysis-of-the-revolutionary-iphone-15-pro-in-action/"><u>Unboxing the Future: In-Depth Analysis of the Revolutionary iPhone 15 Pro in Action</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unleashing-power-in-depth-look-at-the-mighty-beatit-bt-d11-charger/"><u>Unleashing Power: In-Depth Look at the Mighty Beatit BT-D11 Charger</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/user-friendly-guide-to-logging-gotomeeting-events-for-2024/"><u>User-Friendly Guide to Logging GoToMeeting Events for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-tecno-phantom-v-flip-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Tecno Phantom V Flip? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-filters-a-2023-guide-to-enhanced-photography-for-2024/"><u>[Updated] Instagram Filters A 2023 Guide to Enhanced Photography for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cyberpower-cp685avrg-avr-ups-system-review/"><u>Cyberpower CP685AVRG AVR UPS System Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-assessment-of-the-high-end-huion-inspiroy-g10t-graphic-tablet-a-blend-of-quality-and-precision/"><u>Expert Assessment of the High-End Huion Inspiroy G10T Graphic Tablet: A Blend of Quality and Precision</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-passfab-apple-iphone-se-backup-unlocker-top-4-alternatives-by-drfone-ios/"><u>In 2024, PassFab Apple iPhone SE Backup Unlocker Top 4 Alternatives</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-the-complete-manual-of-adding-captions-on-vimeo/"><u>In 2024, The Complete Manual of Adding Captions on Vimeo</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/kensuns-portable-air-compressor-for-tires-reliability-meets-convenience/"><u>Kensun's Portable Air Compressor for Tires: Reliability Meets Convenience</u></a></li>
+<li><a href="https://win-able.techidaily.com/mastering-optimal-performance-6-tweaks-for-lowering-zooms-cpu-usage/"><u>Mastering Optimal Performance: 6 Tweaks for Lowering Zoom's CPU Usage</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-stem-with-makeblock-a-thorough-review-of-the-innovative-mbot-coding-kit/"><u>Mastering STEM with Makeblock – A Thorough Review of the Innovative mBot Coding Kit</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcome-wireless-power-problems-on-ios-devices-discover-these-7-effective-fixes-for-iphone/"><u>Overcome Wireless Power Problems on iOS Devices: Discover These 7 Effective Fixes for iPhone</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-and-fixing-call-of-duty-world-war-ii-black-screen-problems-in-windows/"><u>Troubleshooting and Fixing Call of Duty: World War II Black Screen Problems in Windows</u></a></li>
+<li><a href="https://change-location.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Vivo Y27 5G | Dr.fone</u></a></li>
 </ul></div>
 

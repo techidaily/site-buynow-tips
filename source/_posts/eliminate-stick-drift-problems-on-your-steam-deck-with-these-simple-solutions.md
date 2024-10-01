@@ -1,7 +1,7 @@
 ---
 title: Eliminate Stick Drift Problems on Your Steam Deck with These Simple Solutions
-date: 2024-08-31T16:37:05.418Z
-updated: 2024-09-01T16:37:05.418Z
+date: 2024-09-29T16:50:53.395Z
+updated: 2024-10-01T20:22:38.340Z
 tags:
   - games
   - tv
@@ -21,6 +21,13 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023
 * [Clean the Affected Thumbstick With Compressed Air or Contact Cleaner](https://facebook-video-share.techidaily.com/updated-top-5-free-youtube-video-editor-apps-for-apple-users/)
 * [Replace the Thumbsticks on Your Steam Deck](https://some-techniques.techidaily.com/in-2024-filmographys-finest-shots-the-best-camera-and-lighting-tips/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Recalibrate your Steam Deck's joysticks in Desktop Mode, and increase the joystick deadzone in Game Mode to eliminate stick drift..
@@ -29,15 +36,24 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023
 
  If one of the thumbsticks on your Steam Deck develops stick drift, there are several solutions you can try to fix the issue. They range from the simple, like recalibrating the stick, to DIY adventures like opening your Deck and replacing the joystick module. Let’s go through them all.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ##  Restart Your Steam Deck and Try Again
 
  The simplest fix you can try is to restart your [Steam Deck](https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-vivo-x100-drfone-by-drfone-virtual-android/) and then try playing the same game to see if that fixes your problem. If the problem persists, go through the control settings menu of the said game and make sure no options are set in such a way that can mess with the stick movement or sensitivity.
 
  If that didn't work, launch another game and try playing it to see whether the problem is still present. Drift in one game but not another points to the game being to blame. If your thumbstick is still drifting, it’s time for a visit to Desktop Mode.
+
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  Recalibrate the Analog Sticks in Desktop Mode
 
@@ -46,6 +62,13 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023
  Once there, click the “Application Launcher” icon followed by “System” and then scroll down until you locate the “Konsole” app.
 
 ![Steam Deck Desktop Mode with the Application Launcher menu open.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/how-to-fix-stick-drift-on-your-steam-deck-02-1.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Open Konsole, pull up the virtual keyboard by pressing the X button, type the following:
 
@@ -65,9 +88,6 @@ thumbstick_cal
 
 ![Steam Deck calibration & advanced settings tool.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/how-to-fix-stick-drift-on-your-steam-deck-04.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Select the “Left Joystick Deadzone” option and press the Y button to test its deadzone. If your right stick is drifting, select the “Right Joystick” option instead, with the R1 button.
 
 ![Calibrating Steam Deck thumbstick in Game Mode.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/how-to-fix-stick-drift-on-your-steam-deck-05.jpg) 
@@ -85,11 +105,19 @@ thumbstick_cal
 ![Tweaking right joystick deadzone in Steam Deck Game Mode.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/how-to-fix-stick-drift-on-your-steam-deck-08.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Clean the Affected Thumbstick With Compressed Air or Contact Cleaner
 
  If your stick is drifting so much that you have to set a deadzone value so high it makes the stick feel too laggy in games, you might want to try opening your Deck and cleaning it with a contact cleaner like [WD-40](https://www.amazon.com/WD-40-Specialist-Electrical-Contact-Cleaner/dp/B00AF0OFVU?tag=hotoge-20&ascsubtag=UUhtgUeUpU2003103&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fhow-to-fix-stick-drift-on-your-steam-deck%2F&asc%5Fcampaign=Evergreen) or [BW-100](https://www.amazon.com/BW-100-Nonflammable-Electronic-Contact-Upsidedown/dp/B07FNBW47M?tag=hotoge-20&ascsubtag=UUhtgUeUpU2003103&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fhow-to-fix-stick-drift-on-your-steam-deck%2F&asc%5Fcampaign=Evergreen).
@@ -110,9 +138,6 @@ thumbstick_cal
 
  If the stick’s still drifting around, it’s time to replace it.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ##  Replace the Thumbsticks on Your Steam Deck
 
  If nothing else works, you’ll have to replace the whole joystick module.
@@ -123,18 +148,6 @@ thumbstick_cal
 
 ![Steam Deck controller ID information.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/how-to-fix-stick-drift-on-your-steam-deck-09.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Now, once you have ordered the modules—I recommend ordering the whole Fix Kit if you don’t have appropriate tools already—follow [the iFixit video guide](https://www.youtube.com/watch?v=z5k6wOMtjzY) in case you own a Steam Deck LCD. And by that I mean follow it to the letter, to avoid any problems because the procedure can be a bit tricky to perform.
 
  If you own a Steam Deck OLED, check out [the guide for replacing the left module](https://www.ifixit.com/Guide/Steam+Deck+OLED+Left+Thumbstick+Replacement/168652), or [the guide for replacing the right one](https://www.ifixit.com/Guide/Steam+Deck+OLED+Right+Thumbstick+Replacement/168609), depending on which of the two thumbstick has drifting issues.
@@ -149,8 +162,6 @@ thumbstick_cal
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -158,4 +169,22 @@ thumbstick_cal
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-graphic-animation-basic-knowledge-and-practices/"><u>[New] Graphic Animation Basic Knowledge & Practices</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-pixelated-panoramas-instaslideshow/"><u>[Updated] Pixelated Panoramas InstaSlideShow</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-turning-social-media-sounds-into-functional-phone-alarms/"><u>2024 Approved Turning Social Media Sounds Into Functional Phone Alarms</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-benefits-of-owning-a-toshiba-55-fire-tv-edge-for-amazon-prime-members-comprehensive-review/"><u>Discover the Benefits of Owning a Toshiba 55 Fire TV EDGE for Amazon Prime Members – Comprehensive Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-family-fun-with-maistos-remote-control-rock-crawler-an-expert-review/"><u>Discovering Family Fun with Maisto's Remote Control Rock Crawler - An Expert Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/economical-review-of-the-mobvoi-ticwatch-e2-great-bargain-mediocre-experience/"><u>Economical Review of the Mobvoi TicWatch E2: Great Bargain, Mediocre Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-powerhouse-that-is-the-asus-zephyrus-g14-an-elite-gamers-dream/"><u>Exploring the Powerhouse That Is the Asus Zephyrus G14 - An Elite Gamer’s Dream</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Honor Magic5 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-samsung-galaxy-a05-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Samsung Galaxy A05? | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-maximize-speaker-volume-effectively-on-windows-operating-systems-xp-11/"><u>How to Maximize Speaker Volume Effectively on Windows Operating Systems (XP-11)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/linksys-velop-evaluated-a-comprehensive-review-of-its-performance-in-mesh-connectivity/"><u>Linksys Velop Evaluated: A Comprehensive Review of Its Performance in Mesh Connectivity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/master-the-art-of-ps4-camera-placement-for-improved-streaming-quality/"><u>Master the Art of PS4 Camera Placement for Improved Streaming Quality</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/mastering-ps4-camera-position-a-step-by-step-guide/"><u>Mastering PS4 Camera Position: A Step-by-Step Guide</u></a></li>
+<li><a href="https://network-issues.techidaily.com/unexpected-display-settings-issue-windows-10-fixed/"><u>Unexpected Display Settings Issue: Windows 10 Fixed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-capabilities-in-depth-look-at-dji-phantom-4-pro-v2-reviewed/"><u>Unveiling the Capabilities: In-Depth Look at DJI Phantom 4 Pro v2 Reviewed</u></a></li>
+</ul></div>
 

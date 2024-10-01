@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Review: The Functionality and Features of Google's Wireless Nest Doorbell (Battery)"
-date: 2024-08-27T12:13:32.459Z
-updated: 2024-08-28T12:13:32.459Z
+date: 2024-09-24T20:04:31.321Z
+updated: 2024-10-01T16:49:50.874Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Review: The Functionality and Features of Google's Wireless Nest Doorbell (Battery)"
@@ -36,6 +36,13 @@ Lifewire / Danny Chadwick
 [View On Amazon](https://www.amazon.com/V1-Dashboard-Recorder-G-Sensor-Recording/dp/B00X528FNE/?tag=lifewire-onsite-prod-20&ascsubtag=4770571%7Cn9eae1cd5706347139b8b83241f9d42ea10%7CB00X528FNE) [View On Home Depot](https://www.homedepot.com/p/Rexing-V1-2-4-in-LCD-FHD-1080p-170-Wide-Angle-Dashboard-Camera-Recorder-Car-Dash-Cam-with-G-Sensor-WDR-Loop-Recording-V1/301705517)
 
 4.2
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Rexing V1 DashCam
 
@@ -84,14 +91,15 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/ztn3EsFqtKkWImvQhtgcr1vlHwI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_02-9ee3aa46e7394a1ab263a6b12b287314.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Danny Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup Process: Be sure that’s where you want to put it**
 
  For those concerned about the hassle of installing a dashcam, don’t worry. The user manual for the Rexing V1 was the clearest and most detailed of all the dashcams we tested. The instructions are written in easy-to-understand language, and every button, feature, and tool is explained in detail so there’s no guesswork when you turn the device on.
@@ -115,13 +123,14 @@ Lifewire / Danny Chadwick
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/9_1pHoEq74JWPJ8reothv8PeI8E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_04-c5d42af8ddfa4296a6c6b1e8551edef6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Set it and forget it**
 
  During our testing, we took the Rexing V1 on several lengthy drives through the cities and countryside of northern Utah. In the week that we had it, we never had a problem with how it functioned. It stayed firmly attached to the windshield, powered on every time we turned the ignition and never missed a frame while we were driving. This is one of those devices that embodies the “set it and forget it” mentality.
@@ -136,21 +145,17 @@ Lifewire / Danny Chadwick
 
  Like the rest of the dashboard cameras we tested, the Rexing V1 has the ability to record audio, but it does a middling job of it. Voices in the car and sounds coming from the interior speakers were clear enough to understand, but sounds from outside the vehicle were muddy at best.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: A good value**
 
  The Rexing V1 retails for $130, but as of the time of this writing, can typically be purchased for closer to $100\. We feel like this is a perfectly appropriate price for this device—it falls right in the middle of the typical dashcam price range, providing better performance than super budget models, but without the high-tech features of the more expensive options out there. In short, it’s a good price for a solid, basic device.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Competition: Z3 Plus vs. Rexing V1**
 
  If you’re wondering if you want to pay the extra $25 or so for the Z-Edge Z3 Plus dashcam (which retails for $125), the decision will come down to form factor and image quality—everything else is pretty much the same.
@@ -167,6 +172,13 @@ Lifewire / Danny Chadwick
 
  There isn’t much to complain about with the Rexing V1 DashCam. Its innovative form factor combined with a wide array of video capture features and decent picture quality means you won’t have any buyer’s remorse if you choose this dashcam.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  V1 DashCam
@@ -181,14 +193,11 @@ Lifewire / Danny Chadwick
 * Night Vision  No
 * Connectivity Options  MicroSD, USB
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -197,4 +206,24 @@ Lifewire / Danny Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-step-by-step-guide-to-creating-fb-slideshows/"><u>[New] 2024 Approved Step-by-Step Guide to Creating FB Slideshows</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordability-meets-innovation-exploring-the-user-friendly-features-of-the-moto-g-stylus-handset/"><u>Affordability Meets Innovation: Exploring the User-Friendly Features of the Moto G Stylus Handset</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-and-durable-comprehensive-review-of-the-omoton-t1-compact-desktop-mount/"><u>Affordable & Durable: Comprehensive Review of the Omoton T1 Compact Desktop Mount</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/b/"><u>B</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/best-12-sports-streaming-sites-free-and-paid-for-2024/"><u>Best 12 Sports Streaming Sites (Free & Paid) for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-lava-yuva-3-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Lava Yuva 3 Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/creative-sound-blaster-zxr-2013-top-gaming-headset-review/"><u>Creative Sound Blaster ZXR 2013 - Top Gaming Headset Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-portable-gaming-on-a-budget-with-our-in-depth-look-at-the-nintendo-switch-lite/"><u>Experience Portable Gaming on a Budget with Our In-Depth Look at the Nintendo Switch Lite</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/feature-face-off-which-is-better-ring-or-nest-doorbells/"><u>Feature Face-Off: Which Is Better, Ring or Nest Doorbells?</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-motorola-moto-g73-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Motorola Moto G73 5G | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/ideal-ergonomic-surfaces-for-gaming-finesse/"><u>Ideal Ergonomic Surfaces for Gaming Finesse</u></a></li>
+<li><a href="https://win-blog.techidaily.com/keyboard-malfunctions-in-pathfinder-strategies-for-resolving-wrath-of-the-righteous-issues/"><u>Keyboard Malfunctions in Pathfinder: Strategies for Resolving 'Wrath of the Righteous' Issues</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-tv-streaming-platforms-of-2024-your-comprehensive-list/"><u>Leading TV Streaming Platforms of 2024: Your Comprehensive List</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigating-the-world-of-custom-gpt-integration-how-to-use-mentions-for-smooth-recognition-during-chatbot-communications/"><u>Navigating the World of Custom GPT Integration: How to Use Mentions for Smooth Recognition During Chatbot Communications</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/step-by-step-guide-transforming-wmv-files-into-mpeg-format-using-windows/"><u>Step-by-Step Guide: Transforming WMV Files Into MPEG Format Using Windows</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/superior-wireless-audiophiles-choice-for-tv/"><u>Superior Wireless Audiophiles' Choice for TV</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unwind-twitch-feeds-immediately-for-2024/"><u>Unwind Twitch Feeds Immediately for 2024</u></a></li>
+</ul></div>
 

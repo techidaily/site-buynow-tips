@@ -1,7 +1,7 @@
 ---
 title: "Explore Free & Reliable Streaming Options: Ditch Steam Link & Discover Open Source Solutions"
-date: 2024-08-31T16:34:06.406Z
-updated: 2024-09-01T16:34:06.406Z
+date: 2024-09-29T17:46:00.276Z
+updated: 2024-10-01T16:18:08.762Z
 tags:
   - games
   - tv
@@ -20,6 +20,13 @@ thumbnail: https://thmb.techidaily.com/010139d6077f90333f3025af8c182332c9900266f
 * Setup is straightforward, but using an Ethernet connection and HEVC/AV1 codecs can improve streaming quality.
 
  Do you find that Steam Remote Play and Steam Link isn’t up to your standards? There's an alternative you can try in the form of Moonlight and Sunshine. This open-source streaming combo works great, is easy to set up, and is available on the same platforms as Steam Remote Play.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  What Are Sunshine and Moonlight?
 
@@ -51,9 +58,6 @@ thumbnail: https://thmb.techidaily.com/010139d6077f90333f3025af8c182332c9900266f
 
 ![Sunshine installation options.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/09/how-to-stream-to-your-steam-deck-18.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
  Once the installation finishes, Sunshine should automatically launch. You can find the app in the taskbar notification area. If it doesn’t start, find the app on your PC and launch it. You should now click the Sunshine icon and then click the “Open Sunshine” button.
 
 ![Sunshine icon on Windows taskbar.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/sunshine-and-moonlight-01.png) 
@@ -72,6 +76,13 @@ thumbnail: https://thmb.techidaily.com/010139d6077f90333f3025af8c182332c9900266f
 
 ![Once you open Moonlight you should see a PC icon with a lock over it](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/09/how-to-stream-to-your-steam-deck-09.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Click the locked PC icon, and Moonlight will provide you with the PIN you have to enter into the Sunshine web UI.
 
 ![After you click the locked PC icon in Moonlight, the app should serve you with a four-digit PIN](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/09/how-to-stream-to-your-steam-deck-10.png) 
@@ -81,8 +92,12 @@ thumbnail: https://thmb.techidaily.com/010139d6077f90333f3025af8c182332c9900266f
 ![After you acquire the four-digit PIN from Moonlight, open Sunshine web UI, go to the PIN tab, enter the PIN in the apropriate dialog box and then click the send button](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/09/how-to-stream-to-your-steam-deck-20.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Now, you can add game and app shortcuts to Sunshine. The shortcuts you add will be shown in Moonlight once you click the PC icon.
 
  To add an app or game shortcut, visit the “Applications” tab in the Sunshine web UI and click the “Add New” button.
@@ -90,18 +105,23 @@ thumbnail: https://thmb.techidaily.com/010139d6077f90333f3025af8c182332c9900266f
 ![Sunshine web UI Applications tab.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/sunshine-and-moonlight-03.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Make sure to name the app and enter the full path to the executable file of the app you want to add. Below is a screenshot showing the path to my Steam executable as an example.
 
 ![Sunshine web UI showing a full path to an application, Steam in this case.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/sunshine-and-moonlight-04.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ##  Tips for Best Results
 
  The next step I recommend is visiting the [Sunshine Tutorials](https://www.youtube.com/playlist?list=PLMYr5%5FxSeuXAbhxYHz86hA1eCDugoxXY0) YouTube playlist. It has a ton of videos that explain how to tweak various settings and get the best possible streaming experience.
@@ -110,16 +130,10 @@ thumbnail: https://thmb.techidaily.com/010139d6077f90333f3025af8c182332c9900266f
 
 ![Sunshine web UI video options.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/sunshine-and-moonlight-02.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
  And here are my Moonlight options:
 
 ![Moonlight game streaming options menu.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/sunshine-and-moonlight-05.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  For the best possible experience, connect the PC you’re streaming games from to your router with an Ethernet cable. A quality Wi-Fi 5 or better router ought to be enough for a low-latency (below 10ms on average) experience. Also, I recommend selecting the [HEVC](https://win-answers.techidaily.com/understanding-and-resolving-recurrent-breakdowns-in-sovled-warno-application-for-windows-users/) or [AV1 video codec](https://fox-info.techidaily.com/new-2024-approved-foundational-approach-to-gradual-volume-adjustment/), both of which work better than the default (H.264) codec and require less bandwidth to deliver the same image quality.
 
  If possible, you should connect the client device you’re streaming games to with an Ethernet cable as well. The performance should be solid, even if you stream games wirelessly like I do with my ROG Ally (as long as the host device packs a decent Wi-Fi chip).
@@ -140,8 +154,6 @@ thumbnail: https://thmb.techidaily.com/010139d6077f90333f3025af8c182332c9900266f
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -149,4 +161,24 @@ thumbnail: https://thmb.techidaily.com/010139d6077f90333f3025af8c182332c9900266f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-a-comprehensive-list-of-8-authentic-propagation-tools/"><u>[New] 2024 Approved A Comprehensive List of 8 Authentic Propagation Tools</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-top-5-techniques-for-capturing-live-sound-over-the-web/"><u>[New] In 2024, Top 5 Techniques for Capturing Live Sound Over the Web</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-step-by-step-crafting-photos-into-engaging-videos-in-pixiz/"><u>[New] Step-by-Step Crafting Photos Into Engaging Videos in Pixiz</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-crafting-engaging-video-content-for-live-streams/"><u>[Updated] In 2024, Crafting Engaging Video Content for Live Streams</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-designers-alley-no-cost-high-impact-text-psdfree/"><u>[Updated] In 2024, Designers' Alley No-Cost, High-Impact Text PSDFree</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-why-the-new-amazon-fire-hd-8-is-a-top-choice-for-entry-level-tablets/"><u>Expert Analysis: Why the New Amazon Fire HD 8 Is a Top Choice for Entry-Level Tablets</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-picks-for-the-secureest-router-options-for-kids-internet-access-202-cuisine-4/"><u>Expert Picks for the Secureest Router Options for Kids' Internet Access, 202 Cuisine -4</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experts-take-on-the-jaco-smartpro-ultimate-compact-and-robust-tire-inflator-reviewed/"><u>Experts' Take on the Jaco SmartPro: Ultimate Compact and Robust Tire Inflator Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/explore-the-six-premier-online-marketplaces-for-high-quality-television-purchases/"><u>Explore the Six Premier Online Marketplaces for High-Quality Television Purchases</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-rayman-legends-a-comprehhemous-review-of-a-stunning-2d-gaming-journey/"><u>Exploring Rayman Legends - A Comprehhemous Review of a Stunning 2D Gaming Journey</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-features-of-unihertz-atom-xl-a-mini-device-with-massive-capabilities/"><u>Exploring the Features of Unihertz Atom XL - A Mini Device with Massive Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-ultimate-list-of-leading-handheld-gaming-systems/"><u>Exploring the Ultimate List of Leading Handheld Gaming Systems</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/face-off-review-how-does-the-nintendo-switch-lite-stack-up-against-the-oled-model/"><u>Face-Off Review: How Does the Nintendo Switch Lite Stack Up Against the OLED Model?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-itel-a05s-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Itel A05s Phone that is Locked?</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-stepwise-approach-to-mastering-vimeo-recording/"><u>In 2024, Stepwise Approach to Mastering Vimeo Recording</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/logitech-g933-sound-issues-follow-these-quick-fixes/"><u>Logitech G933 Sound Issues? Follow These Quick Fixes!</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-ultimate-guide-to-ps5-boot-options-6-ways/"><u>The Ultimate Guide to PS5 Boot Options (6 Ways)</u></a></li>
+</ul></div>
 

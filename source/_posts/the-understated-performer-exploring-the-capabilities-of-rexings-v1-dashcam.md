@@ -1,7 +1,7 @@
 ---
 title: "The Understated Performer: Exploring the Capabilities of Rexing's V1 DashCam"
-date: 2024-09-19T16:51:16.489Z
-updated: 2024-09-26T18:14:54.493Z
+date: 2024-09-24T19:18:12.496Z
+updated: 2024-10-01T16:01:37.947Z
 categories:
   - BestProducts
 description: "This Article Describes The Understated Performer: Exploring the Capabilities of Rexing's V1 DashCam"
@@ -39,16 +39,16 @@ Lifewire / Emily Ramirez
 
 2.8
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -74,24 +74,31 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/U_vmwZDe5HbbungQ5L2hzf2LVto=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-4-b0d1cca56ec04a61b83e20d1cecf2aea.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -105,14 +112,14 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
 
@@ -133,10 +140,10 @@ Lifewire / Emily Ramirez
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Unjustified expense**
@@ -162,19 +169,6 @@ Lifewire / Emily Ramirez
 **A good card that’s showing its age.**
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
-
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -219,18 +213,22 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-earning-insights-from-viewing-data-on-youtube/"><u>[New] In 2024, Earning Insights From Viewing Data on YouTube</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-understanding-whatsapps-voice-communication-system/"><u>[New] Understanding WhatsApp's Voice Communication System</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-streaming-showdown-twitch-versus-youtube-unveiled/"><u>[Updated] In 2024, Streaming Showdown Twitch Versus YouTube Unveiled</u></a></li>
-<li><a href="https://video-capture.techidaily.com/hassle-free-techniques-to-transform-amr-files-into-m4a-format-anytime-anywhere/"><u>Hassle-Free Techniques to Transform AMR Files Into M4A Format Anytime, Anywhere</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-get-and-upgrade-your-asus-vg248qe-drivers-on-a-pc-quick-guide/"><u>How to Get and Upgrade Your Asus VG248QE Drivers on a PC - Quick Guide</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-echoes-in-the-stream-full-year-tweet-video-analysis/"><u>In 2024, Echoes in the Stream - Full Year Tweet Video Analysis</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-xiaomi-redmi-13c-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Xiaomi Redmi 13C online without jailbreak</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/sonic-evolution-with-samsung-galaxy-buds-pro/"><u>Sonic Evolution with Samsung Galaxy Buds Pro</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-best-uninterruptible-power-supply-for-pc-enthusiasts-an-in-depth-review-of-the-apc-model/"><u>The Best Uninterruptible Power Supply for PC Enthusiasts: An In-Depth Review of the APC Model</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-definitive-guide-to-ion-audio-tailgater-plus-effortless-high-quality-audio-on-demand/"><u>The Definitive Guide to ION Audio Tailgater Plus: Effortless High-Quality Audio on Demand!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-sizzling-success-of-overcooked-2-an-in-depth-critique/"><u>The Sizzling Success of Overcooked! 2 - An In-Depth Critique</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-comparison-of-googles-speakers-nest-audio-and-nest-mini-side-by-side/"><u>The Ultimate Comparison of Google's Speakers - Nest Audio and Nest Mini Side by Side</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-amazon-basics-compact-and-lightweight-tablet-support-review-inside/"><u>The Ultimate Guide to Amazon Basic's Compact and Lightweight Tablet Support - Review Inside!</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-ideas-for-making-eye-catching-facebook-video-ads-for-2024/"><u>[New] Ideas for Making Eye-Catching Facebook Video Ads for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-eliminating-exposure-techniques-to-hide-sensitive-content-for-2024/"><u>[Updated] Eliminating Exposure Techniques to Hide Sensitive Content for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-innovative-approaches-to-elevate-roi-in-your-fb-ads-with-animation/"><u>[Updated] Innovative Approaches to Elevate ROI in Your FB Ads with Animation</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-navigating-itunes-to-listen-to-podcasts/"><u>[Updated] Navigating iTunes to Listen to Podcasts</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-peak-craft-studio-masterpiece-insight/"><u>2024 Approved Peak Craft Studio Masterpiece Insight</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-leading-nas-units-reviewed-choose-the-perfect-data-management-solution/"><u>2024'S Leading NAS Units Reviewed - Choose the Perfect Data Management Solution</u></a></li>
+<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-vivo-y36-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from Vivo Y36 to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/determine-how-much-youre-willing-to-spend-on-your-gaming-setup-keeping-in-mind-potential-upgrades-or-peripherals-you-might-want-later-on/"><u>Determine How Much You're Willing to Spend on Your Gaming Setup, Keeping in Mind Potential Upgrades or Peripherals You Might Want Later On.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elite-selection-of-iphone-13-sleeves-expert-picks-protection-and-style/"><u>Elite Selection of iPhone 13 Sleeves: Expert Picks Protection and Style</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/master-the-latest-gear-with-tom-a-trusted-source-for-computer-equipment-reviews/"><u>Master the Latest Gear with Tom - A Trusted Source for Computer Equipment Reviews</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/the-ultimate-list-of-high-quality-screencast-software-on-windows-discover-what-movavi-recommends/"><u>The Ultimate List of High-Quality Screencast Software on Windows - Discover What Movavi Recommends</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-elite-pick-for-ipad-pro-11-case-protection/"><u>Ultimate Selection: Elite Pick for iPad Pro 11 Case Protection</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-the-leading-7g-wi-fi-routers-for-optimal-performance/"><u>Ultimate Selection: The Leading 7G Wi-Fi Routers for Optimal Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-showdown-the-leading-flat-screen-tv-models-of-2023-unveiled/"><u>Ultimate Showdown: The Leading Flat Screen TV Models of 2023 Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-tech-presents-top-picks-for-hardcore-enthusiasts-holiday-haul/"><u>Ultimate Tech Presents: Top Picks for Hardcore Enthusiasts' Holiday Haul</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/utilize-reputable-gaming-performance-benchmarks-like-cinebench-passmark-and-3dmark-to-compare-different-hardware-configurations-within-your-budget-range/"><u>Utilize Reputable Gaming Performance Benchmarks Like Cinebench, PassMark, and 3DMark to Compare Different Hardware Configurations Within Your Budget Range.</u></a></li>
 </ul></div>
 

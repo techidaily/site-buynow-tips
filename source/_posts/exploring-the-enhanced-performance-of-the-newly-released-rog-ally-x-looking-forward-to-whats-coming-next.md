@@ -1,7 +1,7 @@
 ---
 title: Exploring the Enhanced Performance of the Newly Released ROG Ally X - Looking Forward to What's Coming Next
-date: 2024-08-31T16:37:13.409Z
-updated: 2024-09-01T16:37:13.409Z
+date: 2024-09-27T20:49:09.935Z
+updated: 2024-10-01T20:50:43.130Z
 tags:
   - games
   - tv
@@ -56,8 +56,12 @@ ASUS
 ![ASUS ROG Ally Charging Clamp holding the charging cable, preventing it to exert force on the USB-C port.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/asus-rog-ally-charging-clamp-connected.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Goran Damnjanovic / How-To Geek
 
  The linked report also mentions a new “Precision D-Pad” and I’m all for it. The D-Pad on the Ally isn’t _bad_, but it isn’t great either. Any improvement is welcome since it will most likely find its way to the ROG Ally 2.
@@ -70,13 +74,17 @@ Goran Damnjanovic / How-To Geek
 
  If the ROG Ally 2 keeps the upgrades mentioned above, sheds some weight, and comes with a more powerful APU, I’ll be happy. But I’ll be even happier if it packs some of the following upgrades.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ###  A Trackpad
 
  I understand why the Ally X doesn’t feature a trackpad. To fit one, ASUS would have to completely redesign the chassis and rearrange the internal components. But the ROG Ally 2 should really come with one because having one makes navigating around Desktop Mode on my Steam Deck so much more enjoyable. I’m positive a trackpad would make navigating around Windows [almost pain-free](https://win-solutions.techidaily.com/overcoming-unexpected-shutdowns-in-cod-modern-warfare-3-game-application/), too, which is anything but on the ROG Ally.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ###  A Slightly Larger, OLED Screen
 
  ASUS copying Valve and equipping the ROG Ally X with an [OLED](https://review-topics.techidaily.com/mkv-to-sony-xperia-5-v-converter-convert-mkv-for-sony-xperia-5-v-by-aiseesoft-video-converter-play-mkv-on-android/) panel didn’t happen, but if they could pack one inside the ROG Ally 2, I wouldn’t mind. Especially if we get a slightly larger screen in the same body, only with thinner bezels, like on the [Steam Deck OLED](https://sim-unlock.techidaily.com/in-2024-how-to-unlock-atandt-iphone-14-with-3-methods-by-drfone-ios/).
@@ -88,15 +96,33 @@ Goran Damnjanovic / How-To Geek
  The triggers on the Ally are pretty good. They have just the right resistance and pretty generous travel, but they’re just a tad too short for my taste. Triggers being even a half centimeter (a fifth of an inch) taller on the next ROG Ally would be great.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ###  A Physical Button for Switching Between Desktop and Controller Modes
 
 ![GPD Win 4 Mouse Controller Switch button.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/gpd-mouse-controller-switch-button.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 GPD
 
  Virtually all handheld gaming PCs from GPD come with a physical switch for swapping between desktop and controller modes, and having one on the ROG Ally 2 would be awesome. That way, switching between modes would take just one step instead of four—opening the Command Center, going to the Control Mode toggle, toggling it, and then closing the Command Center.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ###  Four Back Buttons Instead of Two
 
@@ -104,9 +130,6 @@ GPD
 
  This means that I can only use one back button in most games. But if the ROG Ally 2 copies the Steam Deck and packs four buttons, I’ll be able to use three of those as regular back buttons, which would be yet another small yet super handy upgrade.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ###  Hall Effect Thumbsticks
 
  ASUS stated they couldn’t fit [Hall effect thumbsticks](https://youtube-blog.techidaily.com/esthetic-alignment-for-online-glamour-content-for-2024/) on the ROG Ally because the Hall effect triggers present on the Ally would interfere with the thumbstick sensors and vice versa if both were Hall effect-based.
@@ -119,9 +142,6 @@ GPD
 
  I’d like the ROG Ally 2 lineup to include a proper budget model—at least 30% more affordable than the high-end model, featuring a 900p screen instead of a 1080p panel.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ###  An APU That’s Designed for a Gaming Handheld
 
  The AMD Z1 Extreme is a solid APU, but it’s clear it wasn’t designed for a handheld. It’s basically a Ryzen 7 7840U with its AI cores disabled. Now that gaming handhelds have become somewhat popular, I’d like AMD to create a proper APU for gaming-focused portable devices.
@@ -136,24 +156,29 @@ Intel
 
  There are also rumors that NVIDIA is preparing an ARM-based [system on a chip](https://screen-activity-recording.techidaily.com/new-discovering-win11s-finest-screen-grabbers-for-2024/) (SoC) with MediaTek that will have a beastly [iGPU](https://tech-savvy.techidaily.com/is-it-wise-to-delegate-money-matters-to-ai/), so I can’t wait to see what's in store in the next 12-24 months and which of the future APUs will power the ASUS ROG Ally 2.
 
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ###  32GB of Memory
 
  24GB of memory on the ROG Ally X is great, but considering just how memory-hungry modern AAA games are and how 8GB of video memory isn’t enough to play certain games with max textures, even at 1080p, I’d like for the ROG Ally 2 to pack 32GB of RAM. Increasing texture detail is one of the most visible yet least demanding ways to improve visuals in modern games, and more memory is necessary to make it happen.
 
  That way, we could reserve 10GB of memory for the iGPU and leave Windows and games with 22GB of RAM, which should be enough even for the most demanding games still set to arrive in this console generation.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ###  Multiple Color Options
 
  This is a first-world problem, but I’d like to see the ROG Ally 2 arrive in multiple flavors.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ###  A Plastic Cover on the Back to Allow for Easy SSD Replacement
 
  You can find this feature on some early GPD handheld PCs and some Microsoft Surface devices also come with an SSD cover. I don’t understand how this hasn't become a regular thing in handheld gaming PCs.
@@ -161,8 +186,12 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 ![Miscrosoft Surface with its SSD Cover removed.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/miscrosoft-surface-ssd-cover.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Microsoft
 
  An SSD cover would mean we wouldn’t have to remove the entire back cover of our handhelds and instead just unscrew the SSD cover, replace the storage drive, screw the cover back, and continue with our day. This is yet another minor tweak that would make the lives of the ROG Ally 2 owners much easier.
@@ -177,8 +206,6 @@ Microsoft
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -186,4 +213,21 @@ Microsoft
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-standout-settings-guide-for-online-events/"><u>[New] Standout Settings Guide for Online Events</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-elevate-your-lol-gameplay-on-camera-three-methods/"><u>[Updated] 2024 Approved Elevate Your LOL Gameplay on Camera - Three Methods</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-top-6-ios-apps-turn-youtube-videos-into-mp3-files/"><u>[Updated] Top 6 iOS Apps Turn YouTube Videos Into MP3 Files</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-tutorial-quickly-convert-youtube-audio-to-mp3-on-mac/"><u>2024 Approved Tutorial Quickly Convert YouTube Audio to MP3 on Mac</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/2024-approved-twitmedia-mastery-elevate-your-tweet-game/"><u>2024 Approved TwitMedia Mastery Elevate Your Tweet Game</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-finest-selection-of-high-performance-17-inch-laptops/"><u>2024'S Finest Selection of High-Performance 17-Inch Laptops</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-value-proposition-a-closer-look-at-the-lenovo-chromebook-duet-your-ideal-affordable-2-in-1-solution/"><u>Discovering the Value Proposition: A Closer Look at the Lenovo Chromebook Duet, Your Ideal Affordable 2-in-1 Solution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/enhance-home-connectivity-using-the-powerful-netgear-nighthawk-x6s-range-extender/"><u>Enhance Home Connectivity Using the Powerful Netgear Nighthawk X6S Range Extender</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-excellence-of-the-huawei-p3n-pro-a-timeless-tech-treasure-reviewed/"><u>Exploring the Excellence of the Huawei P3n Pro: A Timeless Tech Treasure Reviewed</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722974720190-free-download-of-behringer-audio-drives-get-your-hands-on-quality-sound/"><u>Free Download of Behringer Audio Drives - Get Your Hands-On Quality Sound!</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastery-of-photo-date-annotation-methods/"><u>In 2024, Mastery of Photo Date Annotation Methods</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/step-by-step-instructions-for-securing-your-favorite-vh1-songs-on-mac-or-pc/"><u>Step-by-Step Instructions for Securing Your Favorite VH1 Songs on Mac or PC</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tcl-50s425-50-inch-roku-smart-tv-201n-comprehensive-review-and-value-analysis/"><u>TCL 50S425 50-Inch Roku Smart TV (201N) - Comprehensive Review & Value Analysis</u></a></li>
+</ul></div>
 

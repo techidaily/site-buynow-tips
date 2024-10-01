@@ -1,7 +1,7 @@
 ---
 title: "Cheap & Clear: Petcube HD Cam for Pocket-Friendly Watching"
-date: 2024-08-27T12:13:24.793Z
-updated: 2024-08-28T12:13:24.793Z
+date: 2024-09-25T19:54:15.647Z
+updated: 2024-10-01T16:12:08.221Z
 categories:
   - BestProducts
 description: "This Article Describes Cheap & Clear: Petcube HD Cam for Pocket-Friendly Watching"
@@ -40,6 +40,19 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/9YqP4BNKZ_F27rxIYbc3f1vqzd0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_HERO_3LW4065141_3_Final_Square-204b4e949e864f148cd513b3511eac69.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / James Huenink
 
 [View On Amazon $50](https://www.amazon.com/Logitech-Laptop-Webcam-Design-360-Degree/dp/B004YW7WCY/?tag=lifewire-onsite-prod-20&ascsubtag=4784217%7Cn9a41b5a87a5c491e81f6733af031a52502%7CB004YW7WCY) [View On Best Buy $43](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Flogitech-hd-webcam-c615-black%2F2588445.p%3F) [View On Adorama.com $50](https://www.adorama.com/log615.html)
@@ -64,9 +77,6 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ## **Design:** **Flexible, foldable design**
 
  The Logitech C615 is a compact webcam. The whole device folds up into a very small package, just 2.5” wide, 1.25” tall, and 1.5” wide, so you can tuck it into a pocket. When you open it up, the flexible design is simple to position. Unfolded, the webcam has three pieces: the base, neck, and[camera](https://www.lifewire.com/best-digital-cameras-under-100-3897833) . The base is the heaviest part, which means that the camera stays upright even if you don’t perfectly balance everything. The top is made out of a soft, rubbery plastic, and the bottom has a rubbery dot that keeps the base from sliding around. The dot comes off the base to reveal a tripod post, so this camera is compatible with a standard tripod. The only problem is that the dot comes off completely when the tripod post is exposed. If you're prone to losing things, this may be an issue.
@@ -79,11 +89,15 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/jgQ_lVlvzgmXFPpBg5nEd6pgV_c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_12_Final_Horiz-e97c48d3af6842eb88775a9d703ce2b6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ## **Camera Quality: Quality camera with some autofocus troubles**
 
  The camera takes 1080p video and has a 2 MP sensor. We tested the webcam’s photo capabilities by taking a picture of some packaging. Color was well represented, but the autofocus was just a bit off. The image was just a bit blurry, and we couldn’t read the smaller words at all. This wasn’t a problem close up, but it made a bigger difference when people were far away.
@@ -97,14 +111,21 @@ Lifewire / James Huenink
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/Bko9Uk1HIIMt9aNgtBf9ATCy0AA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_14_Final_Horiz-4f1b9fe91b8c4229b17dbbe6afb81b8c.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / James Huenink
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance: Decent sound quality for a small mic**
 
  We used both[Photobooth](https://www.lifewire.com/how-to-turn-on-camera-on-mac-4175436) and[Skype](https://www.lifewire.com/how-to-make-hd-skype-calls-3426508) to test the performance of the C615\. It was very easy to position the camera exactly the way we wanted it, though the USB cable occasionally gave us problems. We’d swivel the camera and then the pull of the USB cable would turn the whole base so the camera pointed back at the same spot where it started.
@@ -113,14 +134,8 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/C2UBXNFmxG8nA0udy1IprMH4LBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_9_Final_Horiz-1af52951f8704af9b76d7dd1ec9744a9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## **Price: Inexpensive HD camera**
 
  The Logitech C615 costs $70 MSRP, but you can find it for about half that cost. Even at full price, it's a solid value. The thoughtful design, image quality, and microphone clarity easily justify the price tag.
@@ -164,8 +179,6 @@ Lifewire / James Huenink
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -173,4 +186,19 @@ Lifewire / James Huenink
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/new-racing-to-the-top-olympic-highlights-in-short-track-speed/"><u>[New] Racing to the Top Olympic Highlights in Short Track Speed</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-six-straightforward-mojang-homes-for-creative-builders/"><u>[Updated] In 2024, Six Straightforward Mojang Homes for Creative Builders</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-ultimate-guide-to-the-lg-bp350-visual-experience/"><u>2024 Approved Ultimate Guide to the LG BP350 Visual Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-leading-outside-hard-drive-models-an-in-depth-review/"><u>Discover the Leading Outside Hard Drive Models : An In-Depth Review</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-lava-blaze-pro-5g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Lava Blaze Pro 5G Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-advanced-approach-harnessing-watch-for-mac-unlock/"><u>In 2024, Advanced Approach Harnessing Watch for Mac Unlock</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-convert-twitter-vids-into-aacmp4-files/"><u>In 2024, Convert Twitter Vids Into AAC/MP4 Files</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/inside-the-world-of-overwatch-a-thrilling-multiplayer-combat-game/"><u>Inside the World of Overwatch: A Thrilling Multiplayer Combat Game</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/instagrams-sideways-video-phenomenon-investigation-required-for-2024/"><u>Instagram's Sideways Video Phenomenon - Investigation Required for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/premium-philips-somneo-overview-the-quintessential-wake-up-device/"><u>Premium Philips Somneo Overview: The Quintessential Wake Up Device</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/prompt-recovery-from-idle-printer-job-queue/"><u>Prompt Recovery From Idle Printer Job Queue</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-mobvois-ticwatch-pro-3-navigating-the-world-with-extended-battery-and-dual-displays/"><u>The Ultimate Guide to Mobvoi's TicWatch Pro 3: Navigating the World with Extended Battery and Dual Displays</u></a></li>
+</ul></div>
 

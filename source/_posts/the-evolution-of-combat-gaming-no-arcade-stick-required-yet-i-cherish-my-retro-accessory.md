@@ -1,7 +1,7 @@
 ---
 title: The Evolution of Combat Gaming - No Arcade Stick Required (Yet I Cherish My Retro Accessory)
-date: 2024-08-31T16:36:40.521Z
-updated: 2024-09-01T16:36:40.521Z
+date: 2024-09-29T16:48:18.642Z
+updated: 2024-10-01T20:16:28.532Z
 tags:
   - games
   - tv
@@ -21,6 +21,13 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
  As fighting games have evolved beyond their arcade roots, the truth is that you don’t need a fight stick anymore. Many players will benefit from innovations made in modern titles by using a standard controller. Despite all this, I still love mine.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  Modern Fighting Games Are Designed For Console Controllers
 
  Motion inputs, like rotating a joystick in a quarter circle and then pressing a button, have always been a barrier for newcomers to fighting games. No other genre controls like this, so they take some time to learn, especially if you’ve never used an arcade stick before.
@@ -28,6 +35,19 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
  Even once you’ve learned this “second language” of gaming controls, linking them together into flashy combos is an even tougher challenge. They’re not necessarily designed with standard console controllers in mind, requiring the awkward workaround of sliding your thumb around a D-pad.
 
 ![A fight stick, a PS5 DualSense controller, and a fightpad.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/img_6322.jpeg) 
+
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Tim Rattray / How-To Geek
 
@@ -42,8 +62,12 @@ Tim Rattray / How-To Geek
 Tim Rattray / How-To Geek
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Arcade Sticks Make Fighting Games Feel Unique
 
  Given that I enjoy most video games with a standardized controller in hand, fighting games provide an opportunity to spice up my way of play. Piloting a fight stick brings both tangible and intangible benefits that make it my preferred way to throw fireballs.
@@ -56,9 +80,6 @@ Tim Rattray / How-To Geek
 
 ![Street Fighter 6 and a fight stick.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/img_6305.jpeg) 
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 Tim Rattray / How-To Geek
 
  I didn’t have a chance to partake in arcade culture at its height in the 1990s. As a ’93 baby, it was just before my time. Playing with a fight stick is the closest I can get to experiencing even a sliver of a scene I wish I had been a part of.
@@ -69,9 +90,6 @@ Tim Rattray / How-To Geek
 
  It’s intangible for sure but it elevates the genre beyond an experience to an event.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ##  Which Controller Is Right for You?
 
  Fighting games have grown in population over the past handful of years due to their increased approachability. As such, many newcomers to the genre are questioning if they should buy a fight stick or stick with what they have.
@@ -98,6 +116,13 @@ Hori Fighting Commander Octa for PlayStation 5
 
 ![Mayflash Arcade Stick F500 V2 with Magic-S Ultimate Wireless Bluetooth USB Adapter.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/img_6298.jpeg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Tim Rattray / How-To Geek
 
 Mayflash Arcade Stick F500 V2 with Magic-S Ultimate Wireless Bluetooth USB Adapter
@@ -112,9 +137,6 @@ Mayflash Arcade Stick F500 V2 with Magic-S Ultimate Wireless Bluetooth USB Adapt
 
 ![Qanba Obsidian 2 (close-up).](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/img_6312.jpeg) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Tim Rattray / How-To Geek
 
 Qanba Obsidian 2
@@ -125,14 +147,8 @@ Qanba Obsidian 2
 
 ![Hit Box Arcade all-button arcade fight controller.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/hb-banner-6k75-v1603928475374.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 Hit Box
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ##  Play How You Want (But Fight Sticks Are Cool)
 
  Ultimately, the best way to play fighting games is however you feel most comfortable. By design, most players of today’s most popular fighting games will get along just fine using modernized control schemes on the controller they already own. There’s absolutely nothing wrong with this; the more people playing fighting games, the merrier!
@@ -145,8 +161,6 @@ Hit Box
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -154,4 +168,26 @@ Hit Box
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-accessing-global-events-facebook-live-on-roku-devices/"><u>[New] 2024 Approved Accessing Global Events Facebook Live on Roku Devices</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-precision-videography-at-your-fingertips-phones-with-top-tier-image-stabilization/"><u>[New] Precision Videography at Your Fingertips Phones with Top-Tier Image Stabilization</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-creating-a-fortified-mc-homebase-for-2024/"><u>[Updated] Creating a Fortified MC Homebase for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-pushing-the-boundaries-with-sony-discovering-4k-on-smartphones-for-2024/"><u>[Updated] Pushing the Boundaries with Sony - Discovering 4K on Smartphones for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-innovative-qanda-strategy-for-attracting-audio-lovers/"><u>2024 Approved Innovative Q&A Strategy for Attracting Audio Lovers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/amazon-basics-tablet-support-device-review-a-handy-stand-for-on-demand-use/"><u>Amazon Basics Tablet Support Device Review: A Handy Stand for On-Demand Use</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/amazon-prime-an-investment-that-pays-off-over-time/"><u>Amazon Prime: An Investment That Pays Off Over Time</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-your-apple-iphone-6-plus-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On your Apple iPhone 6 Plus</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/choosing-your-macbook-understanding-the-variances-between-air-and-pro-models/"><u>Choosing Your MacBook: Understanding the Variances Between Air and Pro Models</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-lenovo-thinkpad-x12-detachable-a-superior-blend-of-convertible-design-and-excellent-typing-comfort/"><u>Evaluating the Lenovo ThinkPad X12 Detachable: A Superior Blend of Convertible Design & Excellent Typing Comfort</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-elevate-your-meetings-with-teamsnap-expertise/"><u>In 2024, Elevate Your Meetings with TeamSnap Expertise</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-logitechs-c615-affordable-excellence-for-your-streaming-needs/"><u>In-Depth Review of Logitech's C615: Affordable Excellence for Your Streaming Needs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-police-bodycams-on-the-market-your-2024-compendium/"><u>Leading Police Bodycams on the Market – Your 2024 Compendium</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-portable-power-solutions-for-your-laptop-the-definitive-list-of-2024/"><u>Leading Portable Power Solutions for Your Laptop: The Definitive List of 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/lenovo-display-software-upgrade-free-download-and-installation-guide/"><u>Lenovo Display Software Upgrade: Free Download and Installation Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/memes-for-iphone-for-2024/"><u>Memes for iPhone for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/mycam-recorder-unveiled-an-expert-review/"><u>MyCam Recorder Unveiled An Expert Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-viewing-experience-with-apples-2021-4k-streamer-and-voice-control-features/"><u>Revolutionize Your Viewing Experience with Apple's 2021 4K Streamer and Voice Control Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleash-connectivity-with-starlink-4-unmatched-benefits/"><u>Unleash Connectivity with Starlink: 4 Unmatched Benefits</u></a></li>
+</ul></div>
 

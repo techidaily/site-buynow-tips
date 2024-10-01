@@ -1,7 +1,7 @@
 ---
 title: "Mastering Mobile Photography: Professional Tips for Capturing Stunning Images with Your Phone"
-date: 2024-08-31T16:36:18.118Z
-updated: 2024-09-01T16:36:18.118Z
+date: 2024-09-30T17:40:22.452Z
+updated: 2024-10-01T19:16:21.711Z
 tags:
   - games
   - tv
@@ -56,9 +56,6 @@ Ben Lovejoy / How-To Geek
 
  Sculptures can also provide interesting material to include in a scene, but if they contain cutouts, see whether there might be an interesting shot by shooting through one of them. Depending on how high it is off the ground and how accessible it is, your ability to control the angle of the shot might be limited. In this case, for example, the fact that it's up quite high meant that I couldn't include quite as many of the lower buildings as I'd have liked, but I think it still works well.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ##  The Rule of Thirds
 
  You may have heard of the Rule of Thirds. Personally, I think of it more as the Guideline of Thirds, as it's certainly not a rule, as we'll see shortly. But as a guide, it does often work incredibly well, which is why most camera apps offer the option of displaying grid lines to help you use it. I use an iPhone, and you can see it here.
@@ -66,8 +63,12 @@ Ben Lovejoy / How-To Geek
 ![Grid](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/grid.PNG) 
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 (Screengrab)
 
  The faint white lines are the RoT grid lines, and the yellow line shows you whether you have the horizon level (it's yellow when you do, white and broken when you don't). Android camera apps usually have the same. (If you don't see them, then on iPhone go into the Settings app to toggle it on: Camera > Grid. If you have an Android phone, tap the three dots menu top right in the camera app to enter settings, then select "Grid."
@@ -88,9 +89,6 @@ Ben Lovejoy / How-To Geek
 
 ![2-Thirds4](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/2-thirds4.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  Here, I want the viewer to begin looking at the grille of the car and then follow the line of cars back. (That's another technique that can be useful to play with, known as leading lines.) So here, the grille is bottom-right.
@@ -98,13 +96,24 @@ Ben Lovejoy / How-To Geek
 ![2-Thirds3](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/2-thirds3.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Ben Lovejoy / How-To Geek
 
  In this final example, the woman is, of course, the subject of the shot, and I've positioned her roughly bottom-left. Again, mathematicians might object that her face is more like a sixth of the way from the left, but that's why I refer to it as a guide rather than a rule.
 
  Ultimately, the Rule of Thirds is not intended to turn you into a robot, mechanically using exact placements, but rather to cure the common tendency of beginner photographers to position everything in the center of the frame. Use it as a guideline, but use your own judgment as to what looks best.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  When Symmetry Is The Better Choice
 
@@ -118,19 +127,18 @@ Ben Lovejoy / How-To Geek
 
 ![3-Symmetry2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/3-symmetry2.jpg) 
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  There will be times when symmetrical framing just looks right. I often find that's the case with beautiful architectural details, for example. In this case, in a grand cafe in Buenos Aires, it seemed clear to me that the architect intended the design to be enjoyed from a central vantage point, so that's how I shot it.
 
 ![3-Symmetry3](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/3-symmetry3.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ben Lovejoy / How-To Geek
 
@@ -143,6 +151,13 @@ Ben Lovejoy / How-To Geek
  What do I mean by this? A layered photo might have something in the foreground (close to us), something in the midground (middle distance), and something in the background (most distant point). Other times, we might only think in terms of foreground and background—it's generally having a foreground element that creates that feeling of depth. Again, let's look at some examples.
 
 ![4-Layers1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/4-layers1.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ben Lovejoy / How-To Geek
 
@@ -164,36 +179,24 @@ Ben Lovejoy / How-To Geek
 
 ![5-Angles3](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/5-angles3.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  In this case, I've gotten down low and shot directly upwards to create a more interesting view of the Lloyds of London building that we would have got from a more conventional angle.
 
 ![5-Angles6](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/5-angles6.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  Similarly, for this shot of a mosque in Casablanca, I've walked into one of the arches, put the camera on the ground so it's shooting straight up, and then used the self-timer to step back so I'm not in the shot.
 
 ![5-Angles4-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/5-angles4-1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  For a shot of this spectacular hotel atrium in Shanghai, I've taken the opposite approach. While it looked good shooting up from the lobby, I found that taking the elevator to the top floor and shooting down gave an even better view. I've also chosen a tight shot to fill the frame with nothing but the atrium.
 
 ![5-Angles7](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/5-angles7.JPG) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  Finally, think laterally! It's hard to take a bad shot of a hot-air balloon, but since I was learning to fly them at the time, I had the opportunity to find an unusual angle.
@@ -204,20 +207,31 @@ Ben Lovejoy / How-To Geek
 
 ![6-Wide-close1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/6-wide-close1.JPG) 
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ben Lovejoy / How-To Geek
 
  First, we have a wide-angle shot, which shows a good chunk of the city.
 
 ![6-Wide-close2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/6-wide-close2.JPG) 
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  But simply turning a little to my left and selecting the 5x telephoto lens on my iPhone gave me this close-up of the back of the Walkie-Talkie: same time, same place, but a completely different shot.
 
 ![6-Wide-close0a](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/6-wide-close0a.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ben Lovejoy / How-To Geek
 
@@ -225,32 +239,30 @@ Ben Lovejoy / How-To Geek
 
 ![6-Wide-close0b](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/6-wide-close0b.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  But zoom in, and we get a _very_ different shot, again from the same place at the same time. It was this shot I ended up hanging on my wall.
 
 ![6-Wide-close3](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/6-wide-close3.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  A day trip from Vegas to the Valley of Fire let me get this wide shot, which looks like something out of a car commercial.
 
 ![6-Wide-close4](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/6-wide-close4.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  A very close and tight shot of one of the nearby rock formations gave me a very abstract-looking shot that couldn't be more different.
 
 ![6-Wide-close5](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/6-wide-close5.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ben Lovejoy / How-To Geek
 
@@ -274,8 +286,6 @@ Ben Lovejoy / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -283,4 +293,23 @@ Ben Lovejoy / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ed-discovering-the-top-5-smarter-url-lengtheners-for-youtube-for-2024/"><u>[Updated] Discovering the Top 5 Smarter URL Lengtheners for YouTube for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/choosing-between-googles-smart-speakers-audio-vs-mini-detailed-review/"><u>Choosing Between Google's Smart Speakers: Audio Vs Mini Detailed Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/diy-approach-building-a-customized-nintendo-identity-for-seamless-gaming-experience-on-your-3ds/"><u>DIY Approach: Building a Customized Nintendo Identity for Seamless Gaming Experience on Your 3DS</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elite-fitness-gadgets-of-2024-a-comprehensive-guide-to-the-best-options/"><u>Elite Fitness Gadgets of 2024 - A Comprehensive Guide to the Best Options</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ensure-your-titles-are-specific-and-descriptive-avoid-vague-or-generic-phrases-that-dont-communicate-clear-value-to-potential-readers/"><u>Ensure Your Titles Are Specific and Descriptive; Avoid Vague or Generic Phrases that Don't Communicate Clear Value to Potential Readers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-robust-and-portable-kensun-air-compressor-a-must-have-for-car-enthusiasts/"><u>Evaluating the Robust & Portable Kensun Air Compressor: A Must-Have for Car Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-a-refreshing-morning-with-the-totobay-2nd-generation-wake-up-light-top-value-pick-for-your-bedroom/"><u>Experience a Refreshing Morning with the Totobay 2Nd Generation Wake-Up Light - Top Value Pick for Your Bedroom</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-kensun-tire-inflator-durability-dependability-and-mobility-evaluation/"><u>Expert Analysis of the Kensun Tire Inflator: Durability, Dependability & Mobility Evaluation</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/failed-to-play-mp4-movies-with-motorola-moto-g24-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Failed to play MP4 movies with Motorola Moto G24</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-call-logs-from-infinix-note-30-vip-racing-edition-by-fonelab-android-recover-call-logs/"><u>How to rescue lost call logs from Infinix Note 30 VIP Racing Edition</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-vivo-y27-5g-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Vivo Y27 5G Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-oneplus-nord-ce-3-5g-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on OnePlus Nord CE 3 5G Devices</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-introducing-low-tier-sound-diminution-tricks-with-audacity/"><u>In 2024, Introducing Low-Tier Sound Diminution Tricks with Audacity</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagram-edge-video-cutting-techniques-to-boost-engagement/"><u>Instagram Edge Video Cutting Techniques to Boost Engagement</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/on-demand-video-compression-service-zero-cost-no-hassle-video-reduction-solutions/"><u>On-Demand Video Compression Service: Zero Cost, No Hassle Video Reduction Solutions</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-tips-solve-your-chrome-stalling-problems-with-these-simple-fixes-for-windows-11-users/"><u>Troubleshooting Tips: Solve Your Chrome Stalling Problems with These Simple Fixes for Windows 11 Users</u></a></li>
+</ul></div>
 

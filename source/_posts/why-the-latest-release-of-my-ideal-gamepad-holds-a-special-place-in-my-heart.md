@@ -1,7 +1,7 @@
 ---
 title: Why the Latest Release of My Ideal Gamepad Holds a Special Place in My Heart
-date: 2024-08-31T16:33:45.005Z
-updated: 2024-09-01T16:33:45.005Z
+date: 2024-09-30T17:29:20.645Z
+updated: 2024-10-01T17:09:23.468Z
 tags:
   - games
   - tv
@@ -21,6 +21,13 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2
 * [A Rechargeable Battery That Can Be Replaced With AAs](https://mondly-stories.techidaily.com/career-advantages-with-cognition-the-top-4-reasons-to-learn-languages-later-in-life/)
 * [Make the Controller Your Own](https://on-screen-recording.techidaily.com/updated-top-5-alternatives-to-bandicam-for-pro-mac-users/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * The 8BitDo Pro 2 controller looks great and is comfortable to hold during any style of game.
@@ -29,13 +36,6 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2
 
  Sure, you can play games using only your phone or a keyboard and mouse, but you'll get the most out of your games with a dedicated controller. The question is, which one do you choose? I'm here to tell you that the [8BitDo Pro 2](https://www.8bitdo.com/pro2/) controller is, hands down, the best controller you can buy.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ##  A Controller That James Bond Would Use
 
  Let's get the most important bit out of the way first. Is the Pro 2 controller comfortable to hold? Yes. It feels like the PlayStation and Super Nintendo controllers had a baby.
@@ -50,6 +50,13 @@ No advertising on the website.
 
 ![Shoulder buttons on the 8BitDo Pro 2 controller.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/06/1000080700.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Bertel King / How-To Geek
 
  A controller first modeled after the Super Nintendo gamepad is going to work very well for 2D retro games. Whether you're emulating older titles or playing modern games like _Coromon_ or _Dead Cells_, the controller will serve you just fine.
@@ -60,16 +67,17 @@ Bertel King / How-To Geek
 
  But if you want to choose a controller layout that suits the widest range of games, this is the way to go.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  It Pairs With (Almost) Everything
 
 ![Input switch on the 8BitDo Pro 2 controller.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/06/1000080697.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Bertel King / How-To Geek
 
  You would be forgiven for thinking that any Bluetooth controller pairs with any Bluetooth-compatible device. That's not the case. Connecting either an Xbox or PlayStation controller to a Nintendo Switch requires an adapter. Some newer controllers don't work with older mobile games. It can be an exercise in trial and error.
@@ -85,16 +93,10 @@ Bertel King / How-To Geek
 
  The regular Pro 2 controller doesn't connect to Microsoft's game console, but there is a separate [wired Pro 2 made specifically for the Xbox](https://www.8bitdo.com/pro2-wired-controller-for-xbox/). Unfortunately, there isn't any type of PlayStation compatibility.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ##  A Rechargeable Battery That Can Be Replaced With AAs
 
 ![8BitDo Pro 2 controller with battery cover removed.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/06/1000080699.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Bertel King / How-To Geek
 
  Early wireless controllers used disposable batteries. This meant you needed to have a stockpile handy, and your gaming session could come to an abrupt end if you didn't.
@@ -106,8 +108,12 @@ Bertel King / How-To Geek
  The Pro 2 comes with a rechargeable pack (that looks like two AAs strapped together) which you can recharge simply by plugging a charger into the controller's USB-C port. You never have to pop off the battery cover if you don't want to, but the option is there for people who want it or to extend the controller's life when the battery pack eventually dies. Like an old WiiMote, the Pro 2 is a controller you can expect to stand the test of time.
 
 <!-- affiliate ads begin -->
-
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  Make the Controller Your Own
 
 Close 
@@ -130,8 +136,6 @@ Close
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -139,4 +143,19 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-navigate-to-full-screen-bliss-on-facebook/"><u>[Updated] 2024 Approved Navigate to Full-Screen Bliss on Facebook</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-rhythmic-entry-points-curating-soundscapes-for-podcasts/"><u>[Updated] Rhythmic Entry Points Curating Soundscapes for Podcasts</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1-how-to-troubleshoot-and-resolve-issues-with-non-playable-instagram-video-content/"><u>1. How to Troubleshoot and Resolve Issues with Non-Playable Instagram Video Content</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-insignia-ns-43df710na19-amazon-fire-tv-review-with-alexa-voice-control-and-uhd-capability/"><u>Affordable Insignia NS-43DF710NA19 Amazon Fire TV Review with Alexa Voice Control & UHD Capability</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-security-top-review-of-remobells-video-doorbell-below-100/"><u>Affordable Security: Top Review of RemoBell's Video Doorbell Below $100</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/alcatel-joy-tab-ebx-8-hd-best-low-cost-lte-tablet-on-the-market/"><u>Alcatel Joy Tab Ebx 8 HD - Best Low-Cost LTE Tablet on the Market</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apples-mid-range-maestro-a-detailed-review-of-the-iphone-se-2vehicleyear-2020-understanding-its-place-in-the-market/"><u>Apple's Mid-Range Maestro: A Detailed Review of the iPhone SE (2Vehicle_year: 2020, Understanding Its Place in the Market</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/construye-asociaciones-exitosas-con-winxdvd-para-impulsar-tu-marca-y-liderazgo-en-el-mercado/"><u>Construye Asociaciones Exitosas Con WinXDVD Para Impulsar Tu Marca Y Liderazgo en El Mercado</u></a></li>
+<li><a href="https://techtrends.techidaily.com/expert-advice-repairing-your-androids-capacity-for-making-and-answering-calls/"><u>Expert Advice: Repairing Your Android's Capacity for Making and Answering Calls</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/select-your-footage-editor-hero-or-cube-edition-for-2024/"><u>Select Your Footage Editor Hero or Cube Edition for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-vivo-y17s-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Vivo Y17s | Dr.fone</u></a></li>
+</ul></div>
 
