@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Verdict on Netgear Orbi – Ahead of the Pack as 2021'S Premier Mesh Router
-date: 2024-08-27T12:12:00.986Z
-updated: 2024-08-28T12:12:00.986Z
+date: 2024-10-01T21:13:59.822Z
+updated: 2024-10-06T22:30:18.993Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Verdict on Netgear Orbi – Ahead of the Pack as 2021'S Premier Mesh Router
@@ -42,6 +42,13 @@ thumbnail: https://www.lifewire.com/thmb/3xIrIFD4zMXO8jYRgawFcSf2Eqw=/400x300/fi
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/AfRhNgqeOD7JfcVqpjzm5LwPSB4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 [View On Amazon $185](https://www.amazon.com/dp/B07T89YZWD?tag=lifewire-onsite-prod-20&ascsubtag=4846125%7Cn35b11b2c61b54fa1a2d951691d1a61ed04%7CB07T89YZWD) [View On Walmart $379](https://www.walmart.com/ip/NETGEAR-Nighthawk-AX6000-Dual-Band-WiFi-Wireless-6-Mesh-Range-Extender-EAX80-100NAS/122370265) [View On Best Buy $197](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-nighthawk-ax6000-ax8-dual-band-wi-fi-6-range-extender-black%2F6359409.p%3FskuId%3D6359409)
@@ -67,8 +74,18 @@ thumbnail: https://www.lifewire.com/thmb/3xIrIFD4zMXO8jYRgawFcSf2Eqw=/400x300/fi
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -89,15 +106,8 @@ thumbnail: https://www.lifewire.com/thmb/3xIrIFD4zMXO8jYRgawFcSf2Eqw=/400x300/fi
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ## **Connectivity: Smooth sailing**
 
  Once through the hassle of setup, the Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender really did deliver strong performance. I tested the connection in my office, which reliably sees reduced 5GHz reception from my router due to obstructions in between, and saw a noticeable boost in both reception and speed.
@@ -115,8 +125,12 @@ thumbnail: https://www.lifewire.com/thmb/3xIrIFD4zMXO8jYRgawFcSf2Eqw=/400x300/fi
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -126,22 +140,18 @@ thumbnail: https://www.lifewire.com/thmb/3xIrIFD4zMXO8jYRgawFcSf2Eqw=/400x300/fi
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: More than most**
 
  The Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender is listed at $250, although it’s being sold for $220 at multiple retailers as of this writing. That’s definitely on the higher end for an extender.
 
  Should you really spend that much on an extender? If you don’t already have a new Wi-Fi 6 router, then probably not. You might see higher peaks of speed as I did, but rather than trying to mix and match old and new tech, you’re probably better off investing in a new Wi-Fi mesh system that can cover the entire house. Netgear’s Orbi is a favorite, as is Google’s similar Nest Wi-Fi system.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## **Netgear Nighthawk AX8 vs. Netgear Nighthawk X6S (EX8000)**
 
  Both of these Netgear Nighthawk Wi-Fi extenders will set you back $200 or more, and the key difference between them—aside from design—is the Wi-Fi 6 compatibility of the Nighthawk AX8\. The Nighthawk X6S (see on[Amazon](https://www.amazon.com/NETGEAR-Wi-Fi-Range-Extender-EX8000/dp/B074F3M2W8/?tag=lifewire-onsite-prod-20&ascsubtag=4846125%7Cn35b11b2c61b54fa1a2d951691d1a61ed04%7C) ) doesn’t have that, but it does deliver excellent 5GHz range and has four Gigabit Ethernet ports for wired devices. The Nighthawk AX8 is more future-proof as a result, but at a greater cost that becomes increasingly difficult to justify the higher, it climbs.
@@ -169,8 +179,6 @@ thumbnail: https://www.lifewire.com/thmb/3xIrIFD4zMXO8jYRgawFcSf2Eqw=/400x300/fi
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -178,4 +186,22 @@ thumbnail: https://www.lifewire.com/thmb/3xIrIFD4zMXO8jYRgawFcSf2Eqw=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-youtubers-playbook-advanced-techniques-for-engaging-editing/"><u>[New] 2024 Approved Youtuber's Playbook Advanced Techniques for Engaging Editing</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-horizon-hurdlers-celebrating-the-most-staying-power-drones/"><u>[New] Horizon Hurdlers Celebrating the Most Staying Power Drones</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-expert-guide-to-scripting-ae-plug-ins/"><u>[Updated] 2024 Approved Expert Guide to Scripting AE Plug-Ins</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/1716069304922-updated-2024-approved-sprightly-spirits-top-kid-approved-games/"><u>[Updated] 2024 Approved Sprightly Spirits Top Kid-Approved Games!</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-top-listings-of-youtube-partner-opportunities-and-advertisements/"><u>2024 Approved Top Listings of YouTube Partner Opportunities and Advertisements</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/effortless-guide-mastering-the-art-of-converting-vevo-files-into-high-quality-mp3/"><u>Effortless Guide: Mastering the Art of Converting VEVO Files Into High-Quality MP3</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elevate-your-conversations-with-sennheiser/"><u>Elevate Your Conversations with Sennheiser</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elite-selection-of-tracking-wristwear-the-premier-runners-chronographs-of-2024/"><u>Elite Selection of Tracking Wristwear - The Premier Runners' Chronographs of 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/essential-choices-premier-extended-pads-for-pc-users-rankings-and-insights-2eplus-years/"><u>Essential Choices: Premier Extended Pads for PC Users - Rankings and Insights (2E+ Years)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-performance-and-user-experience-of-linksyss-universal-choice-ac1900-max-stream-router/"><u>Evaluating Performance & User Experience of Linksys's Universal Choice AC1900 Max-Stream Router</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-linksys-wrt1/"><u>Expert Analysis: Linksys WRT1</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-picks-for-the-ultimate-smart-speaker-comparison-of-2024/"><u>Expert Picks for the Ultimate Smart Speaker Comparison of 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-celebrated-20-independent-pubg-photo-sequences/"><u>In 2024, Celebrated 20 Independent PUBG Photo Sequences</u></a></li>
+<li><a href="https://fox-that.techidaily.com/is-this-a-sign-unraveling-reasons-for-imessages-sent-as-text-messages-and-possible-blocks/"><u>Is This a Sign? Unraveling Reasons for iMessages Sent as Text Messages and Possible Blocks</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-alternatives-round-up-top-3-contenders/"><u>YouTube Alternatives Round-Up Top 3 Contenders</u></a></li>
+</ul></div>
 

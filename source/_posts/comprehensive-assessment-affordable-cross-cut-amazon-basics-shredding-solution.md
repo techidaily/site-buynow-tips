@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
-date: 2024-09-26T19:13:33.711Z
-updated: 2024-10-01T21:21:40.515Z
+date: 2024-10-02T23:21:03.874Z
+updated: 2024-10-06T16:10:04.534Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
@@ -37,6 +37,13 @@ Lifewire / Jonno Hill
 
 4
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## HP Omen Obelisk
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/ltgwwtDrSkLcZMSVU6VX1rKcbaA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_HP-OMEN-Obelisk-Gaming-Desktop-Computer-1-56ba747009334162a328f46d8b4743af.jpg)
@@ -69,19 +76,6 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/OXMiCXvzh8P7esVvbjPoSorzoxM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-2-7b14850c2ca84af39d5fd116ab483d5d.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
 
 ## **Design** : **Nice looks and small footprint, with many reservations**
@@ -108,13 +102,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance** :**Great components for gaming and productivity**
 
  The HP OMEN Obelisk that I tested featured a 9th Gen Intel Core i9 9900K, 32GB of RAM, a 1TB SSD, and the Nvidia GTX GeForce 2080 Super graphics card. This is a potent combination of components in a gaming PC, and I was appropriately impressed by the results.
@@ -138,10 +125,10 @@ Lifewire / Jonno Hill
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Pz9tV-mhJl_Cjm8HSqEQ_VZPbVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-5-cdbd9d78a8c14b8e8bce0113d12e9fcc.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
@@ -163,10 +150,10 @@ Lifewire / Jonno Hill
  The option to overclock your system has you first run a nondescript benchmark, which produces a score with no reference point (to establish a baseline). While it’s nice to have the option, this really,_sincerely_ isn’t a system you want to be overclocking. The i9-9900K CPU already runs alarmingly hot, even with its pre-installed water cooling solution. There also isn’t enough room for anything beyond a 120mm AIO watercooler, and not nearly enough clearance for a popular air heatsink like the Noctua NH-D15.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Highly competitive**
@@ -177,14 +164,14 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/J3cZUfrEy-ALtFpRbDRhw7FZI8M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-4-f78d504d7bd348eca19b7e65b4d10289.jpg)
 
- Lifewire / Jonno Hill
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Jonno Hill
 
 ## **HP OMEN Obelisk vs Corsair One Pro**
 
@@ -197,6 +184,13 @@ Lifewire / Jonno Hill
  **High performance and fantastic value, but upsetting thermals.**
 
  The HP OMEN Obelisk delivers fantastic value for gamers shopping for a high-performance, pre-built PC. HP has come a long way, and now offers a much more compelling solution that will appeal to a much broader set of buyers. That said, there is work to be done still, as the case suffers from poor airflow, poor thermals, and not a lot of meaningful ways to improve them.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -232,20 +226,17 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-maximizing-your-content-tips-for-rl-recording-and-editing/"><u>[New] 2024 Approved Maximizing Your Content Tips for RL Recording & Editing</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-from-picture-to-paragraph-text-on-windows-and-mac-photos/"><u>[Updated] From Picture to Paragraph Text on Windows & Mac Photos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-capture-clearness-without-a-tripod-tool/"><u>[Updated] In 2024, Capture Clearness Without a Tripod Tool</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unveiling-the-secrets-of-successful-youtube-videos/"><u>[Updated] In 2024, Unveiling the Secrets of Successful YouTube Videos</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-easy-speech-alteration-for-sony-playstation-devices/"><u>2024 Approved Easy Speech Alteration for Sony PlayStation Devices</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/2024s-ultimate-selection-for-premium-residential-weather-systems/"><u>2024'S Ultimate Selection for Premium Residential Weather Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-social-media-giant-persists-unraveling-the-facebook-phenomenon/"><u>A Social Media Giant Persists - Unraveling the 'Facebook Phenomenon'</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/compact-convenience-meets-reliability-with-the-kensun-portable-air-compressor-unveiled/"><u>Compact Convenience Meets Reliability with the Kensun Portable Air Compressor Unveiled</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/detailed-assessment-and-review-of-the-high-definition-logitech-c92n-camera-for-video-conferencing/"><u>Detailed Assessment and Review of the High-Definition Logitech C92n Camera for Video Conferencing</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exclusive-apple-discounts-mega-deals-for-prime-day-shoppers/"><u>Exclusive Apple Discounts: Mega Deals for Prime Day Shoppers</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/expand-your-nes-collection-a-step-by-step-guide-to-adding-new-titles/"><u>Expand Your NES Collection: A Step-by-Step Guide to Adding New Titles</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-asus-ax6000-rt-ax88u-wireless-adapter-the-ultimate-wi-fi-6-hub-for-home-and-office/"><u>In-Depth Analysis of the Asus AX6000 RT-AX88U Wireless Adapter: The Ultimate Wi-Fi 6 Hub for Home and Office</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/pixel-power-unveiling-youtubes-twitter-crew/"><u>Pixel Power Unveiling YouTube's Twitter Crew</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/powershot-g9xii-review-the-new-classic-travel-companion/"><u>PowerShot G9XII Review: The New Classic Travel Companion</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/reviews-and-insights-on-the-efficient-charging-solution-anker-powercoreplus-uge-26800b/"><u>Reviews & Insights on the Efficient Charging Solution: Anker PowerCore+ Uge 26800B</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/conversion-voc-avi-sin-costos-guia-expertos-para-usar-movavi-en-linea/"><u>Conversión VOC-AVI Sin Costos: Guía Expertos Para Usar Movavi en Línea</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decoding-value-an-in-depth-review-of-the-newly-launched-amazon-fire-hd-8-tablet/"><u>Decoding Value: An In-Depth Review of the Newly Launched Amazon Fire HD 8 Tablet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-best-in-economy-laptops-an-in-depth-review-of-acer-aspire-e-15/"><u>Discovering the Best in Economy Laptops: An In-Depth Review of Acer Aspire E 15</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/effortless-security-for-your-macbook-unveiling-the-benefits-of-a-basic-and-budget-friendly-procase-case/"><u>Effortless Security for Your MacBook: Unveiling the Benefits of a Basic & Budget-Friendly ProCase Case</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elite-performance-analysis-for-philips-somneo-series-alarm-clocks/"><u>Elite Performance Analysis for Philips Somneo Series Alarm Clocks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/empire-crafting-in-imperator-rome-mastery-or-misfortune/"><u>Empire Crafting in Imperator: Rome: Mastery or Misfortune?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/free-mac-video-editing-software-explore-the-power-of-movavi/"><u>Free Mac Video Editing Software: Explore the Power of Movavi</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-microsoft-wireless-mouse-5000-up-and-running-with-simple-driver-download-instructions/"><u>Get Your Microsoft Wireless Mouse ([[5000]) Up and Running with Simple Driver Download Instructions!</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-access-your-iphone-13-mini-when-you-forget-the-passcode-by-drfone-ios/"><u>How to Access Your iPhone 13 mini When You Forget the Passcode?</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-realme-c67-5g-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Realme C67 5G Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-top-5-techniques-for-captivating-your-twitch-audience/"><u>In 2024, Top 5 Techniques for Captivating Your Twitch Audience</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-art-of-monitors-reimagined-an-insight-into-the-z32x/"><u>The Art of Monitors Reimagined An Insight Into the Z32X</u></a></li>
 </ul></div>
 

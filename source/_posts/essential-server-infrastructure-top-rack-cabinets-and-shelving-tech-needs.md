@@ -1,7 +1,7 @@
 ---
 title: "Essential Server Infrastructure: Top Rack Cabinets and Shelving Tech Needs"
-date: 2024-08-27T12:10:30.255Z
-updated: 2024-08-28T12:10:30.255Z
+date: 2024-10-01T19:49:29.735Z
+updated: 2024-10-07T03:15:44.834Z
 categories:
   - BestProducts
 description: "This Article Describes Essential Server Infrastructure: Top Rack Cabinets and Shelving Tech Needs"
@@ -62,8 +62,12 @@ thumbnail: https://thmb.techidaily.com/bf80edb76b200416e748e081aeadfa243850d855f
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -72,10 +76,14 @@ thumbnail: https://thmb.techidaily.com/bf80edb76b200416e748e081aeadfa243850d855f
 
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Humans have never been so annoying**
 
@@ -92,8 +100,12 @@ thumbnail: https://thmb.techidaily.com/bf80edb76b200416e748e081aeadfa243850d855f
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
  The colonists also come with their own unique personality traits, from veganism to survivalist to alcoholic, so they all have their own service needs. You’ll have to factor this into your game as you build up your population. If someone doesn’t get their needs met, it can land them in the hospital, or worse, on a rocket back home. And don’t get me started on the chaos that erupts when humans start freezing during a cold spell or complain when they don’t have enough oxygen. The nerve of some colonists!
@@ -112,9 +124,6 @@ thumbnail: https://thmb.techidaily.com/bf80edb76b200416e748e081aeadfa243850d855f
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
@@ -122,13 +131,18 @@ thumbnail: https://thmb.techidaily.com/bf80edb76b200416e748e081aeadfa243850d855f
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
 ## **Competition: Other city-building games**
@@ -143,9 +157,6 @@ thumbnail: https://thmb.techidaily.com/bf80edb76b200416e748e081aeadfa243850d855f
 
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Surviving Mars
@@ -158,14 +169,11 @@ thumbnail: https://thmb.techidaily.com/bf80edb76b200416e748e081aeadfa243850d855f
 * Graphics  HD 4600/Geforce 620/Radeon 6450 or equivalent GPUs with 1 GB of video RAM
 * Game Updates  Green Planet, Project Laika, Space Race, Colony Design Set, Marsvision Song Contest
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -174,4 +182,26 @@ thumbnail: https://thmb.techidaily.com/bf80edb76b200416e748e081aeadfa243850d855f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-brighten-up-your-gameplay-tips-to-fix-a-black-screen-on-obs-for-2024/"><u>[New] Brighten Up Your Gameplay Tips to Fix a Black Screen on OBS for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-ultimate-guide-to-7-superior-video-players-on-mac-for-2024/"><u>[New] Ultimate Guide to 7 Superior Video Players on Mac for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-highlighting-the-top-10-budget-friendly-video-communication-platforms-for-industry-and-academia/"><u>[Updated] Highlighting the Top 10 Budget-Friendly Video Communication Platforms For Industry & Academia</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Samsung Galaxy M14 5G | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-expert-picks-the-best-skype-capture-tools/"><u>In 2024, Expert Picks The Best Skype Capture Tools</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-simplifying-cinematography-best-film-cameras-for-newbies/"><u>In 2024, Simplifying Cinematography Best Film Cameras for Newbies</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-bluetooth-earpieces-for-smart-tv-lovers/"><u>Innovative Bluetooth Earpieces for Smart TV Lovers</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-best-mts-video-editors-top-picks-for-2024/"><u>New Best MTS Video Editors Top Picks for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-honor-x9a-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Honor X9a Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/surfers-choice-ultimate-cam-tech-review-2023-for-2024/"><u>Surfer’s Choice Ultimate Cam Tech Review 2023 for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-2021-apple-macbook-pro-with-m1-chip-why-it-reigns-supreme-in-high-end-computing/"><u>The Ultimate Guide to the 2021 Apple MacBook Pro with M1 Chip - Why It Reigns Supreme in High-End Computing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-starters-guide-for-a-sturdy-tripod-on-amazonbasics/"><u>The Ultimate Starter's Guide for a Sturdy Tripod on AmazonBasics</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-zte-blade-a3y-how-this-entry-level-handset-holds-its-own-with-top-performers/"><u>The ZTE Blade A^3Y: How This Entry-Level Handset Holds Its Own with Top Performers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-review-unveiling-the-powerful-display-of-the-samsung-qn55q6f-the-4k-smart-tv-experience-you-need/"><u>Top Review: Unveiling the Powerful Display of the Samsung QN55Q6F - The 4K Smart TV Experience You Need</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-tier-smartphone-showdown-why-the-iphone-xs-max-stands-out/"><u>Top-Tier Smartphone Showdown: Why the iPhone XS Max Stands Out</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-must-have-add-ons-for-iphone-users/"><u>Ultimate Guide: Must-Have Add-Ons for iPhone Users</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unboxing-and-testing-the-netgear-nighthawk-rax80-the-latest-wi-fi-6-powerhouse-on-a-sleek-platform/"><u>Unboxing and Testing the Netgear Nighthawk RAX80 – The Latest Wi-Fi 6 Powerhouse on a Sleek Platform</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-power-and-panache-an-insightful-review-of-the-apple-imac-215-with-stunning-4k-resolution/"><u>Unveiling Power and Panache: An Insightful Review of the Apple iMac 21.5 with Stunning 4K Resolution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-capabilities-in-depth-review-of-the-dji-phantom-4-pro-v2/"><u>Unveiling the Capabilities: In-Depth Review of the DJI Phantom 4 Pro V2</u></a></li>
+</ul></div>
 

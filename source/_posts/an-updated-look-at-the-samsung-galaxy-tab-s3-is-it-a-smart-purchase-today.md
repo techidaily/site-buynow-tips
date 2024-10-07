@@ -1,7 +1,7 @@
 ---
 title: An Updated Look at the Samsung Galaxy Tab S3 – Is It a Smart Purchase Today?
-date: 2024-09-19T18:25:37.327Z
-updated: 2024-09-26T16:16:56.622Z
+date: 2024-10-01T20:17:53.464Z
+updated: 2024-10-07T00:18:36.228Z
 categories:
   - BestProducts
 description: This Article Describes An Updated Look at the Samsung Galaxy Tab S3 – Is It a Smart Purchase Today?
@@ -41,13 +41,6 @@ thumbnail: https://www.lifewire.com/thmb/hgfVVc_iMa83bvRlfflT3qTmoLA=/400x300/fi
 
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/RBJ_qd0-iPj3u7qSA3GAXNn2byQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_04LW4161013-1-760c721cdfb74062a7b7a34dffa00d9e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Yoona Wagener
 
 [View On Amazon $120](https://www.amazon.com/dp/B07RB2NWDN/?tag=lifewire-onsite-prod-20&ascsubtag=4766867%7Cnd9ea231691e349f9a36c8fb0b9d3dc9e12%7CB07RB2NWDN) [View On Walmart $104](https://www.walmart.com/ip/SAMSUNG-Galaxy-Fit-Activity-Tracker-Heart-Rate-Black-SM-R370NZKAXAR/657883661)
@@ -78,20 +71,19 @@ thumbnail: https://www.lifewire.com/thmb/hgfVVc_iMa83bvRlfflT3qTmoLA=/400x300/fi
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/Tf5FJJb3h1iBWaZIkx-ZF7NeOTg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-6-b9990e3655e34e2ca712150225748ab6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Design: Functional and slightly elevated**
 
@@ -117,14 +109,14 @@ thumbnail: https://www.lifewire.com/thmb/hgfVVc_iMa83bvRlfflT3qTmoLA=/400x300/fi
 
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/E_Ki7o6LChwW9AdtjDKL2L1lHjw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-4-abd906dedc9c440188c23a5aabdfebe0.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Comfort: Almost undetectable**
 
@@ -141,6 +133,13 @@ thumbnail: https://www.lifewire.com/thmb/hgfVVc_iMa83bvRlfflT3qTmoLA=/400x300/fi
  So while it was mostly comfortable for general wear and during exercise activities, we found that the fit suffered from being either too tight or too loose because the adjustments weren’t incremental enough. It was hard to find a just-right middle ground.
 
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/SRdpyMKwwNLE2m_Dnn2o9thnpQ8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-3-40a8d98ca4a04e7c9b5b18531df43e6f.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
 
@@ -160,27 +159,20 @@ thumbnail: https://www.lifewire.com/thmb/hgfVVc_iMa83bvRlfflT3qTmoLA=/400x300/fi
 
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/APk5ikkGQieSTN39gBAQ6rf6H9E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-5-5ff5a7cfa0c34594b8d74bbb224e9800.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Yoona Wagener
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Battery: Good for a full week of use**
 
  Samsung says this watch is good for up to seven to eight days with regular activity and use, and up to eleven days with minimal use. We found that this watch lasted on the initial charge for a full[eight days](https://www.lifewire.com/fitness-trackers-with-the-best-battery-life-4077272) , which lined up with the manufacturer claims. It’s hard to say how the battery life would stack up to multiple workouts in a day—we typically only did one a day over the course of a week, but our experience with the device supports the strong battery life claims.
 
  When we did have to charge the device again, we found that process to be speedy: it took only two hours to recharge in full.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Dial up your fitness with the Samsung Health app**
 
@@ -189,6 +181,13 @@ thumbnail: https://www.lifewire.com/thmb/hgfVVc_iMa83bvRlfflT3qTmoLA=/400x300/fi
  Most of the settings for notifications and even choosing quick, pre-written responses to texts can be set up through the mobile app. You can also choose watch faces to personalize the style of your Galaxy Fit—there’s a specific screen inside the app that details all the design options and allows you to change the look whenever you want.
 
  In addition to controlling the watch settings easily from the[mobile app](https://www.lifewire.com/what-are-apps-1616114) , the Samsung Health app is the other go-to resource. Here you can view all the information captured by the activity tracker, including fitness, sleep, and even stress levels. You can also take this a step further by using the app to monitor calories, weight, and water intake.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Great for what you get**
 
@@ -209,6 +208,19 @@ thumbnail: https://www.lifewire.com/thmb/hgfVVc_iMa83bvRlfflT3qTmoLA=/400x300/fi
 **An all-around winner for fitness-minded shoppers.**
 
  The Samsung Galaxy Fit is an appealing option for those who want a bit of smartwatch functionality and a heavy emphasis on exercise monitoring—without shelling out too much money. The fit, ironically, may be the largest issue. But if you’re able to find the right size, this may be everything you want in a fitness tracker.
+
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -246,18 +258,22 @@ thumbnail: https://www.lifewire.com/thmb/hgfVVc_iMa83bvRlfflT3qTmoLA=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-powerdirector-unboxed-a-complete-review-users/"><u>[New] PowerDirector Unboxed A Complete Review Users</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-brush-up-your-skills-and-inspire-creativity-top-10-freeware-for-mac/"><u>[Updated] 2024 Approved Brush Up Your Skills & Inspire Creativity - Top 10 Freeware for Mac</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-how-to-change-background-on-teams-before-or-after-calling/"><u>[Updated] How to Change Background on Teams Before or After Calling</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/decoding-the-variations-understanding-ipad-against-ipad-air/"><u>Decoding the Variations: Understanding iPad Against iPad Air</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/discover-the-ultimate-list-of-12-fantastic-free-online-cinema-platforms/"><u>Discover the Ultimate List of 12 Fantastic Free Online Cinema Platforms</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-itel-p55t-device-sim-by-drfone-android/"><u>Easily Unlock Your Itel P55T Device SIM</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/eco-dot-and-homepod-mini-head-to-head-identifying-the-disparities/"><u>Eco Dot and HomePod Mini Head-to-Head: Identifying the Disparities</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ensure-that-the-tone-remains-supportive-and-encouraging-without-diminishing-any-treatment-options-value/"><u>Ensure that the Tone Remains Supportive and Encouraging without Diminishing Any Treatment Options' Value</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ergodriven-topo-mat-review-a-step-towards-a-comfortable-and-healthy-office-life-with-the-best-standing-desk-accessory/"><u>Ergodriven Topo Mat Review: A Step Towards a Comfortable and Healthy Office Life with the Best Standing Desk Accessory</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/essential-elements-to-evaluate-when-choosing-a-non-carrier-locked-phone/"><u>Essential Elements to Evaluate When Choosing a Non-Carrier Locked Phone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exclusive-savings-ultimate-cyber-monday-offers-for-tribit-audio-products/"><u>Exclusive Savings: Ultimate Cyber Monday Offers for Tribit Audio Products</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/instasoundscapes-audio-visual-fusion-for-stories-for-2024/"><u>InstaSoundscapes Audio-Visual Fusion for Stories for 2024</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/top-4-ways-to-trace-apple-iphone-xs-location-drfone-by-drfone-virtual-ios/"><u>Top 4 Ways to Trace Apple iPhone XS Location | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-outer-worlds-action-packed-humorous-space-odyssey-tailored-for-gamers/"><u>'The Outer Worlds': Action-Packed, Humorous Space Odyssey Tailored for Gamers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-exploring-extraordinary-realms-metaverse-vs-omniverse-analyzed-for-2024/"><u>[New] Exploring Extraordinary Realms Metaverse Vs. Omniverse Analyzed for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-monitor-magic-top-choices-to-transform-your-xbox-series-x-playtime/"><u>[New] Monitor Magic Top Choices to Transform Your Xbox Series X Playtime</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-secrets-revealed-how-to-capture-your-facebook-sessions/"><u>[New] Secrets Revealed How to Capture Your Facebook Sessions</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-achieving-geometric-brilliance-making-mc-circles-and-spheres-for-2024/"><u>[Updated] Achieving Geometric Brilliance Making MC Circles & Spheres for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-mastering-screencast-with-ezvide-maker-tool-for-2024/"><u>[Updated] Mastering Screencast with EZvide Maker Tool for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exciting-new-audio-experience-on-a-budget-with-amazons-basic-soundbar/"><u>Exciting New Audio Experience on a Budget with Amazons Basic Soundbar</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-samsung-galaxy-a05-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Samsung Galaxy A05 to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-hitman-trilogy-finale-evaluation/"><u>In-Depth Hitman Trilogy Finale Evaluation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-newest-microsoft-surface-laptop-4-leading-the-pack-in-reviews/"><u>In-Depth Look at the Newest Microsoft Surface Laptop 4 - Leading the Pack in Reviews</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/masterful-examination-of-the-formidable-beatit-bt-d11-booster-unit/"><u>Masterful Examination of the Formidable Beatit BT-D11 Booster Unit</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-the-new-era-of-productivity-a-full-review-of-the-latest-samsung-galaxy-tab-s6s-innovative-features-s-pen-and-dex-mode/"><u>Mastering The New Era of Productivity: A Full Review Of The Latest Samsung Galaxy Tab S6's Innovative Features, S Pen & DeX Mode</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-audio-flair-for-video-production-techniques-for-smooth-addition-of-effects/"><u>New Audio Flair for Video Production Techniques for Smooth Addition of Effects</u></a></li>
+<li><a href="https://windows11.techidaily.com/proactive-pc-management-utilizing-command-prompt-for-timely-detection-and-correction-of-windows-errors/"><u>Proactive PC Management: Utilizing Command Prompt for Timely Detection & Correction of Windows Errors</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/soaring-high-with-savings-the-ultimate-review-of-the-holy-stone-hs170-rc-helicopter-drone/"><u>Soaring High with Savings: The Ultimate Review of the Holy Stone HS170 RC Helicopter Drone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-switching-to-macos-ventura-update/"><u>The Ultimate Guide to Switching to macOS Ventura Update</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-selection-elite-vertical-mice-of-the-year-2n4/"><u>The Ultimate Selection: Elite Vertical Mice of the Year 2N4</u></a></li>
 </ul></div>
 

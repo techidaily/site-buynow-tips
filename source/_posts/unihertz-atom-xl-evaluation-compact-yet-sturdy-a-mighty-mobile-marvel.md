@@ -1,7 +1,7 @@
 ---
 title: "Unihertz Atom XL Evaluation: Compact Yet Sturdy, A Mighty Mobile Marvel"
-date: 2024-08-27T12:07:41.156Z
-updated: 2024-08-28T12:07:41.156Z
+date: 2024-10-03T22:22:19.356Z
+updated: 2024-10-06T17:09:06.810Z
 categories:
   - BestProducts
 description: "This Article Describes Unihertz Atom XL Evaluation: Compact Yet Sturdy, A Mighty Mobile Marvel"
@@ -67,8 +67,12 @@ thumbnail: https://thmb.techidaily.com/10b343d090bf904bc6bf8fe5ac35deb164bc4c886
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design: A lot of power packed into a small frame**
 
  The Beatit Jump Starter D11’s main unit's effectively a small black brick with red accents. Roughly the size of a small paperback book, the unit's constructed out of durable plastic and features a flashlight at one end. Along one of the long sides there's a small display that shows battery status, the on/off switch, two USB power outputs, and the device’s charging port. On the opposing side a rubber flap covers the jumper cable port; a unique port that the jumper cable accessory plugs in to.
@@ -79,9 +83,6 @@ thumbnail: https://thmb.techidaily.com/10b343d090bf904bc6bf8fe5ac35deb164bc4c886
 
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process: It can’t realistically be much simpler**
 
  Should you find yourself in a situation where you need to use the jump start functionality of the Beatit Jump Starter D11, you'll find it quite easy to use. On our Elantra test vehicle we simply had to pop the hood, bring the unit over, and plug the jumper cable accessory into its port. Once in place getting a proper connection is a simple matter of attaching the red clamp to the positive battery terminal and then the black clamp to the negative terminal. With a firm connection in place we simply had to set the unit down someplace where the vibration of the engine wouldn’t make it slide and then start the car. With the unit in place the car immediately started with zero hesitation, at which point we could disconnect the unit and get back on the road.
@@ -89,6 +90,13 @@ thumbnail: https://thmb.techidaily.com/10b343d090bf904bc6bf8fe5ac35deb164bc4c886
  Lifewire / Tony Mitera
 
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Plenty of power for all your needs**
 
@@ -99,8 +107,12 @@ thumbnail: https://thmb.techidaily.com/10b343d090bf904bc6bf8fe5ac35deb164bc4c886
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
  There aren’t a ton of other features present with the Beatit Jump Starter D11 but there are some of note, including the unit’s built-in flashlight. It’s a nice addition to have if you must jump start a car in the middle of the night, but it doesn’t put out of a ton of light and the beam is pretty narrow. You can pick the unit up and use it as a large flashlight, though doing so while also trying to get the clamps attached is cumbersome.
@@ -109,9 +121,6 @@ thumbnail: https://thmb.techidaily.com/10b343d090bf904bc6bf8fe5ac35deb164bc4c886
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: A ton of value for a tiny cost**
 
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
@@ -119,8 +128,12 @@ thumbnail: https://thmb.techidaily.com/10b343d090bf904bc6bf8fe5ac35deb164bc4c886
  At that price point, it packs a ton of value into its diminutive size.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
 **_DBPOWER 600A Peak 18000mAh Portable Car Jump Starter:_**  When it comes down to it these two units are surprisingly similar, down to the case and overall design of the unit. If you really want the ability to use your jump starter to also charge your laptop the DBPOWER is worth a look. Otherwise, save yourself around $10 and stick with the Beatit BT-D11.
@@ -137,9 +150,6 @@ thumbnail: https://thmb.techidaily.com/10b343d090bf904bc6bf8fe5ac35deb164bc4c886
 
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  800A BT-D11 Car Jump Starter
@@ -162,8 +172,6 @@ thumbnail: https://thmb.techidaily.com/10b343d090bf904bc6bf8fe5ac35deb164bc4c886
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -171,4 +179,20 @@ thumbnail: https://thmb.techidaily.com/10b343d090bf904bc6bf8fe5ac35deb164bc4c886
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-10-premium-yoga-channels-for-ultimate-fitness-journey/"><u>[New] 2024 Approved 10 Premium Yoga Channels for Ultimate Fitness Journey</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-optimal-storage-solutions-the-leading-10-gopro-housings/"><u>[New] Optimal Storage Solutions - The Leading 10 GoPro Housings</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-from-camera-to-community-shared-videos-on-twtplustumble-for-2024/"><u>[Updated] From Camera to Community Shared Videos on Twt+Tumble for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/brookstone-showcases-best-digital-frames-for-you/"><u>Brookstone Showcases Best Digital Frames for You</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/changing-tides-in-streaming-tech-a-detailed-look-at-chromecast-with-google-tv/"><u>Changing Tides in Streaming Tech: A Detailed Look at Chromecast with Google TV</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-the-apple-iphone-12-pro-max-is-size-really-everything/"><u>Comprehensive Analysis of the Apple iPhone 12 Pro Max - Is Size Really Everything?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-anker-roav-dashcam-c1-assessment-features-and-performance/"><u>Comprehensive Anker Roav DashCam C1 Assessment - Features & Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-samsung-cf591-ideal-choice-for-gamers/"><u>Comprehensive Evaluation of the Samsung CF591 - Ideal Choice for Gamers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decoding-the-variance-between-echo-pop-and-echo-dot-models/"><u>Decoding the Variance Between Echo Pop and Echo Dot Models</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-stop-windows-from-always-entering-cmos-mode-at-start-up/"><u>How to Stop Windows From Always Entering CMOS Mode at Start-Up</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-poco-c65-by-drfone-android-unlock-android-unlock/"><u>How to unlock Poco C65</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-transforming-your-favorite-tunes-the-best-spotify-playlists-tools-for-youtube/"><u>In 2024, Transforming Your Favorite Tunes The Best Spotify Playlists Tools for YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-money-mastery-from-clicks-to-checkbook-balance/"><u>In 2024, YouTube Money Mastery From Clicks to Checkbook Balance</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Affordable Mobvoi TicWatch E2 Assessment - Is It Worth the Savings?
-date: 2024-08-27T12:08:15.852Z
-updated: 2024-08-28T12:08:15.852Z
+date: 2024-10-06T03:19:43.147Z
+updated: 2024-10-07T00:58:27.585Z
 categories:
   - BestProducts
 description: This Article Describes Affordable Mobvoi TicWatch E2 Assessment - Is It Worth the Savings?
@@ -36,6 +36,13 @@ Lifewire / Todd Braylor
 [View On Amazon $149](https://www.amazon.com/dp/B07MFZ9MHM?tag=lifewire-onsite-prod-20&ascsubtag=4768625%7Cne7e30477dce44991aba0d4ad06c424c419%7CB07MFZ9MHM) [View On Walmart $150](https://www.walmart.com/ip/Fitbit-Versa-LITE-Edition-Smartwatch/452035295)
 
 4.2
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fitbit Versa Lite
 
@@ -87,13 +94,12 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup Process: Quick-tips and syncing**
 
  The Fitbit Versa Lite is quick and easy to set up—the most involved part of the process is downloading the Fitbit app to your smartphone and connecting it to your watch. The Fitbit app is available for both iOS and Android platforms, and syncing it to the Versa Lite via Bluetooth is very straightforward.
@@ -104,9 +110,6 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Comfort: Attractive and confident wearability**
 
  The Fitbit Versa Lite feels nice in your hands and on your wrist. The device is relatively lightweight at 1.41 ounces and the screen unit sits naturally on the back of your wrist. The Versa Lite comes with two wristbands, one small and one large, measuring four and 5.25 inches long. Both are a little less than an inch wide and are made of a smooth, soft polymer material which is very comfortable for extended periods of wear.
@@ -135,11 +138,15 @@ Lifewire / Todd Braylor
 
 ![Fitbit Versa Lite](https://www.lifewire.com/thmb/97XADSG__Ti-9y6W9YfT6A-sRLg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4057119-04-a5baf62c5de749cb93986be2eab3ad2d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## **Battery Life: Days of activity**
 
  Fitbit promised four or more days of battery life for the Versa Lite, and they weren’t lying. The Versa Lite we tested lasted almost four and a half days before draining all the way down to zero. This made so many days of daily wear and daily runs seem hassle-free.
@@ -148,14 +155,8 @@ Lifewire / Todd Braylor
 
 ![Fitbit Versa Lite](https://www.lifewire.com/thmb/NkHZ0M514IlrqowHF6M_QWHxgj8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4057119-06-be4c149f1dff4214acfe0fbc3a4d63e6-1-f6f110eb54e142c992dd3f613bdb9f28.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ## **Key Features: Fitbit basics plus apps for any activity**
 
  Like all Fitbits, the Versa Lite keeps track of what the company calls their “Fitbit basics.” These are key activity metrics for any active lifestyle and make it super easy for you to keep track of your health and get motivated.
@@ -165,13 +166,24 @@ Lifewire / Todd Braylor
  A host of other smartwatch apps come standard with the Versa Lite, including alarms, a weather app, a stopwatch, a relaxation app that guides you through short mindfulness exercises, and the specific exercise apps mentioned above. As far as additional apps for the Versa Lite, this is it—the Lite Edition does not have the ability to add extra apps.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: A deal for under $200**
 
  Retailing for $159.95 and occasionally selling for less on sale, the Versa Lite is a price-conscious but solid piece of tech that prioritizes exercise. It's a great introduction to the smartwatch lifestyle with all the notifications you need to be connected and without an overwhelming amount of distractions.
 
  The ability to train in-depth with the Fitbit app and various Versa Lite exercise apps makes this fitness tracker a pretty good deal for under $200\. Avid swimmers, on the other hand, may want to look elsewhere.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Fitbit Versa Lite Edition vs. Apple Watch Series 4**
 
@@ -189,15 +201,19 @@ Lifewire / Todd Braylor
 
  Though we can’t recommend this watch to swimmers (pending a potential software solution for that glitch), the Fitbit Versa Lite is a great way to chart your progress throughout a training program or competitive season. The combination of the Fitbit Basics and dedicated exercise apps makes this watch both an insightful wellness monitor for everyday activity and a great tool for tracking your fitness progress.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Garmin Forerunner 945](https://www.lifewire.com/garmin-forerunner-945-review-4768586)
 * [Fitbit Inspire HR](https://www.lifewire.com/fitbit-inspire-hr-review-4768656)
 * [Samsung Galaxy Watch Active](https://www.lifewire.com/samsung-galaxy-watch-active-review-4766873)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Versa Lite
@@ -217,14 +233,11 @@ Lifewire / Todd Braylor
 * Memory Capacity  7 days of activity data, 30 days of daily totals
 * What's included  Fitbit Versa Lite Edition watch, small wrist band, large wrist band, USB charging cradle
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -233,4 +246,16 @@ Lifewire / Todd Braylor
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tech-revival.techidaily.com/ensuring-authenticity-how-nightshade-can-help-safeguard-your-art-from-ai-replication/"><u>Ensuring Authenticity: How Nightshade Can Help Safeguard Your Art From AI Replication</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-firsthand-the-innovation-behind-the-new-ampace-andes-1500-stationary-battery/"><u>Experience Firsthand the Innovation Behind the New Ampacē Andes 1500 Stationary Battery</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Xiaomi 14 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Nokia C300 | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-obs-and-streamlabs-mac-integration/"><u>In 2024, Mastering OBS & Streamlabs Mac Integration</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-battery-pack-bundle-in-depth-analysis-of-ankers-powercoreplus-26800b/"><u>Top-Rated Battery Pack Bundle: In-Depth Analysis of Anker's Powercore+ 26800B</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-computer-audio-cards-in-2eby-2024-your-ultimate-guide/"><u>Top-Rated Computer Audio Cards in 2Eby 2024: Your Ultimate Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-portable-notebook-power-packs-a-comprehensive-guide/"><u>Top-Rated Portable Notebook Power Packs : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-tier-performance-meets-savings-with-the-tp-link-archer-a/"><u>Top-Tier Performance Meets Savings with the TP-Link Archer A...</u></a></li>
+</ul></div>
 

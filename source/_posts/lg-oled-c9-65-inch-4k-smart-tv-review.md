@@ -1,7 +1,7 @@
 ---
 title: LG OLED C9 65-Inch 4K Smart TV Review
-date: 2024-09-25T17:53:35.281Z
-updated: 2024-10-01T19:06:55.305Z
+date: 2024-10-01T19:04:05.554Z
+updated: 2024-10-07T01:24:51.022Z
 categories:
   - BestProducts
 description: This Article Describes LG OLED C9 65-Inch 4K Smart TV Review
@@ -38,6 +38,13 @@ Lifewire / Rebecca Isaacs
 [View On Amazon $30](https://www.amazon.com/dp/B0713PHFRW/?tag=lifewire-onsite-prod-20&ascsubtag=5193438%7Cnd13615e1c9e546a090a2f2a2949c313a15%7CB0713PHFRW)
 
 4.2
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## HAVIT 5 Fan Laptop Cooler
 
@@ -77,13 +84,6 @@ Lifewire / Rebecca Isaacs
 
  To me, the design seems a little clunky. It has smooth edges, but it’s clearly designed as a gamer’s edgy laptop cooling pad with seemingly unnecessary grooves that serve only to hold dust. If you’re looking for a simple design, this is not your cooling pad. That being said, the metal mesh pad for air circulation can accommodate laptops ranging from 14 to 17 inches thanks to its 15.87 x 11.81 x 1.34 inches (LWH) in dimension.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Fans: Wasn’t blown away
 
  I set up the cooling pad and flipped on the roller switch. HAVIT promises five quiet fans—one 110-millimeter fan, and four other strategically placed 85-millimeter fans. HAVIT holds true to its promise: This cooling pad emits a fairly faint sound I can’t hear through my Samsung Buds headphones, even with their noise cancelling features. The fans are so quiet that if I was gaming, I wasn’t able to hear them.
@@ -97,10 +97,10 @@ Lifewire / Rebecca Isaacs
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/l2nDOOm1dGSmniJBqJPn708DnK8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_03-71babed64c14425184604e4825680aac.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
@@ -108,10 +108,10 @@ Lifewire / Rebecca Isaacs
  That’s not to say that this laptop cooling pad doesn’t help cool it down. Since my Eluktronics is getting some much-needed TLC in the shop, I tested the MSI’s internal temps while running[Tropico Six](https://www.lifewire.com/tropico-6-review-5077604) on my laptop. Without the laptop cooling pad, I was running around 187 degrees Fahrenheit. With the cooling pad, it adjusted to around 169 degrees. It’s not much, but it’s enough to make a difference.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Baffles: Adjustable for gaming and typing
@@ -128,24 +128,24 @@ Lifewire / Rebecca Isaacs
 
  And, if you’re on-the-go and travelling, the HAVIT 5 also packs quite nicely into a suitcase. Be sure to play it safe like I did and pack it around clothes. But if you need to go across country and want to take your gaming laptop with you, this is a good one that will hold up well in luggage.
 
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: Ouch
 
  I picked up my HAVIT 5 while it was on sale for around $30 back in 2019, but the usual price is around $50\. That seems a little steep, especially for fans that don’t necessarily pack the punch for gaming that most laptops require. If you keep an eye on Amazon, you can usually get this one for around $30, as it seems to go on sale fairly often.
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/lItC7F6Ja8RbBfTaNXh5l9ufFqY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_05-07577b69f7d04de5a7904e798681ba02-6b3615a38d584594b89077eaf51228b2.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -168,10 +168,10 @@ Lifewire / Rebecca Isaacs
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -203,17 +203,20 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-elevate-your-photos-with-effective-blurs-for-2024/"><u>[New] Elevate Your Photos with Effective Blurs for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-10-best-video-calling-software-on-phone-and-pc/"><u>[Updated] 2024 Approved 10 Best Video Calling Software on Phone and PC</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-video-brand-enhancement-embedding-logoswatermarks-for-youtube-shows/"><u>2024 Approved Video Brand Enhancement Embedding Logos/Watermarks for YouTube Shows</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/identifying-the-target-keywords-and-phrases-to-optimize-for-search-engines/"><u>Identifying the Target Keywords and Phrases to Optimize for Search Engines.</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-vivo-g2-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Vivo G2</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lake-holt-park/"><u>Lake Holt Park</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-printer-picks-expert-roundup/"><u>Leading Printer Picks: Expert Roundup</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-professional-photo-studio-lights-expertly-curated-selections/"><u>Leading Professional Photo Studio Lights : Expertly Curated Selections</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/mastering-pc-builds-and-upgrades-leading-resources-curated-by-toms-hq/"><u>Mastering PC Builds and Upgrades - Leading Resources Curated by Tom's HQ</u></a></li>
-<li><a href="https://program-issues.techidaily.com/solving-the-dilemma-of-a-non-launchable-cyberpunk-2077-game/"><u>Solving the Dilemma of a Non-Launchable Cyberpunk 2077 Game</u></a></li>
-<li><a href="https://extra-information.techidaily.com/unveiling-the-best-apps-to-master-sound-transformation/"><u>Unveiling the Best Apps to Master Sound Transformation</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/zero-cost-maximum-creativity-9-free-online-movie-makers/"><u>Zero Cost, Maximum Creativity 9 Free Online Movie Makers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-android-and-ios-best-ps2-emulator-comparisons/"><u>[Updated] 2024 Approved Android & iOS Best PS2 Emulator Comparisons</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-mac-users-adding-the-social-app-snapchat/"><u>2024 Approved Mac Users Adding the Social App Snapchat</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-recommended-set-17-apps-that-make-picture-fixing-easier/"><u>2024 Approved Recommended Set 17 Apps That Make Picture Fixing Easier</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-guide-to-maximizing-your-medical-ads-on-fb/"><u>2024 Approved The Ultimate Guide to Maximizing Your Medical Ads on FB</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exceptional-quality-meets-budget-friendly-prices-the-complete-review-of-fossil-sport-watches/"><u>Exceptional Quality Meets Budget-Friendly Prices: The Complete Review of Fossil Sport Watches</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-ergohead-mats-performance-in-enhancing-long-term-standing-desk-comfort/"><u>Expert Analysis of the Ergohead Mat's Performance in Enhancing Long-Term Standing Desk Comfort</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-the-beantech-bitwatch-s1-plus-the-most-affordable-wearable-for-tech-enthusiasts/"><u>Expert Insights on the Beantech Bitwatch S1 Plus: The Most Affordable Wearable for Tech Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expertly-curated-collection-elite-cable-modem-and-router-combos/"><u>Expertly Curated Collection: Elite Cable Modem and Router Combos</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/family-fun-with-holy-stone-rc-a-complete-cartoon-race-car-review/"><u>Family Fun with Holy Stone RC: A Complete Cartoon Race Car Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/google-pixel-mate-edition-analysis-the-ultimate-expression-of-androids-potential-8/"><u>Google Pixel Mate Edition Analysis - The Ultimate Expression of Android's Potential ^8</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Motorola Moto G14 | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcoming-stuttering-in-dragons-dogma-2-strategies-for-boosting-frames-per-second-fps/"><u>Overcoming Stuttering in Dragon's Dogma 2: Strategies for Boosting Frames per Second (FPS)</u></a></li>
+<li><a href="https://win11.techidaily.com/quick-fix-for-outlook-error-0x80040610-on-windows-devices/"><u>Quick Fix for Outlook Error 0X80040610 on Windows Devices</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solve-razer-headset-microphone-issues-with-these-5-simple-fixes/"><u>Solve Razer Headset Microphone Issues with These 5 Simple Fixes</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-call-logs-from-lava-blaze-2-pro-by-fonelab-android-recover-call-logs/"><u>Undelete lost call logs from Lava Blaze 2 Pro</u></a></li>
 </ul></div>
 

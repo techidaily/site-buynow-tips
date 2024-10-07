@@ -1,7 +1,7 @@
 ---
 title: Navigating Affordable Drones - Holy Stone HS170 Predator Mini RC Helicopter Uncovered
-date: 2024-09-29T19:42:51.261Z
-updated: 2024-10-01T16:20:53.441Z
+date: 2024-10-06T00:19:46.651Z
+updated: 2024-10-07T04:30:45.325Z
 categories:
   - BestProducts
 description: This Article Describes Navigating Affordable Drones - Holy Stone HS170 Predator Mini RC Helicopter Uncovered
@@ -37,6 +37,13 @@ Lifewire / Todd Braylor
 
 3.8
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
@@ -62,13 +69,6 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -80,10 +80,10 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easy installation**
@@ -93,10 +93,10 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: Impressive detection**
@@ -120,10 +120,10 @@ Lifewire / Todd Braylor
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
@@ -167,19 +167,22 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-channel-trailers-that-convert-viewers-into-customers/"><u>[New] In 2024, Channel Trailers that Convert Viewers Into Customers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-streaming-showdown-summary-fb-live-yt-live-and-twitter-spaces/"><u>[New] In 2024, Streaming Showdown Summary FB LIVE, YT Live & Twitter Spaces</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-personalizing-your-windows-photos-experience-add-filters-sound/"><u>[New] Personalizing Your Windows Photos Experience Add Filters, Sound</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-twitter-media-upload-instruction-manual/"><u>[New] Twitter Media Upload Instruction Manual</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-whimsical-words-in-motion-animated-captions-for-ig-stories-for-2024/"><u>[Updated] Whimsical Words in Motion Animated Captions for IG Stories for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-top-10-after-effects-text-presets/"><u>2024 Approved Top 10 After Effects Text Presets</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-how-roku-express-offers-great-value-for-money-with-a-massive-library-of-entertainment/"><u>Discover How Roku Express Offers Great Value for Money with a Massive Library of Entertainment</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-fun-filled-world-of-educational-toys-the-wonder-workshop-dash/"><u>Exploring the Fun-Filled World of Educational Toys: The Wonder Workshop Dash!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-extollo-lansocket-1500-next-level-data-rates-reduced-latency-and-efficient-energy-transfer/"><u>The Ultimate Review of Extollo LANSocket 1500: Next-Level Data Rates, Reduced Latency, and Efficient Energy Transfer</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-moto-g-stylus-exceptional-specs-with-long-lasting-power-and-convenient-scribing-feature/"><u>The Ultimate Review of Moto G Stylus - Exceptional Specs with Long-Lasting Power & Convenient Scribing Feature</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-the-moto-g-with-stylus-exceptional-functionality-and-adequate-power-reserves/"><u>The Ultimate Review of the Moto G with Stylus: Exceptional Functionality and Adequate Power Reserves</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-why-the-microsoft-surface-laptop-4-reigns-supreme/"><u>Ultimate Guide: Why the Microsoft Surface Laptop 4 Reigns Supreme</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/unlocking-iphone-se-passcode-without-a-computer-drfone-by-drfone-ios/"><u>Unlocking iPhone SE Passcode without a Computer | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/visionary-image-design-the-best-open-tools/"><u>Visionary Image Design: The Best Open Tools</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-efficient-tweet-strategy-embrace-aspect-ratio-specifications/"><u>[New] Efficient Tweet Strategy Embrace Aspect Ratio Specifications</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-step-by-step-guide-countdown-timer-setup-for-broadcasts-for-2024/"><u>[New] Step-by-Step Guide Countdown Timer Setup for Broadcasts for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-5-top-3d-design-apps-for-engaging-youtube-beginnings/"><u>[Updated] 5 Top 3D Design Apps for Engaging YouTube Beginnings</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/best-free-educational-tools-for-students-before-classes-begin/"><u>Best FREE Educational Tools for Students Before Classes Begin</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/embark-on-a-thrilling-journey-in-robotics-an-insightful-review-of-the-fun-and-educational-makeblock-mbot-coding-and-building-adventure/"><u>Embark on a Thrilling Journey in Robotics - An Insightful Review of the Fun and Educational Makeblock mBot Coding & Building Adventure</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/examining-the-new-direction-in-tech-with-samsungs-smartphone-evolution-the-galaxy-s21-insight/"><u>Examining the New Direction in Tech with Samsung's Smartphone Evolution: The Galaxy S21 Insight</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-luxury-mobility-with-the-glion-dolly-electric-scooter-review-excellence-meets-expense/"><u>Experience Luxury Mobility with the Glion Dolly Electric Scooter Review – Excellence Meets Expense</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-affordable-ssl-marketplace/"><u>Exploring the Affordable SSL Marketplace</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-world-of-yakuza-a-comprehebale-reveal-on-like-a-dragon-the-must-have-jrpg-title/"><u>Exploring the World of Yakuza: A Comprehebale Reveal on 'Like a Dragon': The Must-Have JRPG Title</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ring-youtubes-earnings-mechanism-through-cpm-analysis/"><u>Exploring YouTube's Earnings Mechanism Through CPM Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/future-proof-your-home-elite-selection-of-smart-speakers/"><u>Future-Proof Your Home: Elite Selection of Smart Speakers</u></a></li>
+<li><a href="https://games-able.techidaily.com/game-audio-enhancement-the-role-of-specialized-headsets/"><u>Game Audio Enhancement: The Role of Specialized Headsets</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/get-acquainted-with-the-latest-ampace-andes-1500-the-pinnacle-of-portable-power-technology/"><u>Get Acquainted with the Latest Ampace Andes 1500 - The Pinnacle of Portable Power Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/head-to-head-review-the-new-era-of-smartphones-s24-vs-s23-ultra/"><u>Head-to-Head Review: The New Era of Smartphones - S24 Vs. S23 Ultra</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Oppo F25 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-iphone-xs-with-forgotten-passcode-different-methods-you-can-try-by-drfone-ios/"><u>Unlock iPhone XS With Forgotten Passcode Different Methods You Can Try</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-unleash-your-creativity-best-android-video-editor-apps-for-chrome-os/"><u>Updated Unleash Your Creativity Best Android Video Editor Apps for Chrome OS</u></a></li>
 </ul></div>
 

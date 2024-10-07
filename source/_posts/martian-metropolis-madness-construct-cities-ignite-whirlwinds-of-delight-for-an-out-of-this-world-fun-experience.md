@@ -1,7 +1,7 @@
 ---
 title: "Martian Metropolis Madness: Construct Cities, Ignite Whirlwinds of Delight for an Out-of-This-World Fun Experience"
-date: 2024-08-27T12:06:16.427Z
-updated: 2024-08-28T12:06:16.427Z
+date: 2024-10-02T20:34:59.304Z
+updated: 2024-10-07T01:07:54.834Z
 categories:
   - BestProducts
 description: "This Article Describes Martian Metropolis Madness: Construct Cities, Ignite Whirlwinds of Delight for an Out-of-This-World Fun Experience"
@@ -42,6 +42,13 @@ Andy Zahn / Lifewire
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Cyberpunk 2077
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/sG6odS-sTBDQKNtpoev0kWtdSGg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cyberpunk-2077-1-d90f62b5a126437681da9916c0360527.jpg)
@@ -77,9 +84,6 @@ Andy Zahn / Lifewire
 
 Andy Zahn / Lifewire
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Story: Engaging and well written
 
  You start out by choosing from one of several different life paths, each of which features a different intro, as well as unique dialogue options throughout the game. The Nomad starts in the wastelands, the Street Kid in the inner city, and the Corpo in what else but the heart of a mega corporation.
@@ -92,9 +96,6 @@ Andy Zahn / Lifewire
 
  Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ## Gameplay: Fun, but deeply flawed
 
  As with the game as a whole, Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows. It does some things very well and stumbles bafflingly in other regards. The game mostly takes place in the first person, with third-person view being an option while driving.
@@ -103,9 +104,6 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/NwK7qVv8XDmr_i0b9XzULnmPZ9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-5-664cae2e38304560a7d6fc3ce2a84335.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 Andy Zahn / Lifewire
 
  The reason behind the driving issues seems to be largely an issue of perception, as they occur at high speeds, but unless you keep an eye on your speedometer it's very difficult to judge how fast you’re going. I often found myself going over a hundred, but my mind said I was traveling at half that or less. It would be better for the sake of gameplay if your wheels stuck to the asphalt a bit better, and it wouldn’t really be that unrealistic, given that it is 2077 after all; it makes sense for cars to handle better than they do in 2020.
@@ -120,6 +118,13 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/ByBdwophc_bSfdD-P0CfbqJgbwY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-7-e6be7e2c1ae24ac3a1c5dbfd4a5b595a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
 
  You can also use fast travel booths to get around instantly once you’ve unlocked them, though I found myself favoring the slow route, despite the issues inherent in that experience. Cruising through Night City is truly a jaw-dropping experience.
@@ -133,6 +138,13 @@ Andy Zahn / Lifewire
  It may sound as though I hated playing Cyberpunk 2077, with as much complaining as I’m doing about gameplay, but the truth is that I had a blast despite the bugs. Driving through Night City is still exciting after dozens of hours, and I’m still finding new weapons that offer new ways to approach combat.
 
  Driving out of a garage for the first time into a canyon of towering sci-fi skyscrapers bedecked in holograms and neon is one of those awe-inspiring moments that come only fleetingly in video games.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Customization: Lots to tinker with
 
@@ -152,6 +164,13 @@ Andy Zahn / Lifewire
 
 At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Bugs: Welcome to Glitch City
 
  At launch Cyberpunk 2077 is something of a bug-riddled mess. Even a few months and a few patches later it’s very noticeably in need of major fixes. Right out of the gate I found a collectible card that can only be picked up during the intro, but the game refused to allow me to pick it up, so I was forced to leave it sitting there forlornly, forever gnawing at the completionist streak in me.
@@ -165,8 +184,12 @@ At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/JM3cD1pX6maee1yiQYZnSgc-9pw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-4-624da4fa8225434eb59ba999a53dafd6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
 
 ## Mature content: Pushing the boundaries
@@ -190,8 +213,12 @@ Andy Zahn / Lifewire
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/toUXDFSRFZjol-BOgnhnVEyJTYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-8-7b54b824c3bc4dcfb04234f69204d2f6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
 
  If you don’t have a ray tracing enabled card, you may want to think twice about Cyberpunk 2077 until you’re able to upgrade. It’s playable on older cards, but the incredible visuals of this game running on high-end hardware are such an integral part of the experience that it’s hard to recommend running in a reduced capacity. The same goes for last-gen consoles ([PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) ,[Xbox One](https://www.lifewire.com/xbox-one-buyers-guide-3562291) ), where the experience is also greatly impacted by reduced processing power. Players are reporting the worst issues on these older consoles, where Cyberpunk appears to be almost unplayable for many.
@@ -201,8 +228,12 @@ Andy Zahn / Lifewire
  An alternative worth considering if you have a robust high-speed internet connection is streaming the game on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) . This will allow you to experience the game at its best without having to invest in a two thousand dollar PC. However, it does leave your ability to play the game at the mercy of your ability to access a strong internet connection.
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Graphics: Ahead of its time
 
  The star of the show in Cyberpunk 2077 are the visuals, and if you have a PC with the hardware to render the game at its maximum quality while maintaining playable frame rates the world of Night City is absolutely jaw-dropping. Driving out of a garage for the first time into a canyon of towering sci-fi skyscrapers bedecked in holograms and neon is one of those awe-inspiring moments that come only fleetingly in video games.
@@ -227,9 +258,6 @@ Andy Zahn / Lifewire
 
  At launch and for long after Cyberpunk 2077 will be a single-player game. However, CDPR has said that a few years down the road they will be launching a multiplayer mode, and a lot of people are looking forward to that. Of course, it is impossible to predict if this will be any good or if some circumstances might prevent its release, but there is a lot of potential for Cyberpunk to become a better experience when Night City goes online. With that said, CDPR really needs to fix the single-player game before they even think about launching multiplayer.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Price: A refreshing lack of micro-transactions
 
  At $60 with no extra monetization at launch, Cyberpunk 2077 is something of a bargain. Take this with a grain of salt though, as this situation could change dramatically once the multiplayer mode is released.
@@ -248,9 +276,6 @@ Andy Zahn / Lifewire
 
  Cyberpunk 2077 had enormous potential, but it launched long before it was complete and the result is a deeply conflicting experience. Game-breaking bugs, performance issues, missing features, and demanding hardware requirements make it difficult to recommend, but there is the core of something great lying within. There are hundreds of hours of content to enjoy if you can temper your expectations and employ a saintly degree of patience.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Cyberpunk 2077
@@ -260,14 +285,11 @@ Andy Zahn / Lifewire
 * Platforms  PC, Xbox Series X, Xbox One, PlayStation 5, PlayStation 4, Stadia
 * Rating  M
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -276,4 +298,22 @@ Andy Zahn / Lifewire
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://activate-lock.techidaily.com/3-easy-methods-to-unlock-icloud-locked-apple-iphone-6-plusipadipod-by-drfone-ios/"><u>3 Easy Methods to Unlock iCloud Locked Apple iPhone 6 Plus/iPad/iPod</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/asus-zenwifi-xt8-ax6600-comprehensive-rating-and-analysis-for-a-robust-tri-band-wireless-network/"><u>ASUS ZenWifi XT8 (AX6600) - Comprehensive Rating & Analysis for a Robust Tri-Band Wireless Network</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/bmp-jpg-online-movavi/"><u>BMP에서 JPG로 무료 이미지 변환 프로세스, Online 사용 가능 - Movavi</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-and-effective-detailed-evaluation-of-the-1byone-digital-tv-indoor-signal-booster-antenna/"><u>Budget-Friendly & Effective: Detailed Evaluation of the 1Byone Digital TV Indoor Signal Booster Antenna</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-apeman-c45n-analysis-reliable-road-companion-review/"><u>Budget-Friendly Apeman C45n Analysis - Reliable Road Companion Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-lens-the-powershot-elph-190-story/"><u>Budget-Friendly Lens: The PowerShot ELPH 190 Story</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/budgetclouds-vault-spaceful-large-data-sanctuary-for-2024/"><u>BudgetCloud's Vault Spaceful Large Data Sanctuary for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/chatgpt-plus-is-it-a-must-have-top-5-benefits-of-joining/"><u>ChatGPT Plus: Is It a Must-Have? Top 5 Benefits of Joining</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/choosing-sound-quality-compact-budget-friendly-hearing-aids-for-long-haul-drivers/"><u>Choosing Sound Quality: Compact, Budget-Friendly Hearing Aids for Long Haul Drivers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-garmin-forerunner-745-your-ultimate-gadget-for-multi-sports-training/"><u>Comprehensive Evaluation of Garmin Forerunner 745 - Your Ultimate Gadget for Multi-Sports Training</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-honor-magic-6-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Honor Magic 6 Lite | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/instantaneous-media-movement-android-to-iphone/"><u>Instantaneous Media Movement Android to iPhone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-truecaller-app-pros-cons-and-insights/"><u>The Ultimate Verdict on Truecaller App: Pros, Cons and Insights</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unityflip-blend-ios-and-macos-media-artfully/"><u>UnityFlip Blend iOS & macOS Media Artfully</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/bes-high-stakes-hardware-showdown-for-2024/"><u>YouTube’s High-Stakes Hardware Showdown for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Depths of Madden 19: Exceptional Features Yet Aging in Place"
-date: 2024-08-22T18:09:31.432Z
-updated: 2024-08-23T18:09:31.432Z
+date: 2024-10-02T16:35:14.442Z
+updated: 2024-10-06T18:48:17.436Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring the Depths of Madden 19: Exceptional Features Yet Aging in Place"
@@ -74,6 +74,13 @@ Lifewire / Jonno Hill
 
 ![LG Gram 17](https://www.lifewire.com/thmb/bPwgN393oESXdTRdBMHH9_o-50k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-17-Inch-Thin-Laptop-4-65036fddfdad4e9c904b1e4388426085.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 ## **Design** :**A thoughtful approach to larger laptops**
@@ -90,11 +97,22 @@ Lifewire / Jonno Hill
 
 ![LG Gram 17](https://www.lifewire.com/thmb/NZFtzU5S2IX_YcC_7X7i2oB0j1o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-17-Inch-Thin-Laptop-2-d528eacd17e849099026bd1df6142200.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup** **Process** :**No help needed**
 
  The LG Gram 17 arrives in a minimally packaged box containing only the essentials: The laptop itself, the charger, a manual, and an adapter for the USB-C port. LG definitely gets high marks on setup, requiring minimal steps to get set up and begin using your device right away. You will be prompted to enter the standard information any Windows laptop will ask—like your Wi-Fi credentials, a username and password, your timezone, and if you’d like, a fingerprint impression.
@@ -104,13 +122,14 @@ Lifewire / Jonno Hill
 ![LG Gram 17](https://www.lifewire.com/thmb/mt69Vhar3JM30uFdBWA58_wPdYg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-17-Inch-Thin-Laptop-5-f2352e95cadc4e2b99d738b0238fb7bf.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Display** :**A joy to use**
 
  The large, bright 17-inch 2560 x 1600 IPS display is definitely the centerpiece of the LG Gram 17\. It strikes the perfect balance of size to resolution ratio. Having a 16:10 aspect ratio instead of 16:9 definitely gives the feeling that you have more room to play around with.
@@ -137,18 +156,29 @@ Lifewire / Jonno Hill
 
  Having 16GB of Memory and a 512GB SSD makes the Gram a great choice for productivity purposes. We had no problem working with many browser windows open at the same time and switching back and forth between different applications. Shoppers looking to find a laptop with ample screen real estate and the specs necessary to deliver good performance now and into the future will be pleased with what the LG Gram 17 offers.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Audio** :**Sorry, what was that?**
 
  The[speakers](https://www.lifewire.com/all-about-speakers-4125129) on The LG Gram 17 are an afterthought at best, offering meek sounding audio originating from ill-placed speaker grills on the bottom. To make matters worse, these speakers are easily covered and muffled when it sits on your lap. Even when the stars aligned and we happened to leave the speakers unobstructed, we weren’t impressed by the sound offered. In short, get ready to use headphones or external speakers, and don’t plan on having any movie viewing parties with it either.
 
  Keep in mind though that while watching most standard 16:9 content, you aren’t taking advantage of all 17 inches of the display, and will see black bars on the top and bottom.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Network** :**Everything you’d expect**
 
  Wi-Fi on the LG Gram 17 gave us no trouble, offering a strong signal and speeds in any of the public and private environments we tested in. LG uses the Intel Wireless AC 9560 Wi-Fi adapter, the fastest of such chips currently on offer from Intel. This Wi-Fi adapter has a theoretical max speed of 1.73Gbps and offers a 2x2 antenna configuration, though you’re unlikely to ever hit such a high download speed.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Camera** :**Bare minimum**
 
@@ -158,9 +188,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Battery** :**Beyond plentiful**
 
  The LG Gram 17 is equipped with a more than capable battery that offers up to 19.5 hrs of battery life, according to LG. In our tests, the laptop averaged around 14 hours during mixed daily use—still quite a great deal. This is likely due to a mixture of the larger than average battery, lack of a discrete graphics card, and an energy-efficient display. This is about as good as you can hope for in a laptop, to be honest, and a surprising achievement for such a light and thin one. If time between charges is a concern for you, take note.
@@ -168,8 +195,12 @@ Lifewire / Jonno Hill
  When running Battery Eater Pro to push the laptop to its limits, it kicked the bucket in just over 2 hours and 30 minutes. This may seem like a very short time, but it’s still considerably better than any of the[other 17-inch laptops](https://www.lifewire.com/best-17-inch-laptops-832683) we tested using this brutal benchmark.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Software: Standard Windows with some unique features**
 
  The LG Gram 17 comes with a fairly vanilla installation of Windows 10 Home, offering very little in the way of custom third party applications or other types of bloat. In our eyes, this is a big plus, as having numerous added applications can slow systems (and users) down, and often serve as yet another piece of software to keep up to date.
@@ -182,9 +213,6 @@ Lifewire / Jonno Hill
 
  Finally, the LG Gram 17 comes with Reader Mode as a pre-installed app that runs in the background on startup and is accessible from the taskbar. Switching it on changes the color temperature of the display to filter out blue light (by default) and make night-time and low-light usage more pleasant. You can also take control of the adjustments that Reader Mode makes, controlling the brightness, contrast, and gamma adjustments for red, green, and blue independently. This seems excessive, but we can’t fault LG too much for giving users more control.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ## **Price: Lighter laptop, bigger price tag**
 
  At an MSRP of $1,700, the LG Gram 17 is not particularly affordable, and even less so when compared to similar options in the market. For this price, we would normally expect to get a discrete graphics card and the expanded possibilities that come with it. The premium you are paying for in this case isn’t sheer price-to-performance but portability and form factor. On these fronts, the LG Gram 17 definitely shines.
@@ -203,10 +231,6 @@ Lifewire / Jonno Hill
 
  As it stands, you won’t find a lighter, smaller 17-inch laptop than the LG Gram 17\. LG is aware of how valuable this is to buyers that care about these metrics, and has priced their laptop accordingly. If you are shopping for what the Gram has on offer, we can’t imagine you’ll be too disappointed. This is a smart, capable laptop that delights in daily use.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Gram 17
@@ -226,14 +250,11 @@ The ultimate burning program for all your needs!</a>
 * Warranty  1 Year Limited
 * Platform  Window 10 Home
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -242,4 +263,20 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-navigating-through-modern-cameras-complex-shooting-modes/"><u>2024 Approved Navigating Through Modern Camera's Complex Shooting Modes</u></a></li>
+<li><a href="https://techtrends.techidaily.com/code-28-issues-on-your-pc-heres-how-to-fix-them/"><u>Code 28 Issues on Your PC? Here's How to Fix Them</u></a></li>
+<li><a href="https://techtrends.techidaily.com/easy-fixes-for-a-tinted-television-conquer-the-blue-problem-with-these-eight-methods/"><u>Easy Fixes for a Tinted Television - Conquer the Blue Problem with These Eight Methods</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/how-to-craft-viral-unboxing-content-on-social-media/"><u>How to Craft Viral Unboxing Content on Social Media</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-unlocking-powerful-storytelling-through-screencasts/"><u>In 2024, Unlocking Powerful Storytelling Through Screencasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconnect-on-fb-post-block-friendship-guide/"><u>Reconnect on FB: Post-Block Friendship Guide</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/simplify-post-printing-steps-in-resin-3d-printing-discover-the-power-of-the-elegoo-bundle-for-just-149/"><u>Simplify Post-Printing Steps in Resin 3D Printing – Discover the Power of the Elegoo Bundle for Just $149!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ated-hardware-review-essential-capture-cards-for-online-viewing/"><u>Top-Rated Hardware Review Essential Capture Cards for Online Viewing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/transform-your-entertainment-space-with-samsung-qn55q6rafxza-the-smart-4k-uhd-hdr10plus-television/"><u>Transform Your Entertainment Space with Samsung QN55Q6#RAFXZA - The Smart, 4K UHD HDR10+ Television</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/transforming-youtube-footage-the-essentials-of-wm-maker-use/"><u>Transforming YouTube Footage The Essentials of WM Maker Use</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-evaluation-of-the-google-pixel-3-experience-true-android-magic/"><u>Ultimate Evaluation of the Google Pixel 3: Experience True Android Magic</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unboxing-is-an-ipad-a-smart-investment/"><u>Unboxing: Is an iPad a Smart Investment?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleashing-power-a-comprehensive-look-at-the-beatit-bt-d11-jump-starter-review/"><u>Unleashing Power: A Comprehensive Look at the Beatit BT-D11 Jump Starter Review</u></a></li>
+</ul></div>
 

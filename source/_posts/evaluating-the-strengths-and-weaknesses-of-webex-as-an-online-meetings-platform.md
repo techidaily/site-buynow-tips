@@ -1,7 +1,7 @@
 ---
 title: Evaluating the Strengths & Weaknesses of WebEx as an Online Meetings Platform
-date: 2024-08-27T12:12:15.501Z
-updated: 2024-08-28T12:12:15.501Z
+date: 2024-10-01T03:35:37.299Z
+updated: 2024-10-06T23:43:32.641Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating the Strengths & Weaknesses of WebEx as an Online Meetings Platform
@@ -39,6 +39,13 @@ Lifewire / Andy Zahn
 
 2.9
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Samsung UN65NU8000FXZA
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/J81HLCswW9vG3SGkOY0nkv2_soM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-1-97ff5fdad950453785f7a3f5491bf8fd.jpg)
@@ -67,11 +74,21 @@ Lifewire / Andy Zahn
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/_yzFIL-bClIpQ2-BreG8tli1L2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-4-a802a799a7c34067905c9ff965feea8e.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## **Design: Big and tough**
 
  The Samsung NU8000 is an elegant television with an attractive rear exterior, thin profile, and discretely sized bezels. As a 65” display you can expect it to dominate all but the most cavernous living rooms, but thanks to that slim profile and its slender bezels it occupies the minimum amount of space possible for such a large screen.
@@ -88,9 +105,6 @@ Lifewire / Andy Zahn
 
  We did encounter one troublesome bug where the remote partially de-synced from the display so that only the power button functioned properly. This is obviously a known issue, as on-screen instructions immediately appeared to reset the remote and re-establish the connection, and we found these instructions repeated inside the battery compartment of the remote. We also missed having dedicated buttons for popular streaming services such as Netflix and Hulu.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process: Some assembly required**
 
  The sturdiness of the NU8000’s stand comes at a small price in terms of ease of setup. The back panel of the pillar must be popped off to screw the stand together. The assembled base is then attached to the screen via a plate that slides into place and is then secured by more screws. The caveat is that unless you have a large table available for this process then it's very difficult and requires the cooperation of at least two other people. Once this is complete, insert the batteries into the remote, attach the power cord and any other wired connections, and you’re ready to go.
@@ -101,9 +115,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Image Quality: A real letdown**
 
  The good news is the NU8000 delivers great[4k](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) details; the bad news is that colors and contrast are flawed and muted. We immediately noticed the problems this TV has with rendering HDR content. Watching films and TV shows in movie mode provided the best experience, but trying to view nature shows, high-resolution photos, or other content where highly accurate colors and dynamic range are important demonstrated this screen’s faults.
@@ -130,11 +141,15 @@ Lifewire / Andy Zahn
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/AXYnUtoRwLv0QLo0Xm0_W28X-zg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-5-531f7de77d9746ba993c9966f10920be.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: A little slow**
 
  Samsung has built an excellent interface for its smart TVs, and the NU8000 is no exception. All your favorite apps are here, many of them pre-installed. Navigation is easy, and we had no trouble changing settings or finding our way around apps. Smart home, AI assistant, and voice integration capability allow you to configure it as a nerve center for your connected devices.
@@ -143,13 +158,17 @@ Lifewire / Andy Zahn
 
  The other software issue is that the NU8000 runs an older version of FreeSync, which means it doesn’t handle screen tearing as well as newer displays, especially when gaming on high-end hardware. However, during our testing, we didn’t notice an appreciable problem with this, though that may vary depending on your viewing and gaming habits.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Expensive at MSRP**
 
  With an MSRP of $999 the NU8000 is certainly no bargain, especially considering that superior displays are available for the same cost. However, as this is an older TV it may be possible to find steep discounts that make up for its deficiencies.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ## **Competition: NU8000 vs RU8000**
 
  When talking about the NU8000 it's impossible not to compare it to the newer and superior RU8000, especially considering their identical MSRP. Though in most respects they're technically identical, clearly there is a lot going on under the hood that elevates the RU8000 over the NU8000\. The display of the RU8000 provides noticeably better contrast and color rendition than the NU8000\. The software, though identical, runs much more smoothly on the RU8000, and the connection of the remote control was much more reliable.
@@ -165,8 +184,12 @@ Lifewire / Andy Zahn
  The Samsung UN65NU8000FXZ is capable, provides high resolution, and has excellent, flexible software with a good selection of apps. It's also exceptionally thin with a screen that's almost bezel-less, but unless the extremely sturdy stand is the most important feature to you, then RU8000 is just a better display at the exact same MSRP.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  UN65NU8000FXZA
@@ -186,8 +209,6 @@ Lifewire / Andy Zahn
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -195,4 +216,16 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-screen-sharing-tips-keeping-gh-conversations/"><u>[New] In 2024, Screen Sharing Tips Keeping GH Conversations</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-pureearaudioextractors-latest-evolution/"><u>[Updated] PureEarAudioExtractor's Latest Evolution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-apples-latest-giants-iphone-15-plus-vs-pro-max-which-is-better/"><u>Comparing Apple's Latest Giants: IPhone 15 Plus Vs. Pro Max – Which Is Better?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experts-choice-top-5-key-discovery-devices-of-2024/"><u>Expert's Choice: Top 5 Key Discovery Devices of 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-oppo-a2-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Oppo A2 Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-to-gameshare-with-friends-on-xbox-one/"><u>How to Gameshare With Friends on Xbox One</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/navigating-metas-portal-to-vr-how-to-establish-an-oculus-questquest-2-identity/"><u>Navigating Meta's Portal to VR: How To Establish An Oculus Quest/Quest 2 Identity</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/podcast-editing-101-how-to-edit-a-podcast-for-2024/"><u>Podcast Editing 101 How to Edit a Podcast for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-j5-tacticals-v1-pro-flashlight-a-blend-of-strength-and-compact-design/"><u>Unveiling the Power of J5 Tactical's V1 Pro Flashlight: A Blend of Strength and Compact Design</u></a></li>
+</ul></div>
 

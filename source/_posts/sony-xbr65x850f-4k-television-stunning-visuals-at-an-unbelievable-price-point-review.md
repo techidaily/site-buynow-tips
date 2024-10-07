@@ -1,7 +1,7 @@
 ---
 title: "Sony XBR65X850F 4K Television: Stunning Visuals at an Unbelievable Price Point Review!"
-date: 2024-08-27T12:07:09.091Z
-updated: 2024-08-28T12:07:09.091Z
+date: 2024-09-29T21:15:05.995Z
+updated: 2024-10-07T04:18:04.822Z
 categories:
   - BestProducts
 description: "This Article Describes Sony XBR65X850F 4K Television: Stunning Visuals at an Unbelievable Price Point Review!"
@@ -39,6 +39,19 @@ thumbnail: https://thmb.techidaily.com/2a86960040387567ee8a74265a39e135c9493f594
 
 3.6
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/EEEMCdq2FsBPMcT8nPUgndDIw4A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
@@ -65,14 +78,18 @@ thumbnail: https://thmb.techidaily.com/2a86960040387567ee8a74265a39e135c9493f594
 
  Though Sony panels are sometimes on the expensive end of the spectrum, there are some older Sony 4K TVs that can be had for a nice little discount. One such TV is Sony’s XBR65X850F from their X850F series. This specific model has now been replaced by the X850G, but that doesn’t mean you necessarily need to go with the most current model. In fact, snagging one of these earlier generation sets can save you some cash without forcing you to compromise too much.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Standard Sony**
 
  The XBR65X850F's design is a combination of sleek and workmanlike. The stand on this Sony is pretty common for TVs these days, with two V-shaped feet that stick out to either side. While they look aluminum, these are actually plastic too, with merely an aluminum finish. They are decently steady, but we noticed a bit of wobble if you move the TV around. It should be plenty sturdy for most, though you will need a fairly wide stand for them to rest on since they stick out so far. There’s also no room for adjusting the unit up or down, but they’re tall enough to fit a soundbar underneath if you want. They also flip open on the top if you want to use them for some clever cable management.
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/v7wi7isxu06LAoWNZK3dJ908mCk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-4-cb1a370bd78244b383c802010a570313.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -88,9 +105,6 @@ thumbnail: https://thmb.techidaily.com/2a86960040387567ee8a74265a39e135c9493f594
 
  On the front of the screen, the bezels are a little thicker than some of the 4K TVs we’ve reviewed, but they’re pretty thin and shouldn’t distract. There’s your standard anti-glare coating found on the screen here too.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ## **Setup Process: Stick to the on-screen instructions**
 
  Setting up pretty much any modern-day smart TV is an easy process, so just stick to the on-screen instructions and you’ll be golden. Go ahead and unpack it all, tear off that plastic film, plug in the power cable, and turn on the device.
@@ -104,8 +118,18 @@ thumbnail: https://thmb.techidaily.com/2a86960040387567ee8a74265a39e135c9493f594
  With the initial process done, you will likely need to run a quick update check. This should automatically pop up, but check under the settings tab if it doesn’t. An update to the firmware should improve things considerably, especially if you need to upgrade to the latest version of Android TV. Updating takes a bit of time to do, so maybe go watch some TV while…oh right. Well, whatever you do during this process, just remember not to unplug the power while it’s running through updates.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Image Quality: Impressive 4K for IPS with some shortcomings**
 
  This section is perhaps the most important for a TV, and while the XBR65X850F performs pretty well in some aspects here, it also has a few weak points.
@@ -113,6 +137,19 @@ thumbnail: https://thmb.techidaily.com/2a86960040387567ee8a74265a39e135c9493f594
  Starting off with some of this unit’s strengths, this particular series uses an IPS panel for the screen, which means you’re going to get vibrant colors, a nice backlight for viewing in bright rooms, and excellent viewing angles. This all adds up to a superb experience if you’ve got a big living room that’s brightly lit by windows, where viewers might not be able to sit completely centered.
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/r5reh9LkA7QvieX1JzBg5J8qNjY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-5-00a73edbf91c48c6aa2718ab211f2e5d.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -128,16 +165,8 @@ thumbnail: https://thmb.techidaily.com/2a86960040387567ee8a74265a39e135c9493f594
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ## **Audio Quality: Loud, but distorted**
 
  Built-in speakers are never going to be great, but they’re nice to have if you’re lacking an[external sound system](https://www.lifewire.com/connect-tv-to-external-audio-system-1846816) like a soundbar. While we’d recommend getting an external setup for the best experience, let’s take a quick look at what the XBR65X850F has to offer with the included setup.
@@ -166,9 +195,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  But how do these prices stack up against comparable TVs from competitors like LG or Samsung? Taking a quick look around online, you can easily save a few hundred dollars by going with a comparable LG TV, while Samsung was pretty closely matched with Sony. In the end, the price for the X850F series isn’t the best bang for your buck, but it ain’t bad either.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## **Sony XBR65X850F vs. Samsung UN65RU8000**
 
  Now there are a ton of comparable 4K TVs out there stacked up against the Sony XBR65X850F, but Samsung is a similarly reputable brand, so let’s compare their UN65RU8000 (view on[Amazon](https://www.amazon.com/Samsung-UN65RU8000-Ultimate-SurgePro-6-Outlet/dp/B07Q6VCCLF?tag=lifewire-onsite-prod-20&ascsubtag=4796693%7Cn899f0376278d4881a5af76b596b54aa000%7C) ).
@@ -187,6 +213,13 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  The X850F series is far from perfect, but the Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV and its family are more than capable of providing a pleasurable viewing experience for most people. Despite this, there are probably better options out there that can be had for even less.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
@@ -201,14 +234,11 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 * Speakers  2 full range, 2ch
 * Connectivity Options  4 HDMI
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -217,4 +247,26 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ssential-tools-top-8-mirrorless-cams-for-professional-filmmakers-for-2024/"><u>[New] Essential Tools Top 8 Mirrorless Cams For Professional Filmmakers for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-drone-journey-full-phantom-4-features-explored/"><u>[New] The Ultimate Drone Journey Full Phantom 4 Features Explored</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/orldwide-rich-list-top-earning-youtubers-for-2024/"><u>[New] Worldwide Rich List Top Earning YouTubers for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-exploring-immersive-tech-vr-explained-simply-for-2024/"><u>[Updated] Exploring Immersive Tech VR Explained Simply for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-content-creator-to-earnings-expert-on-youtube/"><u>[Updated] From Content Creator to Earnings Expert on YouTube</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-fueled-personalization-enhance-user-experience-with-smart-marketing-automation/"><u>Cookiebot-Fueled Personalization: Enhance User Experience with Smart Marketing Automation</u></a></li>
+<li><a href="https://article-helps.techidaily.com/elevate-your-brands-reach-with-a-strategic-approach-to-social-media-management-for-2024/"><u>Elevate Your Brand's Reach with a Strategic Approach to Social Media Management for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/essential-guide-to-obtaining-thunderbolt-driver-packages-on-windows-systems/"><u>Essential Guide to Obtaining Thunderbolt Driver Packages on Windows Systems</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-lg-digital-cinema-31mu97-b-4k-monitor-review/"><u>In 2024, LG Digital Cinema 31MU97-B 4K Monitor Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-testing-of-asus-rt-ac88u-does-it-deliver-for-gamers/"><u>In-Depth Testing of Asus RT-AC88U - Does It Deliver for Gamers?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lamicalls-tablet-accessory-revealed-thoughtfully-engineered-for-user-friendly-experience/"><u>Lamicall's Tablet Accessory Revealed: Thoughtfully Engineered for User-Friendly Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-professional-development-courses-on-linkedin/"><u>Leading Professional Development Courses on LinkedIn</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lenovo-thinkpad-x1-nano-assessment-ultra-portable-laptop-evaluation/"><u>Lenovo ThinkPad X1 Nano Assessment: Ultra-Portable Laptop Evaluation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lg-um7300-49-smart-4k-television-comprehensive-review-of-a-cost-effective-4k-set/"><u>LG UM7300 49 Smart 4K Television: Comprehensive Review of a Cost-Effective 4K Set</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/m06-bluetooth-hearing-aids-reliable-connection/"><u>M06 Bluetooth Hearing Aids: Reliable Connection</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/razer-book-13-evaluation-compact-device-with-impressive-performance/"><u>Razer Book 13 Evaluation: Compact Device with Impressive Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-alert-the-high-performance-docooler-usb-20-12mp-compact-digital-slr-examined/"><u>Review Alert: The High-Performance Docooler USB 2.0 12MP Compact Digital SLR Examined</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-totobabays-second-generation-luminous-awakening-light-the-smart-way-to-start-your-morning-on-a-budget/"><u>Review: Totobabay's Second Generation Luminous Awakening Light – The Smart Way to Start Your Morning on a Budget</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-ultimate-resource-for-building-your-dream-computer-with-toms-advice/"><u>The Ultimate Resource for Building Your Dream Computer with Tom's Advice</u></a></li>
+</ul></div>
 

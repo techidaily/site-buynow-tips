@@ -1,7 +1,7 @@
 ---
 title: "IPad Pro Vs. Surface Pro: A Comprehensive Guide to Their Unique Features"
-date: 2024-08-22T18:10:36.703Z
-updated: 2024-08-23T18:10:36.703Z
+date: 2024-09-30T16:04:13.031Z
+updated: 2024-10-06T19:25:36.366Z
 categories:
   - BestProducts
 description: "This Article Describes IPad Pro Vs. Surface Pro: A Comprehensive Guide to Their Unique Features"
@@ -44,6 +44,13 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/R_aYhYLFGT6--hIRDTNUJTlIVn8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_hero-Square-f2b4744360d644a1b93b7541af7eb182.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
 [View On Amazon $699](https://www.amazon.com/dp/B078WRSHV4/?tag=lifewire-onsite-prod-20&ascsubtag=4779835%7Cnbd1cf0f7690f4c68a44d26c3ec46a2c410%7CB078WRSHV4)
@@ -75,9 +82,6 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Amazingly light, but not wholly convincing**
 
  Weight aside, the LG Gram 15.6-inch doesn't make the strongest impression in the category. It's a relatively minimal design that's not too fussed-over, but doesn't give the impression that it was chiseled out of a solid brick of aluminum like a MacBook Air or Pro. In fact, it's made from nano carbon magnesium, which must be how LG kept it so darn light.
@@ -101,9 +105,20 @@ Lifewire / Andrew Hayward
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/1qu1WvdEgTzjUQ8QH_Lssx79xF0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Trackpad_05-f0d9dc63b03e4650a92e30747090889a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Just follow the directions**
 
@@ -119,11 +134,15 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/TFbt9G36hk5JyrBL8cIdIuYQ66E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Keyboard_03-fd7e355ac5944f12a8107746d0afbf24.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Performance: Solid power for everyday tasks**
 
  With an 8th-gen Intel Core i5-8250U at 1.6Ghz and 8GB RAM onboard, the 2018 LG Gram runs on the same chipset as the Surface Laptop 2 and Dell XPS 13\. It provides solid power for everyday tasks, and we didn't run into any noticeable slowdown while moving around Windows 10, surfing the web, typing up documents, and loading up apps. It's not a powerhouse CPU, however, and creative professionals looking for a machine for photo or video editing, for example, will surely want more processing power and RAM to play with.
@@ -137,8 +156,12 @@ Lifewire / Andrew Hayward
  As an aside, while the LG Gram often runs near-silently, there are extended periods of time in which there's an audible hum coming from the back. It's not the typical, very loud fan noise that pops up while gaming or heavy multitasking from some computers, but it can be a bit grating. We noticed it while charging the computer, but also while running on the battery—with no consistency on that front. It's a mild annoyance, but it's one we noticed whenever it emerged.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Audio: It makes an impression**
 
  You won't see the speakers when the LG Gram is standing up as normal, but you'll hear them loud and clear. The stereo speakers are tucked underneath the laptop at the left and right edges near where your wrists rest, and thanks to the slight elevation from the rubbery feet on the bottom of the laptop, they're given enough space for the output to shine. Audio playback sounds robust and clear—not quite to the level of Apple's current MacBook Air and MacBook Pro, but very close. We were pleased with it.
@@ -161,18 +184,12 @@ Lifewire / Andrew Hayward
 
  With our typical workflow of browsing the web, chatting on Slack, typing up documents, and streaming a little bit of media, we typically saw 8-9 hours of uptime at 100% brightness.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: Hello, Windows (but no Windows Hello)**
 
  The LG Gram 15.6-inch comes with Windows 10 Home preinstalled, and if you've used Windows over the years, then you should be pretty comfortable here. Windows 10 has lightly evolved the PC operating system with feature enhancements and tweaks without losing the classic, familiar DNA within, and it's the OS of choice for computer gaming and apps of all shapes and sizes. It's easy to use and understand, and runs well with the Intel Core i5 and an SSD onboard.
 
  Unfortunately, this entry-level model of the LG Gram 15.6-inch isn't able to take advantage of Windows Hello biometric security, as the camera above the display doesn't have the needed sensors for scanning your face. We missed the near-instantaneous facial recognition of the Surface Laptop 2, and having to type in a PIN number each time we opened up the lid. Pricier models of the laptop offer a fingerprint scanner, however.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: Solidly priced, considering its strengths**
 
  Originally priced at $1,249, the entry-level LG Gram 15.6-inch (2018) can now be found for about $999 as of this writing. LG has rolled out newer 2019 versions that look identical and have the same core features, but upgrade to the latest generation of Intel Core processors. You should see a little bit more speed in benchmark testing, although it's unclear whether there's any noticeable difference during regular usage.
@@ -181,11 +198,15 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/5yzhAkphyYfWOMofqawuktHJlA0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-v.-Surface-comparison-4946178bf2e94230820d2b19d2fb7197.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **LG Gram 15.6-inch (2018) vs. Microsoft Surface Laptop 2: Better than Microsoft's own?**
 
  The LG Gram 15.6-inch and Microsoft Surface Laptop 2 are similarly equipped, in terms of having the same processor and integrated graphics chip, although they vary quite a bit from there. As noted, the LG Gram's claim to fame comes with the resilient battery and large screen for such a lightweight computer.
@@ -217,14 +238,11 @@ Lifewire / Andrew Hayward
 * Battery Capacity  72 Wh
 * Ports  1x USB-C, 3x USB-3, HDMI, microSD, 3.5mm headphone port
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -233,4 +251,26 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-tailor-your-space-the-best-apps-to-create-engaging-youtube-themes/"><u>[New] Tailor Your Space The Best Apps to Create Engaging YouTube Themes</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-perfect-path-from-srt-to-multiple-subtitle-standards/"><u>[New] The Perfect Path From SRT to Multiple Subtitle Standards</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-comprehensively-unveiling-the-syma-x5c-your-first-drones-matchmaker-for-2024/"><u>[Updated] Comprehensively Unveiling the Syma X5C – Your First Drone's Matchmaker for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-innovative-recorder-software-top-10-of-this-year/"><u>[Updated] Innovative Recorder Software Top 10 of This Year</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-professional-approaches-for-logging-youtube-streams/"><u>2024 Approved Professional Approaches for Logging YouTube Streams</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024s-cloud-pricing-breakdown-a-detailed-comparison/"><u>2024'S Cloud Pricing Breakdown A Detailed Comparison</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/battle-the-lag-ultimate-guide-to-fixing-halo-infinites-pc-freezes-in-just-7-steps/"><u>Battle the Lag: Ultimate Guide to Fixing Halo Infinite's PC Freezes in Just 7 Steps</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-vivo-x100-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Vivo X100 Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-tecno-pop-8-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Tecno Pop 8 without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-honor-play-40c-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Honor Play 40C</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-sea-tech-usb-connected-blu-ray-writer-features-usability-and-user-review-insights/"><u>In-Depth Look at the Sea Tech USB-Connected Blu-Ray Writer: Features, Usability & User Review Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-stylish-and-modern-swagtron-swagger-ride/"><u>In-Depth Look at the Stylish and Modern Swagtron Swagger Ride</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-the-twelve-south-bookbook-v2-the-ultimate-protection-for-your-macbook/"><u>In-Depth Review of the Twelve South BookBook v2 - The Ultimate Protection for Your MacBook</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ipad-pro-2021-the-ultimate-tablet-experience-with-powerful-m1-processing-a-review/"><u>IPad Pro 2021: The Ultimate Tablet Experience with Powerful M1 Processing - A Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/key-points-pre-shopping-considerations-for-tvs/"><u>Key Points: Pre-Shopping Considerations for TVs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-gameplay-latency-discover-how-the-asus-rog-rapture-gt-ax11000-dominates-speed-and-gaming-features/"><u>Mastering Gameplay Latency? Discover How the Asus ROG Rapture GT-AX11000 Dominates Speed and Gaming Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigate-with-ease-selecting-the-perfect-mice-for-your-mac-this-year/"><u>Navigate with Ease: Selecting the Perfect Mice for Your Mac This Year</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-the-world-of-consoles-5-must-know-tips-before-buying-one/"><u>Navigating the World of Consoles: 5 Must-Know Tips Before Buying One</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/overwatch-game-review-a-captivating-blend-of-strategy-and-cooperation/"><u>Overwatch Game Review: A Captivating Blend of Strategy and Cooperation</u></a></li>
+</ul></div>
 

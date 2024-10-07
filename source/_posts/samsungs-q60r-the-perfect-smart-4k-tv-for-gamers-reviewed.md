@@ -1,7 +1,7 @@
 ---
 title: "Samsung's Q60R: The Perfect Smart 4K TV for Gamers, Reviewed"
-date: 2024-09-24T17:38:21.854Z
-updated: 2024-09-26T18:18:39.487Z
+date: 2024-10-01T17:56:06.136Z
+updated: 2024-10-07T01:21:34.907Z
 categories:
   - BestProducts
 description: "This Article Describes Samsung's Q60R: The Perfect Smart 4K TV for Gamers, Reviewed"
@@ -45,10 +45,10 @@ Lifewire / Andy Zahn
 ![Insta360 One X2](https://www.lifewire.com/thmb/SA87_MJD5mJRnYY0t31c9ELFmlc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Insta360_One_X2_HeroSquare-80809b6088f0400baa121b1e7d14e4b1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
@@ -76,10 +76,10 @@ Lifewire / Andy Zahn
  Traditionally,[action cameras](https://www.lifewire.com/best-action-cameras-4139765) only capture a tiny window into the world. However, the Insta360 One X2 is one of a new breed of cameras that aim to uphold this age-old truth by capturing absolutely everything around them in a single spherical image. This opens up a wealth of opportunities from nifty editing tricks to easily capturing[VR](https://www.lifewire.com/virtual-reality-vr-definition-4155090) experiences.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Design: A chunky, waterproof build
@@ -96,13 +96,6 @@ Lifewire / Andy Zahn
 
  Controls consist of a shutter button, power button, and circular touchscreen. An[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) light indicates the camera's status, and there is a standard tripod mount on the underside of the camera.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Setup Process: Mostly straightforward
 
  The One X2 came partially charged and ready to go once I inserted a[microSD card](https://www.lifewire.com/best-sd-cards-to-buy-4072362) , though first I had to install the Insta360 app on my phone and activate the camera. This turned out to be a bit of a pain, with the Bluetooth connection used to activate the One X2 and set up the Wi-Fi connection repeatedly timing out and failing. Eventually, I got it up and running, and aside from the one hiccup, the process was fairly smooth, if more complex than I’d typically expect from a camera.
@@ -118,6 +111,13 @@ Lifewire / Andy Zahn
 Lifewire / Andy Zahn
 
  One thing to remember about the One X2 is that its 5.7K recording resolution isn’t as sharp and detailed as you might expect, and when you crop down to a standard 16:9 frame you end up with[1080p](https://www.lifewire.com/what-the-term-1080p-means-1846837) . That’s good enough for viewing on a phone or small tablet, but the low resolution, as well as noise and image artifacts, become pretty significant when viewed on a large computer monitor.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Audio: Unimpressive overall
 
@@ -150,15 +150,22 @@ Lifewire / Andy Zahn
 Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Price: Good value
 
  With an MSRP of $430, the One X2 is only a little more expensive than a high-end action camera, but it’s not bad for a 360 camera. It’s a good value if being able to shoot 360-degree video is a necessity for you.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Insta360 One X2 vs. GoPro Hero 9 Black
 
@@ -175,13 +182,6 @@ Lifewire / Andy Zahn
 * [GoPro HERO9 Black](https://www.lifewire.com/gopro-hero9-black-review-5120078)
 * [AKASO EK7000 Pro 4K Action Camera](https://www.lifewire.com/akaso-ek7000-pro-4k-action-camera-review-4770265)
 * [GoPro HERO7 Black](https://www.lifewire.com/gopro-hero7-black-review-4705929)
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -222,19 +222,17 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-achieve-professionalism-in-sims-4-videography/"><u>[New] Achieve Professionalism in Sims 4 Videography</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-apples-ios-a-treasure-trove-of-vr-game-hits/"><u>[Updated] 2024 Approved Apple's iOS A Treasure Trove of VR Game Hits</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-freedom-of-filmmaking-top-android-video-editing-apps/"><u>[Updated] 2024 Approved The Freedom of Filmmaking Top Android Video Editing Apps</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-capturing-the-thrill-streaming-gameplay-like-a-pro-for-2024/"><u>[Updated] Capturing the Thrill Streaming Gameplay Like a Pro for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-how-to-fade-audio-in-lumafusion/"><u>[Updated] How To Fade Audio In Lumafusion</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-hairstyles-for-visual-gurus/"><u>2024 Approved Hairstyles for Visual Gurus</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-superior-reception-with-clearstream-2v-all-in-one-hdtv-antenna-a-comprehensive-review/"><u>Experience Superior Reception with ClearStream 2V All-in-One HDTV Antenna - A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-blade-e-flite-mcx-your-guide-to-the-premier-ready-to-fly-rotorcraft/"><u>Expert Analysis of Blade E-Flite mCX² - Your Guide to the Premier Ready-To-Fly Rotorcraft</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-evaluation-of-the-tp-link-ac1200-re305-wi-fi-repeater/"><u>Expert Evaluation of the TP-Link AC1200 RE305 Wi-Fi Repeater</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expertly-chosen-selection-best-power-inverters-to-upgrade-your-setup/"><u>Expertly Chosen Selection: Best Power Inverters to Upgrade Your Setup</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-strengths-and-limitations-a-review-on-zmi-powerpack-20000s-portability-quotient/"><u>Exploring the Strengths & Limitations: A Review on ZMI PowerPack 20000'S Portability Quotient</u></a></li>
-<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On OnePlus Nord N30 SE | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-engage-and-enthrall-viewers-gaming-via-obs-studio/"><u>In 2024, Engage and Enthrall Viewers Gaming via OBS Studio</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/step-up-to-smart-searching-with-perplexity-ai-the-google-companion-you-need/"><u>Step Up to Smart Searching with Perplexity AI - The Google Companion You Need</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-first-time-action-cam-purchases-decoded-for-2024/"><u>[New] First-Time Action Cam Purchases Decoded for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-taking-advantage-of-vlcs-conversion-features-beyond-mp4-for-2024/"><u>[Updated] Taking Advantage of VLC's Conversion Features Beyond MP4 for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723084558975-expert-picks-leading-steam-deck-video-games-in-2-cuffs-that-you-should-play-now/"><u>Expert Picks: Leading Steam Deck Video Games in 2 Cuffs that You Should Play Now!</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Oppo Find N3 Flip? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/imac-m1-review-a-visual-refresh-and-the-powerful-m1-chip/"><u>IMac M1 Review: A Visual Refresh and the Powerful M1 Chip</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-aurora-hdr-reviews-is-aurora-hdr-a-good-choice/"><u>In 2024, Aurora HDR Reviews Is Aurora HDR a Good Choice ?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-apples-homepod-mini-features-on-sound-quality-siri-integration-and-user-experience/"><u>In-Depth Analysis of Apple's HomePod Mini: Features on Sound Quality, Siri Integration, and User Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-my-ipad-no-longer-up-to-date-or-relevant/"><u>Is My iPad No Longer Up-to-Date or Relevant?</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-8-best-multi-subtitles-translators-you-shouldnt-miss/"><u>New In 2024, 8 Best Multi-Subtitles Translators You Shouldnt Miss</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/optimizing-performance-a-comprehensive-guide-to-configuring-logitech-mx-series-devices/"><u>Optimizing Performance: A Comprehensive Guide to Configuring Logitech MX Series Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-essential-guide-to-choosing-a-garmin-venu-for-holistic-health-tracking/"><u>The Essential Guide to Choosing a Garmin Venu for Holistic Health Tracking</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/transforming-aax-audio-files-to-mp3-on-windows-10-and-11-a-step-by-step-guide/"><u>Transforming AAX Audio Files to MP3 on Windows 10 & 11: A Step-by-Step Guide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Reviewing the Unihertz Atom XL – Unleashing Impressive Power in Tiny Packages
-date: 2024-08-27T12:11:20.622Z
-updated: 2024-08-28T12:11:20.622Z
+date: 2024-10-03T23:13:39.331Z
+updated: 2024-10-06T19:38:26.245Z
 categories:
   - BestProducts
 description: This Article Describes Reviewing the Unihertz Atom XL – Unleashing Impressive Power in Tiny Packages
@@ -83,8 +83,12 @@ Lifewire / Jeremy Laukkonen
  Aside from the bold vent grill, the Series S doesn’t break any new ground regarding design choices. It has sturdy rubber feet on two sides, so you can lay it flat or stand it up on end, as has become more or less standard with home consoles. It feels pretty sturdy in both positions.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup Process: Easier than ever before**
 
  Game consoles are usually pretty easy to set up, but the Xbox Series S takes that to the next level. Start by connecting the console to a television with an HDMI cable and plugging it into power. When you turn the Series S and the TV on, you get an invitation to set up the console with the Xbox app or do it the traditional way.
@@ -134,8 +138,12 @@ Lifewire / Jeremy Laukkonen
  Microsoft's $7.5B purchase of Bethesda's parent company, Zenimax, brought some hope of additional exclusives appearing in Microsoft's arsenal. (Bethesda is the publisher of Fallout, DOOM, Dishonored, Skyrim, Wolfenstein, The Elder Scrolls, and more.) However, the situation is murky as the company has yet to clarify which (if any) Bethesda titles will be exclusive to Xbox.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Storage: Disappointingly shallow, so bring your USB drive**
 
  The biggest problem with the Xbox Series S is the lack of storage. Unlike the Series X, which packs in a 1TB drive, the Series S only offers 512GB of space. That's an extremely shallow pool to swim in when dealing with an all-digital console, as you have to download every game you play.
@@ -151,8 +159,12 @@ Lifewire / Jeremy Laukkonen
  So if you go with an external USB drive, you'll only be able to play Xbox One, Xbox 360, and original Xbox games stored on it.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Internet Connectivity: Fast when wired, but Wi-Fi is a mixed bag**
 
  With all those massive games and the fact that the Series S is a digital-only console, you will spend a lot of time downloading. The Series S has built-in Wi-Fi and an Ethernet port, so you have options, but a wired connection is the way to go here.
@@ -160,8 +172,12 @@ Lifewire / Jeremy Laukkonen
 ![Xbox Series S](https://www.lifewire.com/thmb/_GSxQvNgtJMhoyNl62qlg671Qvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2-25991056c5c2486695923f7c1b61c7b5.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
  When downloading over Wi-Fi, I rarely saw over 150Mbps (compared to the 350Mbps I measured on my HP Spectre x360 laptop in the same room and at the same time). Curiously, the Series S download speed tanked, down to the lower double digits, while I was running speed tests on my laptop. Similarly, download speeds dive into the low teens whenever a game runs, even in the background.
@@ -192,14 +208,15 @@ Lifewire / Jeremy Laukkonen
 
 ![Xbox Series S](https://www.lifewire.com/thmb/MZdEnnFWPzhGzv_P5GO8byAY5qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3-dd9458b294e74205acad2ff6fee33913.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Jaw-droppingly low**
 
  Pardon me for burying the lede, but the price of the Xbox Series S is the actual headline here. The Series S has an astoundingly low MSRP of just $299\. Additionally, you can buy one by paying just $24.99 per month for two years, including access to Game Pass Ultimate.
@@ -210,10 +227,6 @@ Lifewire / Jeremy Laukkonen
 
  One expense you may need to budget is a high-speed USB 3.1 drive. The console is perfectly usable without an external drive, but expect to uninstall games regularly to make more space if you limit yourself to the onboard storage.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## **Xbox Series S vs. PS5 Digital**
 
  This comparison is a bit of an unfair fight because Microsoft and Sony took entirely different approaches when designing their lower-priced console options. Microsoft cut back on hardware to offer an incredibly low price point, while Sony removed the optical drive. The result is that the PS5 Digital blows the Xbox Series S out of the water in terms of graphics and performance, but they aren’t even in the same time zone in terms of price.
@@ -227,6 +240,13 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  **An affordable alternative for those without a 4K television.**
 
  The Xbox Series S might be a bit of a step back from the Xbox One X in performance, but the fact is that it’s a next-gen console that plays next-gen games with some impressive hardware and an unreal price tag. Gamers in search of the best graphics possible will want to look at the Xbox Series X instead, but gamers who haven’t yet made the 4K plunge, parents in need of an affordable console for their kids, or anyone looking to save money will all find something to like here.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -261,8 +281,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -270,4 +288,26 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-best-5-book-video-promotions-ever-made/"><u>[New] 2024 Approved The Best 5 Book Video Promotions Ever Made</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-navigating-final-cut-pro-with-ease-an-insiders-guide-for-2024/"><u>[New] Navigating Final Cut Pro with Ease An Insider's Guide for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-mastering-knowledge-acquisition-beyond-virtual-videos/"><u>[Updated] 2024 Approved Mastering Knowledge Acquisition Beyond Virtual Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-add-instagram-filter-to-existing-photos-and-videos-for-2024/"><u>[Updated] How to Add Instagram Filter to Existing Photos and Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-cool-climates-with-a-warm-twist-selecting-video-bgs/"><u>[Updated] In 2024, Cool Climates with a Warm Twist Selecting Video Bg's</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-essential-strategies-for-uploading-to-instagram-tv/"><u>[Updated] In 2024, Essential Strategies for Uploading to Instagram TV</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-new-youtube-earning-rules-unveiled/"><u>[Updated] New YouTube Earning Rules Unveiled</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/all-inclusive-data-reconstruction-platform-the-best-in-versatile-data-restoration-solutions/"><u>All-Inclusive Data Reconstruction Platform: The Best in Versatile Data Restoration Solutions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/scrutinizing-the-pros-and-cons-of-boses-audio-device/"><u>Scrutinizing the Pros and Cons of Bose's Audio Device</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/snapshot-of-essential-thoughts-before-buying-vr-equipment/"><u>Snapshot of Essential Thoughts Before Buying VR Equipment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/step-up-your-game-a-meticulous-breakdown-of-the-oculus-quest-2s-stylish-and-functional-elite-armband-with-secure-case-combo/"><u>Step Up Your Game: A Meticulous Breakdown of the Oculus Quest 2’S Stylish and Functional Elite Armband with Secure Case Combo</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/surviving-blackouts-in-esports-apgs-top-picks-for-a-secure-and-stable-pc-power-source/"><u>Surviving Blackouts in Esports: APG's Top Picks for a Secure and Stable PC Power Source</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-aphaca-bt6-groovy-a-detailed-look-at-the-best-wireless-fm-transmitter-with-bluetooth-technology/"><u>The Aphaca BT6 Groovy? - A Detailed Look at the Best Wireless FM Transmitter with Bluetooth Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-rexing-v1-dashcam-balancing-cost-concealment-and-trustworthiness-your-comprehensive-review/"><u>The Rexing V1 DashCam: Balancing Cost, Concealment & Trustworthiness – Your Comprehensive Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-tp-link-deo-p9-mesh-wifi-system-features-performance-and-ease-of-use-revealed/"><u>The Ultimate Guide to the TP-LInk Deo P9 Mesh WiFi System: Features, Performance, & Ease of Use Revealed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-showdown-in-depth-analysis-of-lg-gram-17s-stellar-speed-and-portability/"><u>The Ultimate Showdown: In-Depth Analysis of LG Gram 17'S Stellar Speed & Portability</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-5-high-performance-rechargeable-battery-chargers-of-2024/"><u>Top 5 High-Performance Rechargeable Battery Chargers of 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/unlock-your-boost-mobile-apple-iphone-se-2022-before-the-plan-expires-by-drfone-ios/"><u>Unlock Your Boost Mobile Apple iPhone SE (2022) Before the Plan Expires</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/windows-troubleshooting-guide-correcting-the-entry-point-not-found-mistake/"><u>Windows Troubleshooting Guide: Correcting the 'Entry Point Not Found' Mistake</u></a></li>
+</ul></div>
 

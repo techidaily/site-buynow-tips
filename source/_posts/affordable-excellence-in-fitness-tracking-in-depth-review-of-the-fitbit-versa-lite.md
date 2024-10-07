@@ -1,7 +1,7 @@
 ---
 title: Affordable Excellence in Fitness Tracking - In-Depth Review of the Fitbit Versa Lite
-date: 2024-09-22T17:21:51.430Z
-updated: 2024-09-26T17:40:30.865Z
+date: 2024-09-29T20:30:51.647Z
+updated: 2024-10-06T18:46:30.058Z
 categories:
   - BestProducts
 description: This Article Describes Affordable Excellence in Fitness Tracking - In-Depth Review of the Fitbit Versa Lite
@@ -37,6 +37,13 @@ Lifewire / Jonno Hill
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
@@ -65,10 +72,10 @@ Lifewire / Jonno Hill
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Basic but effective**
@@ -76,6 +83,13 @@ Lifewire / Jonno Hill
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
 
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup: Dead simple**
 
@@ -88,22 +102,15 @@ Lifewire / Jonno Hill
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: Fairly limited**
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Excellent for the performance**
 
@@ -119,13 +126,6 @@ Lifewire / Jonno Hill
 
 **No fuss, good value.**
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -154,20 +154,24 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/rafting-compelling-proposals-a-famebit-guide-to-channel-ads-for-2024/"><u>[New] Crafting Compelling Proposals A FameBit Guide to Channel Ads for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-crafting-immersive-brand-experiences-in-metaverse/"><u>[New] Crafting Immersive Brand Experiences in Metaverse</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-the-fundamentals-of-vimeo-video-logging-for-2024/"><u>[New] The Fundamentals of Vimeo Video Logging for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-exclusive-guide-to-top-youtube-to-webm-conversion-software/"><u>2024 Approved Exclusive Guide to Top YouTube-to-WebM Conversion Software</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-ideal-episodic-unveiling-schedule/"><u>2024 Approved Ideal Episodic Unveiling Schedule</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/best-webcam-apps-compatible-with-badoo-chats-discover-manycam-features/"><u>Best Webcam Apps Compatible with Badoo Chats - Discover ManyCam Features</u></a></li>
-<li><a href="https://extra-information.techidaily.com/premier-no-8-digital-composers-kit/"><u>Premier No. 8 Digital Composer's Kit</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/samsung-qn55q60rafxza-in-depth-review-of-the-impressive-4k-uhd-smart-tv-with-hdr10plus/"><u>Samsung QN55Q60RAFXZA - In-Depth Review of the Impressive 4K UHD Smart TV with HDR10+</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/supercharge-your-wireless-network-with-the-new-nighthawk-x6s-by-netgear/"><u>Supercharge Your Wireless Network with the New Nighthawk X6S by Netgear</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-outer-worlds-review/"><u>The Outer Worlds Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-philips-hf3520-alarm-clock-a-budget-friendly-option-that-delivers/"><u>The Ultimate Guide to the Philips HF3520 Alarm Clock - A Budget-Friendly Option That Delivers</u></a></li>
-<li><a href="https://fox-that.techidaily.com/troubleshooting-iphone-gps-issues-solutions-for-when-location-services-fail/"><u>Troubleshooting iPhone GPS Issues: Solutions for When Location Services Fail</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unparalleled-performance-a-detailed-review-of-the-xbox-one-elite-series-2-controller-a-legendary-gamepad/"><u>Unparalleled Performance: A Detailed Review of the Xbox One Elite Series 2 Controller, a Legendary Gamepad</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-best-mid-range-tablet-experience-with-samsung-galaxy-tab-s7-for-android-users/"><u>Unveiling the Best Mid-Range Tablet Experience with Samsung Galaxy Tab S7 for Android Users</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-best-of-affordable-tech-in-depth-guide-to-pruveeos-1080p-full-hd-dash-cam/"><u>Unveiling the Best of Affordable Tech: In-Depth Guide to Pruveeo's 1080P Full HD Dash Cam</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-stream-perfecting-tweets-with-correct-video-formats/"><u>[New] In 2024, Stream-Perfecting Tweets with Correct Video Formats</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-perfectly-blending-iphones-multimedia/"><u>[New] Perfectly Blending iPhones' Multimedia</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-pc-virtual-reality-hits-top-10/"><u>[Updated] In 2024, PC Virtual Reality Hits Top 10</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-breakthrough-in-mobile-technology-the-iphone-12-unveiled-and-thoroughly-analyzed/"><u>A Breakthrough in Mobile Technology: The iPhone 12 Unveiled and Thoroughly Analyzed!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-watch-se-assessment-an-economical-alternative/"><u>Apple Watch SE Assessment: An Economical Alternative</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-vivo-y78t-is-unlocked-by-drfone-android/"><u>How To Check if Your Vivo Y78t Is Unlocked</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-windows-11-freezing-issues-effective-solutions/"><u>How to Fix Windows 11 Freezing Issues: Effective Solutions</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-oneplus-ace-2v-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove OnePlus Ace 2V Fingerprint Lock</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-samsung-galaxy-a25-5g-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Samsung Galaxy A25 5G to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-maximize-storage-essential-xbox-drive-picks-reviewed/"><u>In 2024, Maximize Storage Essential Xbox Drive Picks Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-the-art-of-mobility-with-samsung-galaxy-tab-s4-an-essential-review-for-android-tablet-lovers/"><u>Mastering the Art of Mobility with Samsung Galaxy Tab S4: An Essential Review for Android Tablet Lovers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mobile-viewing-upgrade-discover-the-power-of-msis-portable-pro-mp1nmonitor/"><u>Mobile Viewing Upgrade: Discover the Power of MSI's Portable Pro MP1nMonitor</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/rapid-growth-recipe-for-youtube-from-thousands-to-millions-for-2024/"><u>Rapid Growth Recipe for YouTube From Thousands to Millions for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/stay-active-with-ease-the-samsung-galaxy-fit2-your-ultimate-portable-fitness-partner/"><u>Stay Active with Ease: The Samsung Galaxy Fit2 - Your Ultimate Portable Fitness Partner</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/superior-cams-for-traditional-animation-for-2024/"><u>Superior Cams for Traditional Animation for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-oculus-quest-2-top-tier-vr-fun-without-breaking-the-bank/"><u>The Ultimate Guide to the Oculus Quest 2: Top-Tier VR Fun Without Breaking the Bank!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-vive-cosmos-face-off-a-stellar-vr-headset-among-formidable-rivals-examined/"><u>The Vive Cosmos Face-Off: A Stellar VR Headset Among Formidable Rivals Examined</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-the-netgear-nighthawk-x4-the-best-wireless-mesh-wi-fi-system/"><u>Ultimate Guide to the Netgear Nighthawk X4 - The Best Wireless Mesh Wi-Fi System?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unpacking-value-for-money-an-in-depth-look-at-the-zte-blade-a3y-handset/"><u>Unpacking Value for Money: An In-Depth Look at the ZTE Blade A3Y Handset</u></a></li>
 </ul></div>
 

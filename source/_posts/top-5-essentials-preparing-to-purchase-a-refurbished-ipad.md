@@ -1,7 +1,7 @@
 ---
 title: "Top 5 Essentials: Preparing to Purchase a Refurbished iPad"
-date: 2024-08-22T18:09:38.311Z
-updated: 2024-08-23T18:09:38.311Z
+date: 2024-09-30T17:32:40.581Z
+updated: 2024-10-07T02:40:10.546Z
 categories:
   - BestProducts
 description: "This Article Describes Top 5 Essentials: Preparing to Purchase a Refurbished iPad"
@@ -68,10 +68,6 @@ Andrew Hayward / Lifewire
 
  It was one of last year’s greatest new gadgets, and now Oculus has returned with a sequel. The Oculus Quest 2 is smaller and lighter, yet more powerful and with a much better screen—yet it costs $100 less than the original. How did that happen? Well, it’s not all great news, thanks to a couple of cost-cutting measures that you’ll feel and potentially see, but the end result is ultimately a better and more affordable device that serves as an ideal gateway into VR.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Design and Comfort: Compromises were made
 
  The Oculus Quest 2 sticks to the familiar modern VR playbook as a module that you strap onto your face to immerse yourself within its digital worlds but features some different material and construction choices than the original. Unfortunately, the design choices largely are not upgrades compared to the original headset
@@ -88,11 +84,15 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![Oculus Rift 2](https://www.lifewire.com/thmb/JkgQv_Sk0ofSL0Sp-jKmqe84xak=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-2-a7792535288542dba45c8bc32f882be2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Andrew Hayward / Lifewire
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Tracking and Controllers: Some improvements, some drawbacks
 
  The Oculus Quest 2 uses the same kind of “inside-out” tracking system that relies on four cameras on the visor to track the wireless controllers or even your hands, rather than relying on external tracking sensors as some PC-based systems do. Like the original, it works amazingly well, allowing for fluid, six-degrees-of-freedom movement in games and minimizing both initial setup and the time it takes to get going each session. It also means that you can use the Oculus Quest 2_anywhere_ without the need for any kind of external hardware or accessories.
@@ -101,9 +101,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![Oculus Quest 2 ](https://www.lifewire.com/thmb/1aG6kdNHMuvnim8p8_i1RwH9QG8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-3-eec6cabc11db4ed9be5254aa2bc46ec1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
  Andrew Hayward / Lifewire
 
  But there is a potential loss for function and comfort with one other particular aspect of the headset itself: IPD adjustment. Inter-pupillary distance, or IPD, is the physical distance between your eyes, and a headset must account for it to effectively deliver clear, 3D experiences. On the original Quest, a physical slider let you precisely adjust the distance to match your own face. With the Quest 2, however, there are just three settings, and you can physically shift the placement of the lenses to choose the position that is closest to your own.
@@ -116,9 +113,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Andrew Hayward / Lifewire
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ## Setup Process: You’ll need a phone… and Facebook
 
  You should charge the Oculus Quest 2 out of the box, as the modest total battery life means a partially-charged headset isn’t going to last very long. You will need a[smartphone](https://www.lifewire.com/best-smartphones-4043781) , either Android or iPhone, and the free Oculus app to complete setup, as well. Once the headset has a good charge, begin setup from the mobile app and then follow the guided directions, which will involve putting on, adjusting, and getting familiar with the headset itself.
@@ -127,9 +121,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  There’s one other potential hitch with the Oculus Quest 2 that wasn’t present with the original: the new headset_requires_ a[Facebook account](https://www.lifewire.com/tutorial-how-facebook-works-2654610) and there’s no way around it. Facebook owns Oculus, and while the first Quest could be used simply with an Oculus account, the new one requires the social media account. For some, that may be a deal-breaker, given frustrations over privacy and the increasing role that Facebook plays in our society, so just know that going in.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Performance: It’s a big upgrade
 
  The original Oculus Quest did a fine job of delivering immersive VR experiences that didn’t feel compromised or significantly downgraded, even if it didn’t hit the same visual peaks as pricier, PC-powered headsets. And it was pretty amazing that the Quest did so with the Qualcomm Snapdragon 835 processor, a chip found in 2017’s flagship smartphones.
@@ -148,13 +139,16 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  I felt the Quest 2’s enhancements more prominently in some games over others. Laser sword-swinging music game Beat Saber, for example, ran well on the first headset and isn’t that different here—just smoother and clearer-looking. But with the online battle royale shooter Population: One, the cleaner-looking textures and more fluid performance helped mitigate some of the light motion sickness I felt playing on the first Quest.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Sound Quality: Works fine without headphones
 
  Plugging in headphones delivers a more closed-off, immersive experience, but the Oculus Quest 2’s built-in speaker does a solid job of delivering audio and music. It does sound a tiny bit louder and fuller than the original Quest’s speaker, but not significantly so. Still, if you want to play without being fully shut-off from your surroundings, it works just fine.
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Battery: You’ll get a couple hours
 
@@ -164,10 +158,14 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/Ns2S3DQVema5UEDDSO8n3N7SC_4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-7-0a0e40b6a3064fe7abc985f0900dbeff.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Andrew Hayward / Lifewire
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Software: Use the headset or connect to PC
 
@@ -180,6 +178,13 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  Using a[Razer Blade 15 (2019)](https://www.lifewire.com/razer-blade-15-review-4845229) gaming laptop, I was able to play the visually demanding and deeply immersive Half-Life: Alyx on the Oculus Quest 2—a game that it could never run using its own internal hardware. It ran a little less smoothly than it did using the PC-native Valve Index headset, but not significantly so. This is a great way to experience higher-end VR games, including the new[Star Wars: Squadrons](https://www.lifewire.com/star-wars-squadrons-review-5086656) , for example. And with Oculus announcing plans to phase out PC-only headsets, it will also be a key part of the Quest platform’s future.
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/72vxixVr7kdKoLfUC3QkIrBl26I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-6-12fcb6054cf2475191bc613a3f26bcfc.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Andrew Hayward / Lifewire
 
@@ -198,18 +203,26 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ![Oculus Quest 2](https://www.lifewire.com/thmb/FqVvo044zoPghSD_PR1g2e0L2rs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-5-216bbf638cbe407b8b6f332abc94ae47.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Andrew Hayward / Lifewire
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## Price: It’s an amazing value
 
  The Oculus Quest was already impressively priced at $399, so launching the more powerful Oculus Quest 2 at $299 is pretty phenomenal. Granted, the design compromises are a little frustrating, and I would’ve rather paid more for a better strap and more precise IPD settings like on the original—but those are the tweaks made to try and broaden the market for the Quest and VR as a whole. Still, even with those design annoyances, the Quest 2 is an incredible value for a portable, fully self-contained VR game console.
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/TDsFPvRGkhZaFzIaNnKRk1_xO4s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-8-Comparison-1b0c51b029da41389167e103a4c4843a.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Andrew Hayward / Lifewire
 
@@ -233,6 +246,13 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * [Oculus Go Standalone VR Headset](https://www.lifewire.com/oculus-go-vr-headset-review-4690298)
 * [Valve Index](https://www.lifewire.com/valve-index-review-4775604)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Quest 2
@@ -255,8 +275,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -264,4 +282,26 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-free-youtube-end-screen-templates-plushow-tos/"><u>[New] 2024 Approved Free YouTube End Screen Templates [+How-Tos]</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-innovative-integration-mastering-vids-in-the-facebook-realm/"><u>[New] 2024 Approved Innovative Integration Mastering Vids in the Facebook Realm</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-perfect-wedding-timers-android-and-ios-top-10-picks/"><u>[New] Perfect Wedding Timers Android & iOS' Top 10 Picks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-integrate-spotify-and-youtube-top-5-playlist-to-channel-converters-available/"><u>[Updated] 2024 Approved Integrate Spotify and YouTube Top 5 Playlist-to-Channel Converters Available</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apples-game-changing-2020-macbook-air-a-review-of-the-advanced-m1-processing-units-capabilities/"><u>Apple’s Game-Changing 2020 MacBook Air: A Review of the Advanced M1 Processing Unit's Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723080120379-choosing-your-smartphone-companion-iphone-or-android-find-out-here/"><u>Choosing Your Smartphone Companion: IPhone or Android – Find Out Here!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-the-new-2021-apple-tv-4k-delivers-crystal-clear-images-and-seamless-siri-navigation/"><u>Comprehensive Review: The New 2021 Apple TV 4K Delivers Crystal Clear Images & Seamless Siri Navigation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cost-effective-security-alerts-with-remobell-insider-reviews-and-features-below-100/"><u>Cost-Effective Security Alerts with RemoBell: Insider Reviews and Features Below $100</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/critical-appraisal-of-motorola-one-hyper-why-this-mid-tier-phone-deserves-attention/"><u>Critical Appraisal of Motorola One Hyper: Why This Mid-Tier Phone Deserves Attention</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-why-tech-enthusiasts-are-raving-about-lgs-stunning-65-inch-oled-c9-smart-television/"><u>Discover Why Tech Enthusiasts Are Raving About LG's Stunning 65-Inch OLED C9 Smart Television</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/dive-deep-into-nature-exploring-the-waterproof-w100/"><u>Dive Deep Into Nature: Exploring the Waterproof W100</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/diving-into-galactic-warfare-an-in-depth-analysis-of-star-wars-squadrons/"><u>Diving Into Galactic Warfare: An In-Depth Analysis of Star Wars: Squadrons</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-your-home-network-with-the-synology-rt2600ac-long-range-performance-meets-robust-parental-oversight/"><u>Mastering Your Home Network with the Synology RT2600ac - Long Range Performance Meets Robust Parental Oversight</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/navigating-the-invisible-aspects-of-social-media-success/"><u>Navigating the Invisible Aspects of Social Media Success</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/preserving-your-google-voice-history-a-step-by-step-guide/"><u>Preserving Your Google Voice History A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/g-your-filmed-artistry-on-a-journey-with-imovie-and-youtube-for-2024/"><u>Taking Your Filmed Artistry on a Journey with iMovie & YouTube for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-the-ultimate-list-of-free-haunting-noise-archives/"><u>Updated The Ultimate List of Free Haunting Noise Archives</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/what-to-evaluate-when-buying-a-digital-recorder/"><u>What to Evaluate When Buying a Digital Recorder</u></a></li>
+</ul></div>
 

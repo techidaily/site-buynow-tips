@@ -1,7 +1,7 @@
 ---
 title: "The Featherlight Game Changer: A Deep Dive Review Into the Exceptional Battery Life & Mobility of the LG Gram 15.6 Laptop (2018 Edition)"
-date: 2024-09-21T17:04:26.539Z
-updated: 2024-09-26T18:12:22.658Z
+date: 2024-10-06T01:31:36.202Z
+updated: 2024-10-07T03:07:56.402Z
 categories:
   - BestProducts
 description: "This Article Describes The Featherlight Game Changer: A Deep Dive Review Into the Exceptional Battery Life & Mobility of the LG Gram 15.6 Laptop (2018 Edition)"
@@ -41,13 +41,6 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/BiBvvSXCg5l15o1T-fJmijAM9PQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Zach Sweat
 
 [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Falienware-aurora-r9-gaming-desktop-intel-core-i7-9700-16gb-memory-nvidia-geforce-rtx-2080-super-1tb-hdd-512gb-ssd-white-lunar-light%2F6373818.p%3FskuId%3D6373818) [View On Dell](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.dell.com%2Fen-us%2Fshop%2Fcty%2Fpdp%2Fspd%2Falienware-aurora-r9-desktop)
@@ -80,13 +73,6 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wRBNGBQw39Gc3PVZ6i0PJB4LuWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-08-406d659ae21641d2b9df53303e8f6d76.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
 ## **Design: Polarizing sci-fi aesthetics**
@@ -110,16 +96,10 @@ Lifewire / Zach Sweat
  Inside the case, Alienware has made the new R9 quite upgradeable, allowing owners to easily pull things apart for access to various components. Though it’s a bit cramped inside, the genius ability to swing the PSU (power supply unit) out to the side when the case is removed provides easier access to the motherboard and all its parts. While we’re a bit concerned with the airflow due to this tight fit inside the case, it does allow you to upgrade hardware down the line if you want.
 
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Plug and play**
@@ -150,6 +130,13 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/zWvKnnWGsRBdtRIHTYYD7HEs0qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-13-88a6bd8dac13438794a0bb038df7757f.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 ## **Gaming: From ok to amazing, if you have the cash**
@@ -167,6 +154,13 @@ Lifewire / Zach Sweat
  Aside from FPS, the load times for games compared to my[SSD-equipped](https://www.lifewire.com/best-external-hard-drives-4050413) PC were much, much slower. Loading into planets and zones in[Destiny 2](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) takes only a few moments with an SSD, while this HDD R9 felt twice as long or more—similar to what you’d see with any current-gen gaming console (they all have HDDs).
 
  Your gaming performance in relation to the Aurora is subject to your hardware, peripherals and network speeds if playing an online game, so choose the best model you can afford within your budgetary restrictions and keep in mind how you plan to use your PC.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Audio: Decent prebuilt performance and surround sound**
 
@@ -199,10 +193,10 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: Windows 10 with some bloatware and extras**
@@ -231,6 +225,13 @@ Lifewire / Zach Sweat
 
  Overall, the price of the R9 is ok at best, and you do get some nice software features from Alienware, but it’s still cheaper to build your own.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Alienware Aurora R9 vs. Dell G5 5090**
 
  Comparing two gaming PCs in a head-to-head competition is difficult due to the sheer amount of potential hardware configurations, but Dell also offers prebuilts outside the Alienware brand that are similar.
@@ -246,13 +247,6 @@ Lifewire / Zach Sweat
  **A quality prebuilt, but not the most frugal.**
 
  With a distinct design that only Alienware can pull off, the Aurora R9 is a futuristic-looking prebuilt PC with a lot of good, but a bit of extra cost. If you love Alienware or the look of the R9, it’s not a bad option, but it’s certainly not the most frugal.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -282,19 +276,16 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-mastering-iphone-ios-voice-memos-recording-guide/"><u>[New] 2024 Approved Mastering iPhone IOS Voice Memos Recording Guide</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-high-performance-tools-youtube-meets-twitter/"><u>[New] High-Performance Tools YouTube Meets Twitter</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-integrating-your-photos-smart-transfers-from-iphone-to-snapchat-for-2024/"><u>[New] Integrating Your Photos Smart Transfers From iPhone to Snapchat for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-revolutionary-srt-adjustments-unleash-potential-on-both-oses/"><u>2024 Approved Revolutionary SRT Adjustments Unleash Potential on Both OSes</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-precision-timekeeping-with-the-philips-hf3520-an-insightful-review/"><u>Affordable Precision Timekeeping with the Philips HF3520 - An Insightful Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-vuebell-smart-video-doorbell-top-reviews-and-features/"><u>Affordable VueBell Smart Video Doorbell - Top Reviews & Features</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apple-tv-4k-2021-unveiled-revolutionize-your-streaming-experience-with-siri-voice-commands/"><u>Apple TV 4K 2021 Unveiled: Revolutionize Your Streaming Experience with Siri Voice Commands!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/audiophiles-dream-dive-into-the-crystal-clear-soundscape-of-midlands-gxt1000vp4-review/"><u>Audiophile's Dream: Dive Into the Crystal-Clear Soundscape of Midland's GXT1000Vp4 Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/caixuns-budget-friendly-large-screen-android-tv-75-inch-4k-review-and-verdict/"><u>Caixun's Budget-Friendly Large Screen Android TV (75 Inch, 4K) Review and Verdict</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/chatgpt-plus-reviewed-are-these-5-features-enough-to-justify-the-cost/"><u>ChatGPT Plus Reviewed - Are These 5 Features Enough to Justify the Cost?</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/fixing-mysterious-question-marks-in-macs-file-folders/"><u>Fixing Mysterious Question Marks in Mac's File Folders</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-vivo-y27-4g-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Vivo Y27 4G | Dr.fone</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-the-art-of-mastering-funimate/"><u>In 2024, The Art of Mastering Funimate</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/successful-steps-to-watching-dvds-on-your-dell-laptop-with-windows-11/"><u>Successful Steps to Watching DVDs on Your Dell Laptop with Windows 11</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-capture-the-thrill-essential-recording-tips-for-overwatch-for-2024/"><u>[New] Capture the Thrill Essential Recording Tips for Overwatch for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-digital-diagnosis-the-vll-perspective-on-apps-for-2024/"><u>[Updated] Digital Diagnosis The VLL Perspective on Apps for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unleashing-your-musical-voice-a-compree-play-by-play-guide-for-youtube-playlist-crafting/"><u>[Updated] Unleashing Your Musical Voice A Compree Play-by-Play Guide for YouTube Playlist Crafting</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/best-free-video-sharing-platforms-the-top-alternatives-to-youtube/"><u>Best Free Video Sharing Platforms: The Top Alternatives to YouTube</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-budget-friendly-tp-link-archer-c50-wifi-router/"><u>Comprehensive Evaluation of the Budget-Friendly TP-LInk Archer C50 WiFi Router</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/gps-vs-cellular-comparing-connectivity-on-the-apple-watch-series/"><u>GPS Vs. Cellular: Comparing Connectivity on the Apple Watch Series</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-5-from-realme-narzo-n55-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Realme Narzo N55 to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unboxing-the-sony-xperia-5-an-impressive-phablet-with-an-extensive-price-fee/"><u>Unboxing the Sony Xperia 5 - An Impressive Phablet with an Extensive Price Fee</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleash-professional-editing-with-lightzone-the-premier-free-darkroom-application-for-windowsmaclinux/"><u>Unleash Professional Editing with Lightzone - The Premier Free Darkroom Application for Windows/Mac/Linux</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlock-your-oneplus-ace-2-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your OnePlus Ace 2 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
 </ul></div>
 

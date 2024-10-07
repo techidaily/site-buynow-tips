@@ -1,7 +1,7 @@
 ---
 title: "Holy Stone HS170 Predator Mini RC Helicopter Drone Review: A Drone on a Budget"
-date: 2024-09-26T17:14:51.737Z
-updated: 2024-10-01T18:36:31.691Z
+date: 2024-10-05T02:54:40.701Z
+updated: 2024-10-06T18:57:31.194Z
 categories:
   - BestProducts
 description: "This Article Describes Holy Stone HS170 Predator Mini RC Helicopter Drone Review: A Drone on a Budget"
@@ -38,10 +38,10 @@ Lifewire / Bill Thomas
 3
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Netgear C3000 Cable Modem Router
@@ -82,15 +82,22 @@ Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/vcoYESWM5JJLo3l3KiPZd0A4uEU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_4-b3293ad0ed2b4bffb51f8e5f71f1914d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/_9ERrc4mSXFjpZAVMAwwqbfpLwM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_3-2f5e1e38512d41019430d063e63b7f9b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
@@ -107,6 +114,19 @@ Lifewire / Bill Thomas
 
  Setting up a cable modem can be a complicated and time consuming process. Not so with the Netgear C3000—when we set it up it was almost plug-and-play. It could be because this modem isn’t the most complex piece of hardware, but it was ready for activation_seconds_ after we plugged it in. We connected via ethernet, launched a browser and within minutes we activated our 250 Mbps Xfinity service. We’re not sure if our experience was a fluke, but we were pleasantly surprised.
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Connectivity: Pretty limited
 
  On the back of the Netgear C3000, you’ll find two Gigabit[Ethernet ports](https://www.lifewire.com/introduction-to-ethernet-817550) , a USB 2.0, and a Coaxial input. For a modem in this price range, this is pretty much what we expected, but it would have been nice to see more Gigabit Ethernet ports.
@@ -117,13 +137,6 @@ Lifewire / Bill Thomas
 
  Lifewire / Bill Thomas
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Network Performance: Keep your expectations low
 
  This device has an N300 network rating, which means your speeds should top out at 300Mbps on a single band. But your actual network speed won’t reach that. In testing the wireless performance of the Netgear C3000, our wireless speed topped out at 54 Mbps just three feet from the modem. We pay for a 250 Mbps plan, so we were getting about 20% of our rated speed.
@@ -131,13 +144,6 @@ Lifewire / Bill Thomas
  The range was also an issue—in short, this will not suffice if you live in a mid-sized home or bigger. Just 300 feet away, behind a wall and a staircase, our wireless speeds dipped all the way down to 15 Mbps. This doesn’t really matter if you live in a studio apartment, but for everyone else, we’d recommend combining this modem with a[separate wireless router](https://www.lifewire.com/best-wireless-routers-4038590) .
 
  There is a silver lining: the wired performance is reliable. When connected this way, we consistently got our rated 250 Mbps speeds with little to no drops. We spent some time playing The Division 2 while hardwired into the Netgear C3000 and didn’t run into any lag. That’s surprising given that a 8x4 DOCSIS 3.0 modem is capable of just 343 Mbps download speeds. But Netgear delivered where it truly counts: modem performance.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Software: Pretty standard and easy to use
 
@@ -148,10 +154,10 @@ Lifewire / Bill Thomas
  There’s also a Netgear Genie mobile app on both Google Play and the App Store. The app gives you the same controls as the management portal, but with a much more user-friendly interface. This is what we’d recommend most people use to[manage their network](https://www.lifewire.com/how-to-set-up-your-home-wi-fi-network-2378223) .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Price: Expensive for what it is
@@ -163,10 +169,16 @@ Lifewire / Bill Thomas
  Unless you’re dead-set on buying an all-in-one device, buying a separate modem and router is going to be the more economical option.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Netgear C3000 vs. TP-Link TC-W7960S
@@ -218,15 +230,19 @@ Lifewire / Bill Thomas
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-maximize-engagement-discover-the-right-youtube-thumbnail-size/"><u>[New] 2024 Approved Maximize Engagement Discover the Right YouTube Thumbnail Size</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-enhancing-instagram-visibility-with-powerful-promotions/"><u>[New] Enhancing Instagram Visibility with Powerful Promotions</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ditch-costly-reimaginations-create-personalized-editions-using-game-mods/"><u>Ditch Costly Reimaginations: Create Personalized Editions Using Game Mods</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/diy-repair-correcting-joystick-drift-in-playstation-5-controllers-with-easy-fixes/"><u>DIY Repair: Correcting Joystick Drift in PlayStation 5 Controllers with Easy Fixes</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/effortless-navigation-on-google-tv-learn-how-to-establish-connection-unlink-devices-and-refresh-settings-with-ease/"><u>Effortless Navigation on Google TV: Learn How to Establish Connection, Unlink Devices & Refresh Settings with Ease!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/eliminate-stick-drift-problems-on-your-steam-deck-with-these-simple-solutions/"><u>Eliminate Stick Drift Problems on Your Steam Deck with These Simple Solutions</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/enhancing-development-workflows-innovative-uses-of-chatgpt-and-vs-code/"><u>Enhancing Development Workflows: Innovative Uses of ChatGPT & VS Code</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-vivo-y56-5g-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Vivo Y56 5G To iPhone 15/14/13? | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/navigate-the-best-online-education-resources-with-our-expert-picks-for-top-notch-course-platforms/"><u>Navigate the Best Online Education Resources with Our Expert Picks for Top-Notch Course Platforms</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/step-by-step-enablingdisabling-picture-in-picture/"><u>Step by Step Enabling/Disabling Picture-in-Picture</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-an-exhaustive-feature-analysis-of-du-recorder-for-2024/"><u>[New] An Exhaustive Feature Analysis of Du Recorder for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-drone-fundamentals-an-overview-of-their-workings-for-2024/"><u>[Updated] Drone Fundamentals An Overview of Their Workings for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-the-broadcasters-blueprint-step-by-step-windows-pc-guide-to-live-capture-for-2024/"><u>[Updated] The Broadcaster's Blueprint Step-by-Step Windows PC Guide to Live Capture for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-squared-up-strategies-boosting-video-popularity-on-the-platform/"><u>2024 Approved Squared Up Strategies Boosting Video Popularity on the Platform</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/generative-ai-explained-for-families/"><u>Generative AI Explained for Families</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-unlocking-the-potential-in-your-podcasts-xml-structure/"><u>In 2024, Unlocking the Potential in Your Podcast's XML Structure</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-an-ai-presentation-maker/"><u>New In 2024, What Is an AI Presentation Maker?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/on-the-go-literature-lovers-rejoice-with-the-kobo-clara-hd-insight/"><u>On-the-Go Literature Lovers Rejoice with the Kobo Clara HD Insight</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/oodle-free-local-classifieds/"><u>Oodle: Free Local Classifieds</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/rayman-legends-game-reviewed-discover-the-intricacies-of-an-outstandingly-crafted-two-dimensional-platformer/"><u>Rayman Legends Game Reviewed: Discover the Intricacies of an Outstandingly Crafted Two-Dimensional Platformer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-the-formidable-xbox-series-x-next-gen-4k-entertainment-at-your-fingertips/"><u>Review of the Formidable Xbox Series X: Next-Gen 4K Entertainment at Your Fingertips</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-tab-s6-review/"><u>Samsung Galaxy Tab S6 Review</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/the-sound-of-silence-expert-advice-on-noise-reduction-in-final-cut-pro-x-for-2024/"><u>The Sound of Silence Expert Advice on Noise Reduction in Final Cut Pro X for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-from-beginner-to-pro-top-vlog-video-editing-software-for-every-level-for-2024/"><u>Updated From Beginner to Pro Top Vlog Video Editing Software for Every Level for 2024</u></a></li>
 </ul></div>
 

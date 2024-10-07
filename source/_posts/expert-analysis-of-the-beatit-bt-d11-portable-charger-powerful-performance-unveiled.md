@@ -1,7 +1,7 @@
 ---
 title: "Expert Analysis of the Beatit BT-D11 Portable Charger: Powerful Performance Unveiled"
-date: 2024-09-30T19:35:22.662Z
-updated: 2024-10-01T18:51:48.478Z
+date: 2024-09-29T18:03:34.437Z
+updated: 2024-10-07T01:43:36.302Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Analysis of the Beatit BT-D11 Portable Charger: Powerful Performance Unveiled"
@@ -41,13 +41,6 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/JA4MI_SE7Alxl0MLR7rMoIVzKgI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Zach Sweat
 
 [View On Amazon $150](https://www.amazon.com/Elite-2-Controller-Black-Xbox-One/dp/B07SFKTLZM/?tag=lifewire-onsite-prod-20&ascsubtag=4796457%7Cnbd5105eb0dc54e3e804df51703e5036902%7CB07SFKTLZM) [View On Walmart $150](https://www.walmart.com/ip/Microsoft-Xbox-Elite-Wireless-Controller-Series-2-Black-FST-00001/784834522) [View On Adorama.com $180](https://www.adorama.com/xbfst00001.html)
@@ -74,10 +67,10 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/t8wI_yN2s_uIQ1leo87MmOnXxb4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-5-0c39ec4e89eb45b094471681efec0e7d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -125,20 +118,13 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/cS5fpyPSlqvyETs-nGxTtAB3vXU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-4-070b6c59b206457ba1068704bbe7bca9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process and Software: Bluetooth, at long last**
 
@@ -159,6 +145,13 @@ Lifewire / Zach Sweat
  If you plan to buy this controller to use with other electronics that support Bluetooth devices, make sure you do some research before committing to it, as it doesn’t always work with everything. That said, we did manage to pair the controller with a couple other devices that weren’t officially supported.
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -184,13 +177,6 @@ Lifewire / Zach Sweat
 
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Like buying a brand new console**
 
  Right now, the Elite Series 2 controller retails at an MSRP of $249.99, about $100 more than its predecessor. This price tag makes it not only the most expensive first-party controller around, but also nearly the cost of a brand new Xbox One S console (or three brand new titles). That can be a tough sell for your average gamer.
@@ -200,6 +186,13 @@ Lifewire / Zach Sweat
  The argument could be made that considering you get a Bluetooth controller capable of working on XB1 and PC, a charging dock and a nice little case to keep it all together, the cost isn’t awful. But if you want all of those things for less, you can grab an S controller, dock and case for far, far less.
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/6VfCJGOyjLkAkE_mjiHr7rz8Gyw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-6-0c1d7a2ae4e8443ea5b69f559e52bd12.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -216,6 +209,13 @@ Lifewire / Zach Sweat
  **A truly awesome controller with a steep price point.**
 
  Everything we disliked about the original Elite controller has been improved with the second iteration, making it the best first-party controller you can get for XB1 or PC. However, the steep price point might be a hard pill to swallow for users who don’t like to splurge.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -249,19 +249,15 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/updated-find-your-perfect-match-with-these-best-5-iphone-pods/"><u>[Updated] Find Your Perfect Match with These Best 5 iPhone Pods</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-twitter-stream-success-beginners-roadmap/"><u>2024 Approved Twitter Stream Success Beginner's Roadmap</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-mobvoi-ticwatch-e2-assessment-is-it-worth-the-savings/"><u>Affordable Mobvoi TicWatch E2 Assessment - Is It Worth the Savings?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-tecno-spark-10-4g-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Tecno Spark 10 4G? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-the-2021-apple-macbook-pro-with-m1-chip-the-ultimate-high-performance-laptop/"><u>Comprehensive Guide to the 2021 Apple MacBook Pro with M1 Chip – The Ultimate High-Performance Laptop</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/dissecting-dialogues-unveiling-truth-about-ai-bot-capabilities/"><u>Dissecting Dialogues: Unveiling Truth About AI Bot Capabilities</u></a></li>
-<li><a href="https://games-able.techidaily.com/dive-into-the-world-of-windows-gaming-with-dxvk/"><u>Dive Into the World of Windows Gaming with DXVK</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Vivo T2 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Oppo A79 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/score-amazing-discounts-on-oneplus-dont-miss-out-this-prime-day/"><u>Score Amazing Discounts on OnePlus - Don't Miss Out This Prime Day!</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ful-conversion-of-youtube-videos-to-interactive-gif-artistry/"><u>Skillful Conversion of YouTube Videos to Interactive GIF Artistry</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-virtual-stage-enhancement-zooms-filter-guidebook-for-2024/"><u>The Virtual Stage Enhancement Zoom's Filter Guidebook for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlocking-home-security-on-a-budget-with-remobells-cost-effective-video-doorbell-s-review/"><u>Unlocking Home Security on a Budget with RemoBell's Cost-Effective Video Doorbell S Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlocking-the-potential-a-thorough-review-of-the-netgear-c3700-gateway/"><u>Unlocking the Potential: A Thorough Review of the Netgear C3700 Gateway</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-find-your-way-to-youtube-studio-a-comprehensive-overview/"><u>[New] 2024 Approved Find Your Way to YouTube Studio A Comprehensive Overview</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-top-10-after-effects-text-presets/"><u>[Updated] In 2024, Top 10 After Effects Text Presets</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-phishing-threats-and-your-defense-plan/"><u>Facebook's Phishing Threats & Your Defense Plan</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-imo-instant-messenger-experience/"><u>In-Depth Look at the Imo Instant Messenger Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-moto-g-stylus-evaluation-exceptional-performance-and-reliable-battery-with-added-precision/"><u>In-Depth Moto G Stylus Evaluation: Exceptional Performance & Reliable Battery with Added Precision</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/key-factors-to-evaluate-when-purchasing-your-next-printer/"><u>Key Factors to Evaluate When Purchasing Your Next Printer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lenovo-ideapad-320-insights-unmatched-portability-and-attractive-design-complementing-the-renowned-keyboard-layout/"><u>Lenovo IdeaPad 320 Insights: Unmatched Portability and Attractive Design Complementing the Renowned Keyboard Layout</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/playful-conversations-find-out-why-these-6-chatgpt-games-are-must-tries/"><u>Playful Conversations: Find Out Why These 6 ChatGPT Games Are Must-Tries</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unveiling-the-d500s-4k-capabilities-in-full-hd/"><u>Unveiling the D500's 4K Capabilities in Full HD</u></a></li>
 </ul></div>
 

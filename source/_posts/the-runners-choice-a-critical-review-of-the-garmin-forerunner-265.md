@@ -1,7 +1,7 @@
 ---
 title: The Runner's Choice? - A Critical Review of the Garmin Forerunner 265
-date: 2024-09-24T20:36:19.162Z
-updated: 2024-10-01T16:40:02.603Z
+date: 2024-10-04T04:21:36.708Z
+updated: 2024-10-07T01:05:15.905Z
 categories:
   - BestProducts
 description: This Article Describes The Runner's Choice? - A Critical Review of the Garmin Forerunner 265
@@ -37,16 +37,16 @@ Lifewire / Jonno Hill
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -71,18 +71,18 @@ Lifewire / Jonno Hill
 
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Basic but effective**
 
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
 
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup: Dead simple**
 
@@ -94,15 +94,28 @@ Lifewire / Jonno Hill
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Range: Fairly limited**
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Excellent for the performance**
@@ -110,19 +123,6 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
 
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
-
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
 
@@ -160,16 +160,19 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/updated-instagram-filters-a-2023-guide-to-enhanced-photography-for-2024/"><u>[Updated] Instagram Filters A 2023 Guide to Enhanced Photography for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/cyberpower-cp685avrg-avr-ups-system-review/"><u>Cyberpower CP685AVRG AVR UPS System Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-assessment-of-the-high-end-huion-inspiroy-g10t-graphic-tablet-a-blend-of-quality-and-precision/"><u>Expert Assessment of the High-End Huion Inspiroy G10T Graphic Tablet: A Blend of Quality and Precision</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-passfab-apple-iphone-se-backup-unlocker-top-4-alternatives-by-drfone-ios/"><u>In 2024, PassFab Apple iPhone SE Backup Unlocker Top 4 Alternatives</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-the-complete-manual-of-adding-captions-on-vimeo/"><u>In 2024, The Complete Manual of Adding Captions on Vimeo</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/kensuns-portable-air-compressor-for-tires-reliability-meets-convenience/"><u>Kensun's Portable Air Compressor for Tires: Reliability Meets Convenience</u></a></li>
-<li><a href="https://win-able.techidaily.com/mastering-optimal-performance-6-tweaks-for-lowering-zooms-cpu-usage/"><u>Mastering Optimal Performance: 6 Tweaks for Lowering Zoom's CPU Usage</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-stem-with-makeblock-a-thorough-review-of-the-innovative-mbot-coding-kit/"><u>Mastering STEM with Makeblock – A Thorough Review of the Innovative mBot Coding Kit</u></a></li>
-<li><a href="https://fox-that.techidaily.com/overcome-wireless-power-problems-on-ios-devices-discover-these-7-effective-fixes-for-iphone/"><u>Overcome Wireless Power Problems on iOS Devices: Discover These 7 Effective Fixes for iPhone</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-and-fixing-call-of-duty-world-war-ii-black-screen-problems-in-windows/"><u>Troubleshooting and Fixing Call of Duty: World War II Black Screen Problems in Windows</u></a></li>
-<li><a href="https://change-location.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Vivo Y27 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-swiftcapture-solutions-w-audio-walkthrough-support/"><u>[New] SwiftCapture Solutions W/ Audio Walkthrough Support</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-masterclass-navigating-through-the-best-cricket-livestreams/"><u>[Updated] Masterclass Navigating Through the Best Cricket Livestreams</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-poco-x6-pro-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Poco X6 Pro System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/core-principles-youtubes-social-contract/"><u>Core Principles YouTube's Social Contract</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/get-up-close-with-the-cycwagen-cargo-e-bike-an-in-depth-experience-report/"><u>Get Up Close with the CycWagen Cargo E-Bike: An In-Depth Experience Report</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/getting-more-bang-for-your-buck-in-depth-look-at-the-caixun-4k-android-tv-75-inches/"><u>Getting More Bang for Your Buck? In-Depth Look at the Caixun 4K Android TV (75 Inches)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-huawei-p20-pro-exceptional-photography-meets-quality-smartphone/"><u>In-Depth Analysis of Huawei P20 Pro: Exceptional Photography Meets Quality Smartphone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-netgear-nighthawk-rax120-unmatched-speed-and-performance/"><u>In-Depth Analysis of the Netgear Nighthawk RAX120 - Unmatched Speed and Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-of-microsofts-outlook-vs-googles-gmail-in-email-services/"><u>In-Depth Evaluation of Microsoft's Outlook vs Google's Gmail in Email Services</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-yokus-island-express-exploring-unconventerous-pathways/"><u>In-Depth Review of Yoku's Island Express: Exploring Unconventerous Pathways</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/insightful-evaluation-of-sunfounders-piranman-5-bike-unpacking-the-assembly-process/"><u>Insightful Evaluation of Sunfounder's Piranman 5 Bike: Unpacking the Assembly Process</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/retained-earnings-600/"><u>Retained Earnings: $600</u></a></li>
+<li><a href="https://blog-min.techidaily.com/the-importance-of-recovery-emails-in-managing-account-security-a-comprehensive-guide/"><u>The Importance of Recovery Emails in Managing Account Security - A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/ultimate-guide-choosing-powerful-notebooks-for-filmmakers/"><u>Ultimate Guide Choosing Powerful Notebooks for Filmmakers</u></a></li>
 </ul></div>
 

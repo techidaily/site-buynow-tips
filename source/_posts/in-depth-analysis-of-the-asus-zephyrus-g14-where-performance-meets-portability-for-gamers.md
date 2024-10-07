@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis of the Asus Zephyrus G14: Where Performance Meets Portability for Gamers"
-date: 2024-08-27T12:06:02.018Z
-updated: 2024-08-28T12:06:02.018Z
+date: 2024-09-30T01:24:46.083Z
+updated: 2024-10-06T19:01:00.073Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis of the Asus Zephyrus G14: Where Performance Meets Portability for Gamers"
@@ -65,9 +65,6 @@ Lifewire / Bill Thomas
 
  We got our hands on the Netgear C3700 for testing and put it through the wringer to see whether or not it’s worth your cash, and what kind of performance you can expect.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Design: Small and inconspicuous
 
  With a device that packs[both a cable modem and a wireless router](https://www.lifewire.com/best-cable-modem-router-combos-to-buy-4082541) , you might expect the Netgear C3700 to be a bulky device, but that’s not the case. It’s actually quite small, measuring just 7.6 inches high and weighing a scant 0.77 pounds. This, combined with the low-key black finish and lack of external antennas means that it won’t stick out, no matter where you put it.
@@ -84,14 +81,8 @@ Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/zfaMhW3pqkYXVuVTQM9Swnx9cQk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-5-a204a239cbd549c9b5949b2536b49ff8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
  Lifewire / Bill Thomas
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Setup: Nice and simple
 
  If you’ve ever set up a cable modem, then you’ll breeze through the setup on the C3700\. We just unplugged our existing cable modem, plugged all the cables into this new one, and waited for the lights to turn on. Then all we had to do was phone our ISP to activate it.
@@ -102,6 +93,19 @@ Lifewire / Bill Thomas
 
  We weren’t impressed with the wireless performance, but the wired performance surprised us.
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Connectivity: Everything a small home needs
 
  The Netgear C3700 is a modem-router combo, which means, hypothetically, it’s the only networking device many people will need. On top of the two Gigabit[Ethernet](https://www.lifewire.com/what-is-an-ethernet-cable-817548) ports, you’re also getting dual antennas, which makes this a dual-band device (2.4GHz and 5.0GHz). It’s not the fastest wireless connection in the world, though—the Netgear C3700 is rated for N600 speeds, something we haven’t seen in a few years.
@@ -110,13 +114,6 @@ Lifewire / Bill Thomas
 
  There is also a USB 2.0 port around the back where you can plug in a hard drive or a printer for network access.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ## Network Performance: Great when wired, but wireless speeds lag
 
  We didn’t exactly have high hopes for the C3700 and its N600 wireless rating. At its peak during testing, we reached wireless speeds of 130Mbps, but that didn’t last—with multiple devices connected and in use, we were seeing speeds as low as 40Mbps just a few feet away from the router.
@@ -130,8 +127,12 @@ No advertising on the website.
  Lifewire / Bill Thomas
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Software: No frills
 
  We prefer a network backend that’s straight to the point, and that’s exactly what we got with the Netgear C3700.
@@ -142,11 +143,25 @@ No advertising on the website.
 
  You can also download the Netgear Genie app on your phone, which allows you to manage your network from a more attractive interface. Much of the same functionality is here, but it might be a more approachable interface for those who don’t really know where to start with their router settings.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: It pays for itself
 
  The Netgear C3700 retails for $109.99, but you should be able to find it for less (as of the time of this writing, it’s on sale for about $95). At this price, the modem has a head start on paying for itself.
 
  For an 8x4 DOCSIS 3.0 cable modem with a lightweight router built in, this price is about par for the course. If you can find the Netgear C3700 for under $100, then it might be worth buying for the cable modem performance and pairing it with a solid wireless router.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Netgear C3700 vs. Arris Surfboard SBG6700-AC
 
@@ -157,13 +172,17 @@ No advertising on the website.
  **A solid modem, but the poor wireless performance undermines its appeal as a combo device.**
  The cable modem’s performance is great, but the wireless performance is just not there. If all you want is the cheapest possible modem with built-in dual-band Wi-Fi, then the Netgear C3700 checks those boxes. But we think you’re better off spending more for better performance or just buying two standalone devices.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Motorola MG7700](https://www.lifewire.com/motorola-mg7700-review-4589346)
 * [Netgear Nighthawk C7000](https://www.lifewire.com/netgear-nighthawk-c7000-review-4686068)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -191,8 +210,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -200,4 +217,18 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-explore-the-best-ever-ios-platforms-for-ps2-games/"><u>[Updated] In 2024, Explore the Best-Ever IOS Platforms for PS2 Games</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-full-spectrum-visual-creativity-with-vsco/"><u>2024 Approved Full Spectrum Visual Creativity with VSCO</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Oppo K11x? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/land-the-biggest-bargains-must-have-deals-on-roku-products-during-prime-days/"><u>Land the Biggest Bargains: Must-Have Deals on Roku Products During Prime Days!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lenovo-tab-4-analysis-affordable-android-tablet-with-key-restrictions/"><u>Lenovo Tab 4 Analysis: Affordable Android Tablet with Key Restrictions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/m06s-audio-innovation-seamlessly-bluetooth-connected/"><u>M06's Audio Innovation: Seamlessly Bluetooth Connected</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/marvels-new-hero-miles-morales-takes-the-limit-off-an-in-depth-review/"><u>Marvel's New Hero: Miles Morales Takes the Limit Off - An In-Depth Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/point-and-shoot-sense-with-kodak-fz53-zoom/"><u>Point & Shoot Sense with Kodak FZ53 Zoom</u></a></li>
+<li><a href="https://driver-error.techidaily.com/1721102108469-quick-guide-to-taming-nonstop-buzzing-of-bluetooth-devices-on-latest-os-update-fix-revealed/"><u>Quick Guide to Taming Nonstop Buzzing of Bluetooth Devices on Latest OS Update ![Fix Revealed]</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-update-process-for-your-dymo-labelwriter-450-printer-software/"><u>Step-by-Step Update Process for Your Dymo LabelWriter 450 Printer Software</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/top-100-videobuze-pentru-noiembrie-pentru-inceputenii-cumparati-si-deschidariti-astfel/"><u>Top 100 Videobuze Pentru Noiembrie Pentru Inceputenii: Cumpărati Și Deschidăriți Astfel!</u></a></li>
+</ul></div>
 

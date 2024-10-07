@@ -1,7 +1,7 @@
 ---
 title: Demon's Souls Reimagined - Reviewing a Masterpiece with Modernized Graphic Touches
-date: 2024-09-19T18:16:23.167Z
-updated: 2024-09-26T17:34:14.706Z
+date: 2024-10-03T21:58:41.553Z
+updated: 2024-10-07T01:13:27.676Z
 categories:
   - BestProducts
 description: This Article Describes Demon's Souls Reimagined - Reviewing a Masterpiece with Modernized Graphic Touches
@@ -68,13 +68,6 @@ Lifewire / Emily Isaacs
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/Ky7KFEDgeAy-u_D_Tv7zaOPYQMI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_03-f111424cfd584bfeac329fa2932278ca.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
 ## **Design: Smart and sleek**
@@ -88,6 +81,13 @@ Lifewire / Emily Isaacs
  For customers with multiple external devices, such as Blu-ray players or gaming consoles, ports are located along the TV’s left-hand side and directly on its backside. These connection options include 4[HDMI](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) 2.1 ports, 3[USB](https://www.lifewire.com/universal-serial-bus-usb-2626039) ports, one cable/antenna input, one LAN port, and audio connections. The HDMI 2.1 ports are especially important since consoles began emerging in 2020 that rely on HDMI 2.1 such as the Playstation 5.
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/mxKfDJGuIKYcsSIQoKfzwDbYYmg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_02-3da87ff8439343f691cf02e9234d1f04.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -105,13 +105,6 @@ Lifewire / Emily Isaacs
 
  Once the TV has been installed, LG’s WebOS guides the first-time setup process by prompting inputs for settings ranging from time zone and language up to and including any necessary user agreements. The LG C9 will complete a scan in order to identify the devices and then you’re free to customize the TV’s settings by pressing the gear button on the LG Magic Remote. The first setting we changed was the Auto Power Saving (APS) picture mode, which reduces power use by dimming the brightness of the TV. The other important setting to disable is TruMotion, which smooths motion in TV shows and movies by altering the frame rate of the programming. If your LG’s picture looks a bit too much like a soap opera, chances are you need to disable this setting.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Image Quality: Stunning picture**
 
  The image quality on the LG C9 is, frankly, stunning thanks in large part to its excellent contrast and wide range of colors, combined with the OLED panel’s ability to turn individual pixels on and off. Even from wide viewing angles, the 4K picture maintains its excellence, with limited washing out and color loss.
@@ -122,13 +115,6 @@ Lifewire / Emily Isaacs
 
  These pictures are further enhanced with LG’s α9 Gen 2 intelligent processor, new to 2019’s model. It excels at drawing out detail and correcting quality discrepancies within the picture, such as banding which creates textures and strips in areas of the screen that would otherwise be smooth. This is particularly important given the large screen size and high resolution. While it’s not as bright as an LED TV since it lacks backlighting, it doesn’t need it as the TV already possesses excellent color, a change here would risk washing out the inky blacks on the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Audio: Better than expected**
 
  While OLED TVs aren’t generally known for their great sound quality, the LG C9 has a surprisingly good sound system all things considered—but a soundbar would still be recommended. Audio in TV or movies is generally good, but it struggles to regulate loud and soft noises in a scene. Streaming Lizzo’s_Cuz I Love You_ on Spotify produces a surprising depth of sound, but it’s simply not comparable to a more robust system that a soundbar or home theater system would provide.
@@ -136,13 +122,26 @@ Lifewire / Emily Isaacs
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/SZUaFESJi6OZubIeLdK1e9L9FEM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_04-c559e4cc6de64f0c8baf4470f883dd9e-4844a7694fb74eb2904f1128ba93f760.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Smooth and easy to use**
 
@@ -153,10 +152,10 @@ Lifewire / Emily Isaacs
  In addition to the WebOS software, the LG C9 also comes with Google Assistant as well as Amazon’s Alexa. It makes it easy to search content, switch between apps and features, or check the weather, among other things.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A premium price for a premium TV**
@@ -164,6 +163,13 @@ Lifewire / Emily Isaacs
  65-inch 4K TV’s generally retail for between $800-$5,000, and this cost jumps further as screen size increases. The LG C9 is a premium 4K TV that sits at the top of this curve, offering integrated smart technologies and excellent picture with an intuitive, easy-to-use interface. As such, it comes at a premium price of $2,500 (Amazon) that exceeds the cost of many competitor models, but with so many additional features it’s worth the high price—even if it’s difficult to swallow.
 
 [How to Buy a TV For Your Home in 2024](https://www.lifewire.com/best-60-inch-tvs-4580159)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **LG OLED C9 65-inch vs. Samsung 65-inch Class Q60R**
 
@@ -226,22 +232,15 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-elevating-your-channel-youtube-backlink-basics/"><u>[New] 2024 Approved Elevating Your Channel YouTube Backlink Basics</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-essential-tips-for-snapchat-enterprise-marketing/"><u>[Updated] Essential Tips for Snapchat Enterprise Marketing</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-guide-to-mastering-snapchats-zoom-feature/"><u>2024 Approved The Ultimate Guide to Mastering Snapchat's Zoom Feature</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-affordability-and-functionality-of-vixia-r800/"><u>Evaluating Affordability and Functionality of VIXIA R800</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-performance-a-closer-look-at-the-latest-samsung-galaxy-chromebook-for-mobile-professionals/"><u>Evaluating Performance: A Closer Look at the Latest Samsung Galaxy Chromebook for Mobile Professionals</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-the-power-of-asus-rt-ac88u-is-it-truly-a-game-changer-for-gamers/"><u>Evaluating the Power of Asus RT-AC88U: Is It Truly a Game-Changer for Gamers?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-analysis-why-the-samsung-galaxy-s20-fe-5g-reigns-supreme-in-the-world-of-next-gen-mobile-phones/"><u>Expert Analysis: Why the Samsung Galaxy S20 FE 5G Reigns Supreme in the World of Next-Gen Mobile Phones</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-benefits-of-orbis-whole-house-internet-solution-with-wi-fi-6-capabilities/"><u>Exploring the Benefits of Orbi's Whole House Internet Solution with Wi-Fi 6 Capabilities</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-elite-circle-of-parentally-supervised-networks/"><u>Exploring the Elite Circle of Parentally Supervised Networks</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/family-fun-on-wheels-holy-stone-rc-cartoon-race-car-evaluation/"><u>Family Fun on Wheels: Holy Stone RC Cartoon Race Car Evaluation</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/get-insider-tips-on-the-samsung-galaxy-a5n-5g-an-incredible-deal-for-a-premium-5g-experience/"><u>Get Insider Tips on the Samsung Galaxy A5n 5G - An Incredible Deal for a Premium 5G Experience</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-nokia-c12-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Nokia C12 to New Android? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Vivo X100 Pro | Dr.fone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-streamline-your-skype-talks-using-obs-effectively/"><u>In 2024, Streamline Your Skype Talks Using OBS Effectively</u></a></li>
-<li><a href="https://win-comparisons.techidaily.com/maximizing-windows-11-productivity-tutorial-on-implementing-folder-organization-in-the-start-menu/"><u>Maximizing Windows 11 Productivity: Tutorial on Implementing Folder Organization in the Start Menu</u></a></li>
-<li><a href="https://win-forum.techidaily.com/social-media-platforms-facebook-twitter-instagram-and-youtube/"><u>Social Media Platforms: Facebook, Twitter, Instagram, and YouTube</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/windows-11clipchampmtsmovmp4/"><u>Windows 11でClipchampを活用した高効率な動画フォーマット変換：MTS・MOVからMP4へ</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-illuminating-origins-a-comprehensible-guide-to-inverted-images-in-instagram/"><u>[New] 2024 Approved Illuminating Origins A Comprehensible Guide to Inverted Images in Instagram</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-from-words-to-memories-recording-with-iphone/"><u>[Updated] In 2024, From Words to Memories Recording with iPhone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-integrating-streamlabs-smoothly-with-obs-on-macbooks/"><u>[Updated] In 2024, Integrating Streamlabs Smoothly with OBS on MacBooks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-kensun-tire-inflator-analysis-durability-dependability-and-compact-design/"><u>Comprehensive Kensun Tire Inflator Analysis: Durability, Dependability & Compact Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-amazon-fire-tv-stickplus-an-ultimate-guide-to-high-speed-media-streaming/"><u>Exploring the Amazon Fire TV Stick+: An Ultimate Guide to High-Speed Media Streaming</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-honor-magic-6-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Honor Magic 6? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/nikon-z7-excellence-mirrorless-photo-taking-revelation/"><u>Nikon Z7 Excellence: Mirrorless Photo-Taking Revelation</u></a></li>
+<li><a href="https://extra-support.techidaily.com/professionals-choice-best-drone-gimbals-for-2024/"><u>Professional's Choice Best Drone Gimbals for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-chargetechs-high-capacity-27000mah-portable-power-bank/"><u>The Ultimate Review of ChargeTech's High Capacity 27000mAh Portable Power Bank</u></a></li>
+<li><a href="https://common-error.techidaily.com/windows-gamers-guide-overcoming-unsupported-gpu-issues-with-fortnite/"><u>Windows Gamers Guide: Overcoming Unsupported GPU Issues with Fortnite</u></a></li>
 </ul></div>
 

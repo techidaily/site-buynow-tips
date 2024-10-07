@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Review: How Does AmazonBasics's 12-Sheet High Security Shredder Stack Up?"
-date: 2024-09-21T18:27:38.057Z
-updated: 2024-09-26T17:52:58.812Z
+date: 2024-09-30T17:57:50.230Z
+updated: 2024-10-06T23:28:43.522Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate Review: How Does AmazonBasics's 12-Sheet High Security Shredder Stack Up?"
@@ -41,6 +41,13 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/AfRhNgqeOD7JfcVqpjzm5LwPSB4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -86,14 +93,20 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity: Smooth sailing**
 
@@ -111,13 +124,6 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -127,10 +133,10 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: More than most**
@@ -150,10 +156,10 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -182,24 +188,22 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-tips.techidaily.com/imperator-rome-a-glimpse-into-empires-forged-and-dreams-derailed-by-fortune/"><u>'Imperator: Rome' - A Glimpse Into Empires Forged and Dreams Derailed by Fortune</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-top-tier-screen-capture-tools-for-windows-and-macos-for-2024/"><u>[New] Top-Tier Screen Capture Tools for Windows & macOS for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-extensive-look-at-djis-inspire-1-drone/"><u>[Updated] 2024 Approved Extensive Look at DJI's Inspire 1 Drone</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-capturing-facebook-hd-videos-for-later-use/"><u>[Updated] Capturing Facebook HD Videos for Later Use</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-accelerate-thumbnail-designs-for-professional-valorant-portraits/"><u>2024 Approved Accelerate Thumbnail Designs for Professional Valorant Portraits</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-ideal-iphone-and-android-gopro-apps-cutting-edge-edits/"><u>2024 Approved Ideal iPhone & Android GoPro Apps Cutting-Edge Edits</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/doubling-your-workspace-a-step-by-step-dual-monitor-setup-for-mac-users/"><u>Doubling Your Workspace: A Step-by-Step Dual Monitor Setup for Mac Users</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/easy-fixes-when-your-media-device-wont-connect-to-windows-system/"><u>Easy Fixes When Your Media Device Won’t Connect to Windows System</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-wi-fi-mesh-system-performance-and-gain/"><u>Evaluating Wi-Fi Mesh System Performance and Gain</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-rapid-connectivity-with-the-latest-google-nest-wifi-a-detailed-overview/"><u>Experience Rapid Connectivity with the Latest Google Nest Wifi - A Detailed Overview</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-engaging-e-sports-world-of-nhl-19-gameplay-breakdown/"><u>Exploring the Engaging E-Sports World of NHL '19: Gameplay Breakdown</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-features-of-lgs-stylo-6-a-blend-of-style-and-functionality/"><u>Exploring the Features of LG's Stylo 6: A Blend of Style & Functionality</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/fast-wi-fi-transmission-using-tp-link-av2000-evaluating-its-remarkable-speed-versus-ordinary-design-quality/"><u>Fast Wi-Fi Transmission Using TP-Link AV2000: Evaluating Its Remarkable Speed versus Ordinary Design Quality</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/future-proof-inverter-choices-top-performing-models-in-the-market-now/"><u>Future-Proof Inverter Choices: Top Performing Models in the Market Now</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-vivo-v29e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Vivo V29e | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-motorola-moto-g-stylus-5g-2023-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Motorola Moto G Stylus 5G (2023) Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-realme-narzo-60-5gs-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Realme Narzo 60 5Gs Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-huawei-p20-pro-analysis-exceptional-photography-meets-solid-smartphone-performance/"><u>In-Depth Huawei P20 Pro Analysis: Exceptional Photography Meets Solid Smartphone Performance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-review-discover-the-multifaceted-functions-of-the-samsung-gear-s3-frontier-smartwatch/"><u>In-Depth Review: Discover the Multifaceted Functions of the Samsung Gear S3 Frontier Smartwatch</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-ultimate-list-of-5-gaming-audio-experts-for-2024/"><u>[New] The Ultimate List of 5 Gaming Audio Experts for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-quick-methods-for-saving-vimeo-footage/"><u>[Updated] Quick Methods for Saving Vimeo Footage</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-conquer-oversized-drafts-learn-to-edit-and-organize-tiktok-content/"><u>2024 Approved Conquer Oversized Drafts Learn to Edit and Organize TikTok Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-from-portrait-to-panorama-a-guide-to-instagrams-rotation-revolution/"><u>2024 Approved From Portrait to Panorama A Guide to Instagram's Rotation Revolution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/amplifi-hd-mesh-system-insights-how-to-achieve-uninterrupted-home-internet-coverage/"><u>Amplifi HD Mesh System Insights: How to Achieve Uninterrupted Home Internet Coverage</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/can-you-upgrade-a-laptop-cpu/"><u>Can You Upgrade a Laptop CPU?</u></a></li>
+<li><a href="https://os-tips.techidaily.com/clear-your-iphones-memory-by-erasing-all-voicemails-forever-complete-instructions-inside/"><u>Clear Your iPhone's Memory by Erasing All Voicemails Forever - Complete Instructions Inside</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-minecrafts-campfire-stories-skins-edition-analysis/"><u>Comprehensive Guide: Minecraft's Campfire Stories Skins Edition Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decision-time-alexa-vs-google-assistant-who-wins-as-your-smart-companion/"><u>Decision Time! Alexa Vs. Google Assistant – Who Wins as Your Smart Companion?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-t2x-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Vivo T2x 5G PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oneplus-11-5g-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from OnePlus 11 5G to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/insightful-look-at-the-samsung-galaxy-tab-a-2020-the-critical-feature-it-fails-to-include/"><u>Insightful Look at the Samsung Galaxy Tab A (2020) - The Critical Feature It Fails to Include</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/microsoft-office-substitutes-the-best-picks/"><u>Microsoft Office Substitutes: The Best Picks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-programming-classes-2024s-best-online-learning-platforms-unveiled/"><u>Top Rated Programming Classes: 2024'S Best Online Learning Platforms Unveiled!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/understanding-iphones-eco-friendly-upgrade-scheme/"><u>Understanding iPhone’s Eco-Friendly Upgrade Scheme</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-wax-video-editing-software-tips-tricks-and-tutorials/"><u>Updated 2024 Approved Wax Video Editing Software Tips, Tricks, and Tutorials</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/videopad-video-editor-a-comprehensive-review-and-purchase-guide/"><u>Videopad Video Editor A Comprehensive Review and Purchase Guide</u></a></li>
 </ul></div>
 

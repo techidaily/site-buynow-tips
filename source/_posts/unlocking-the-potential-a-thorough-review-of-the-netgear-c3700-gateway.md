@@ -1,7 +1,7 @@
 ---
 title: "Unlocking the Potential: A Thorough Review of the Netgear C3700 Gateway"
-date: 2024-08-27T12:08:19.538Z
-updated: 2024-08-28T12:08:19.538Z
+date: 2024-10-03T23:31:42.051Z
+updated: 2024-10-06T22:03:45.569Z
 categories:
   - BestProducts
 description: "This Article Describes Unlocking the Potential: A Thorough Review of the Netgear C3700 Gateway"
@@ -41,6 +41,13 @@ Lifewire / Gannon Burgett
 
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/emzd7Km2ZWo2iwJHim7f3cQirPc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_2LW4045927-1-7ee01493034d4631894328a424e3ac52.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Gannon Burgett
 
 [View On Amazon](https://www.amazon.com/Alienware-Desktop-i7-8700-GeForce-Windows/dp/B076BHG74V/?tag=lifewire-onsite-prod-20&ascsubtag=4689097%7Cn3079e031a9354d17a87e2cfd77bbc6ed08%7CB076BHG74V) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Falienware-aurora-r7-desktop-intel-core-i7-16gb-memory-nvidia-geforce-gtx-1070-1tb-hard-drive-intel-optane-memory-epic-silver%2F6155310.p)
@@ -69,9 +76,6 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ## **Design: No need to whip out your toolbox**
 
  Taking inspiration from other computers in Dell’s lineup, most notably the Area 51 PC, the Aurora R7 features a black and gunmetal exterior with plenty of ventilation on the top, sides, and bottom of the case. There’s also an array of customizable RGB lights on the side that can be changed to whatever colors suit your style.
@@ -86,24 +90,19 @@ Lifewire / Gannon Burgett
 
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/D2eCHDgSj6P_M0PYbrxB8UEnWw4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4045927-6-5c5c421e3ce842339e931c622f5ee7fc-037237f24b934550859cfea611274f64.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Gannon Burgett
 
 ## **Setup Process: Complex settings, simplified**
 
  Setting up the Alienware Aurora R7 was fairly straightforward. In the box was the tower, a mouse, a keyboard, and the power cable. After connecting the Aurora R7 to power, plugging in the mouse and keyboard, and attaching a monitor, it was just a matter of going through Window 10’s setup process to get the ball rolling.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: It’ll take nearly anything you throw at it**
 
  The Alienware Aurora R7 model we tested was configured with an Intel Core i7-8700 CPU, an NVIDIA GeForce GTX 1070 8GB graphics card,16GB of[RAM](https://www.lifewire.com/what-is-random-access-memory-ram-2618159) , and a 256GB M.2 PCIe SSD powering the operating system and apps. Meanwhile, a 2TB HDD served as the mass media storage.
@@ -122,9 +121,6 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Network: Powerful, consistent connections**
 
  The Alienware Aurora R7 has both wired and wireless connectivity for internet access. On the rear of the PC is a Gigabit Ethernet (RJ-45) port for a hardwired internet connection. On the wireless front, the Aurora R7 uses two external 5GHz amplifiers for strong uplink and downlink speeds. These are boosted by Alienware’s Killer Wireless, an internal lag and latency reduction technology to improve long-distance range and intelligently prioritize the most important traffic.
@@ -133,7 +129,21 @@ Lifewire / Gannon Burgett
 
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/WZgne8muGMTOdD29ReFAQROJJL4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4045927-3-21501d80d0d84039b9db4cc0e924b13e.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Baked in goodies to simplify a few pain points of gaming**
 
@@ -147,9 +157,6 @@ Lifewire / Gannon Burgett
 
  OC Controls is a dedicated program for controlling overclocking levels of the memory and CPU. The program not only makes it easy to control the overclocking settings, but also helps you keep an eye on temperatures while you game.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Pricey compared to DIY, but otherwise a solid value**
 
  The Alienware Aurora R7 with the aforementioned specifications retails for $1,699 (MSRP). Compared to other pre-built computers, it’s a bit high as we’ll see below. It’s also a good bit more expensive than other DIY gaming builds. Convenience isn’t cheap and the Aurora R7 is no exception.
@@ -160,9 +167,6 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ## **Competition: Convenience rules above all else**
 
  Judging competitors of the Alienware Aurora R7 can get incredibly tricky considering all the different configurations available, not to mention the option of building your own computer. That said, one pre-built gaming PC stands out alongside the Aurora R7 in terms of specs and value—the MSI Infinite X.
@@ -180,13 +184,24 @@ Lifewire / Gannon Burgett
  The Alienware Aurora R7 is a wonderful option if you’re looking for a pre-built gaming PC that requires little to no hands-on time to get up and running. Out of the box, it’s ready to take on nearly any game you throw at it, usually at the highest settings. Sure, it’s a bit pricier than a DIY PC, but its compact case, tool-less access, and upgradability makes it a solid option for someone who wants a plug-and-play gaming rig.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Lenovo ThinkCentre M720 Tower](https://www.lifewire.com/lenovo-thinkcentre-m720-tower-review-4776238)
 * [HP Flagship Pro Desktop](https://www.lifewire.com/hp-flagship-pro-desktop-review-4776228)
 * [Acer Aspire TC-885-ACCFLi3O Desktop PC](https://www.lifewire.com/acer-aspire-tc-885-accfli3o-desktop-pc-review-4776155)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -208,8 +223,6 @@ Lifewire / Gannon Burgett
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -217,4 +230,21 @@ Lifewire / Gannon Burgett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-essential-picks-10-best-vectors-stock-sources/"><u>[New] Essential Picks 10 Best Vectors Stock Sources</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-prime-cameras-unwrapped-the-best-of-2024/"><u>[New] Prime Cameras Unwrapped The Best of 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-video-producers-route-to-royalty-free-soundtracks/"><u>[Updated] The Video Producer’s Route to Royalty-Free Soundtracks</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/amazons-social-stardom-liking-and-viewing-leaderships/"><u>Amazon's Social Stardom Liking and Viewing Leaderships</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/frame-your-shot-ultimate-software-guide-image-editors/"><u>Frame Your Shot Ultimate Software Guide Image Editors</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/holy-stones-toy-racer-the-ultimate-family-friendly-review-for-cartoon-race-cars/"><u>Holy Stone's Toy Racer: The Ultimate Family-Friendly Review for Cartoon Race Cars</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-to-upgrade-your-computer-from-windows-8-to-windows-11/"><u>How to Upgrade Your Computer From Windows 8 to Windows 11</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/hunt-for-the-best-prime-day-bargains-save-big-on-your-favorite-samsung-devices/"><u>Hunt for the Best Prime Day Bargains: Save Big on Your Favorite Samsung Devices</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-nokia-g22-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Nokia G22 Devices | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-vivo-t2-pro-5g-by-drfone-android/"><u>In 2024, How to Bypass FRP from Vivo T2 Pro 5G?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-the-linksys-ac1900-a-one-size-fits-all-solution-an-in-depth-reporter-on-todays-market-best-wifi-router/"><u>Is the Linksys AC1900 a One-Size-Fits-All Solution? – An In-Depth Reporter on Today's Market Best WiFi Router</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/jackery-charging-pack-assessment-the-added-benefit-of-an-inbuilt-ac-receptacle/"><u>Jackery Charging Pack Assessment - The Added Benefit of an Inbuilt AC Receptacle</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/long-lasting-efficient-the-moto-g-power-phone-reviewed-for-optimal-performance/"><u>Long-Lasting, Efficient - The Moto G Power Phone Reviewed for Optimal Performance</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/sharpen-your-images-the-ultimate-list-of-top-10-internet-apps/"><u>Sharpen Your Images The Ultimate List of Top 10 Internet Apps</u></a></li>
+</ul></div>
 

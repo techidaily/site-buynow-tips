@@ -1,7 +1,7 @@
 ---
 title: "TP-Link RE305 Range Extender AC1200 Evaluation: User-Friendly Design"
-date: 2024-08-27T12:09:05.290Z
-updated: 2024-08-28T12:09:05.290Z
+date: 2024-09-30T02:05:21.259Z
+updated: 2024-10-06T18:53:28.035Z
 categories:
   - BestProducts
 description: "This Article Describes TP-Link RE305 Range Extender AC1200 Evaluation: User-Friendly Design"
@@ -37,6 +37,19 @@ Lifewire / Andrew Hayward
 
 4.7
 
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Oculus Quest 2 Elite Strap with Battery and Carrying Case
 
 ![Oculus Quest 2 Elite Strap With Battery and Carrying Case](https://www.lifewire.com/thmb/AUbeOfD3DzRDIqQzgZlx11gGrs4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus_Quest_2_Elite_Strap_HeroSquare-44edad5e6e114dc3887c4d81912b0181.jpg)
@@ -66,9 +79,6 @@ Lifewire / Andrew Hayward
 
  Available on its own for $49 or with a battery pack and carrying case for $129, the Elite Strap is a major improvement and worthwhile pickup for anyone who doesn’t love the original fit. I tested the latter configuration with the integrated battery pack and included case.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Design: A more supportive strap
 
  While the standard Oculus Quest 2 strap is simply made up of fabric bands—one around the back of your head and the other over the top—the Elite Strap is mostly plastic and significantly more supportive. That’s because it helps offset the weight of the visor itself by using the back of your head to securely keep the entire headset in place, thus minimizing its ability to sag or feel heavy on your face.
@@ -77,9 +87,6 @@ Lifewire / Andrew Hayward
 
 ![Oculus Quest 2 Elite Strap With Battery and Carrying Case](https://www.lifewire.com/thmb/g-QXyXCZitYdlr7F5TWDuzllhuY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus_Quest_2_Elite_Strap_02-83833091dfde4b3b9e2253177901bb66.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Andrew Hayward
 
  Unlike the[PlayStation VR’s strap](https://www.lifewire.com/playstation-vr-4157636) , for example, the Quest 2 Elite Strap’s fit wheel doesn’t lock into place and make you press a button to release it from your head when you want out. Instead, you can gradually adjust it until the headset feels snug but comfortable, and freely tighten or loosen it as needed. It stays put.
@@ -91,6 +98,13 @@ Lifewire / Andrew Hayward
  This particular Elite Strap model has a battery pack built into the back part of the strap, within the plastic housing. It doesn’t feel heavy or noticeable, although there must be a weight difference between this version and the standalone, battery-less Elite Strap option.
 
  Meanwhile, the included carrying case in this bundle is large enough to fit the entire headset with the Elite Strap, as well as the two Oculus Touch controllers and the charger. The large pill-shaped design is non-traditional for a gadget case, looking like light grey sweatpants and with a wool-like felt texture. The case can be a little awkward to unzip, but it’s functional and roomy enough to hold everything, even if it doesn’t look nearly as cool as what it holds.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Setup Process: Snap it on
 
@@ -114,6 +128,19 @@ Lifewire / Andrew Hayward
 
 Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Battery: Double the uptime
 
  The Oculus Quest 2’s built-in battery lasts only about two hours, and the Elite Strap’s secondary 4,676mAh pack effectively doubles that tally. It adds roughly two more hours of use, meaning you’ll have the freedom to play for much longer sessions and/or charge the headset less often.
@@ -124,9 +151,6 @@ Lifewire / Andrew Hayward
 
  Granted, there are DIY options out there for boosting the Quest 2’s battery life, including plugging in a portable power bank and either sticking it into your pocket or otherwise affixing it to your body or headset. Depending on the size of the power bank, you could get significantly more uptime from that kind of solution and at a lower cost—but that’s more hassle and it’s a less elegant solution than the official option here.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Price: Not cheap, but it’s worth it
 
  After spending $299 on a VR headset, some might bristle at spending another $49 for a different strap—or $129 for that strap, double the battery life, and a case. However, if the Quest 2’s standard strap isn’t meeting your needs, then the Elite Strap is well worth the extra cash.
@@ -137,12 +161,16 @@ Lifewire / Andrew Hayward
 
 ![Oculus Quest 2 Elite Strap With Battery and Carrying Case](https://www.lifewire.com/thmb/edSGh2YZZ5OIkwkHbEJnwtUjfGc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus_Quest_2_Elite_Strap_05-e018715e02944614b51af8a2cb98f055.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Andrew Hayward
 
  The case is nice to have, and given that the original official Oculus Quest case sold for $40 on its own, this bundle doesn’t feel overpriced by comparison. Buying the Oculus Quest 2 headset plus this bundle comes out to nearly the same price as buying the original Quest headset ($399) plus its carrying case back when, but now you get double the battery life along with the myriad enhancements of the core Quest 2 hardware.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Oculus Quest 2 Elite Strap vs. Orzero Adjustable Headband for Quest 2
 
@@ -155,17 +183,18 @@ Lifewire / Andrew Hayward
  If your Oculus Quest 2 doesn’t quite fit right, pick up the Elite Strap. It’s a much better-designed strap that securely and comfortably keeps the VR headset in place during use, and is well worth the extra cash. True, you might grimace at the thought of spending more money on something that should’ve come with the standard headset, but the improved experience should ultimately outweigh that frustration. The bundle with the battery pack and carrying case adds further value and is worthwhile if you’re keen on longer play sessions or not needing to charge the headset as often, but the Elite Strap itself is the most essential add-on in this set.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Oculus Quest 2](https://www.lifewire.com/oculus-quest-2-review-5092839)
 * [Oculus Rift Headset and Controllers](https://www.lifewire.com/oculus-rift-review-4690370)
 * [Oculus Go Standalone VR Headset](https://www.lifewire.com/oculus-go-vr-headset-review-4690298)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Quest 2 Elite Strap with Battery and Carrying Case
@@ -185,8 +214,6 @@ Lifewire / Andrew Hayward
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -194,4 +221,26 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-unearthing-your-favorites-facebook-watch-list-access/"><u>[New] 2024 Approved Unearthing Your Favorites Facebook Watch List Access</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-dive-into-digital-fandom-top-6-interactive-questionnaires-to-identify-your-youtube-spirituality/"><u>[New] Dive Into Digital Fandom Top 6 Interactive Questionnaires to Identify Your YouTube Spirituality</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-sony-s6700-latest-features-reviewed/"><u>[New] In 2024, Sony S6700 Latest Features Reviewed</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-prime-methods-for-archiving-youtube-real-time-broadcasts/"><u>[New] Prime Methods for Archiving YouTube Real-Time Broadcasts</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-streamlined-signal-synchronizer-for-podcasters/"><u>[New] Streamlined Signal Synchronizer For Podcasters</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-voiceover-guide-for-engaging-videography/"><u>[Updated] 2024 Approved Voiceover Guide for Engaging Videography</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-shrouded-screen-images-techniques-for-redacting-info/"><u>2024 Approved Shrouded Screen Images Techniques for Redacting Info</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-call-logs-from-oppo-find-x6-by-fonelab-android-recover-call-logs/"><u>Best Android Data Recovery - undelete lost call logs from Oppo Find X6</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-superiority-of-gopros-hero7-in-action-videos/"><u>Discovering the Superiority of GoPro's HERO7 in Action Videos!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/essential-miniature-mp3-players-of-2024-unveiled/"><u>Essential Miniature MP3 Players of 2024 Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-unmatched-connectivity-with-a-linksys-ac1900-router-review/"><u>Experience Unmatched Connectivity with a Linksys AC1900 Router Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-samsung-galaxy-s10-the-epitome-of-luxury-and-performance/"><u>Expert Analysis of the Samsung Galaxy S10: The Epitome of Luxury and Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-capabilities-of-lihan-lhfm1039-revolutionizing-in-car-music-streaming-with-bluetooth-technology/"><u>Exploring the Capabilities of LIHAN LHFM1039: Revolutionizing In-Car Music Streaming with Bluetooth Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-skies-with-x-plane-11-a-detailed-look-at-its-superb-graphics-and-advanced-features/"><u>Exploring the Skies with X-Plane 11: A Detailed Look at Its Superb Graphics and Advanced Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/find-the-perfect-voice-companion-leading-smart-speakers-of-2024-reviewed/"><u>Find the Perfect Voice Companion: Leading Smart Speakers of 2024 Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fitbit-inspire-hr-the-ultimate-247-fitness-and-lifestyle-monitoring-wearable-device-reviewed-stay-on-top-of-your-wellbeing/"><u>Fitbit Inspire HR - The Ultimate 24/7 Fitness & Lifestyle Monitoring Wearable Device Reviewed: Stay on Top of Your Wellbeing!</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-pathfinder-why-wrath-of-the-righteous-continuously-fails-on-launch/"><u>Fixing Pathfinder: Why 'Wrath of the Righteous' Continuously Fails on Launch</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fords-giant-among-trucks-expert-analysis-on-the-remote-controlled-galaxy-f150-behemoth/"><u>Ford's Giant Among Trucks: Expert Analysis on the Remote-Controlled Galaxy F150 Behemoth</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-simplifying-snapchat-recording-for-smooth-experience/"><u>In 2024, Simplifying Snapchat Recording for Smooth Experience</u></a></li>
+</ul></div>
 

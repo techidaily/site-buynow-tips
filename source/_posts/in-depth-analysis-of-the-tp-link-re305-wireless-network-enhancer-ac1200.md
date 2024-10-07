@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of the TP-Link RE305 Wireless Network Enhancer (AC1200)
-date: 2024-09-25T16:36:23.107Z
-updated: 2024-10-01T19:34:27.656Z
+date: 2024-10-03T01:54:30.652Z
+updated: 2024-10-06T19:44:32.718Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of the TP-Link RE305 Wireless Network Enhancer (AC1200)
@@ -63,6 +63,13 @@ Lifewire / Claire Cohen
 
  We spent over a week testing it in our home, evaluating design, ease of setup and network performance.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design:** **Neither seen nor heard**
 
  The RE305 is quite small and unobtrusive, with a plastic white exterior and silver accents that’s meant to blend in, not stand out. At just 3.1 x 3.1 x 2.4 (LWH) inches unboxed and 6.4 ounces, it's one of the most diminutive Wi-Fi solutions on the market. That means it's simple to plug into a spare outlet anywhere your wireless signal needs bolstering.
@@ -74,13 +81,6 @@ Lifewire / Claire Cohen
  The RE305 is quite small and unobtrusive, with a plastic white exterior and silver accents that’s meant to blend in, not stand out.
 
  There's an[Ethernet port](https://www.lifewire.com/what-is-an-ethernet-port-817546) at the bottom of the device as well as a pinhole reset button, just in case it needs rebooted at any point. It's a bit awkward to hang an[Ethernet cord](https://www.lifewire.com/what-is-an-ethernet-cable-817548) from the extender depending on where you've placed it in your home, but it's a useful addition to bring Ethernet to a desktop, TV, or gaming console without having to put holes in your wall.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Simple and quick**
 
@@ -100,13 +100,6 @@ Lifewire / Claire Cohen
 
  There is one important pain point, however, to keep in mind during setup. The extender's administrative password utilizes a default "admin/admin" login, so you'll want to change that to keep unauthorized users out. It can be changed via the TP-Link Tether app, which isn't clearly lined out in the instructions. It isn't required, but if you want to keep your network as secure as possible, it's an important part of setup.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Connectivity and Network Performance:** **Strong, multi-device connectivity**
 
  Several devices were connected to our wireless network, including a MacBook Pro,[iPhone X](https://www.lifewire.com/iphone-x-4150706) , iPad Pro,[Nintendo Switch](https://www.lifewire.com/what-is-the-nintendo-switch-4148184) , and[PlayStation 4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) . When testing the wireless extender's range, at 10 feet to around 70 or so feet away from the router in a 2,100 square foot home, its signal was quite strong, with full bars on an iPhone X and iPad Pro in most areas. One bathroom on the first floor did suffer from occasionally spotty connectivity at around 1,500 feet away from the router.
@@ -117,24 +110,37 @@ Lifewire / Claire Cohen
 
  Lifewire / Claire Cohen
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software: Clean and easy to understand**
 
  The browser-based setup procedure couldn't be easier, and there's no extraneous software to concern yourself with save for the aforementioned optional app for device management. It's a pleasant, minimalistic mint green website with a clean interface and easy-to-read text. Two tabs at the top include the Quick Setup option or Settings, where more advanced users can tweak options to their liking.
 
  It's a bit bereft of some functionality for veteran extender users who may want to fiddle with settings and skip the "easy mode" setup, but it does its job particularly well. It even includes a[QR code](https://www.lifewire.com/scan-qr-codes-on-smartphone-4154658) to scan for users to download the wireless management app straight from the setup page. It doesn't take any real doing to reach this website either, and can be accessed at any time from the network.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: A deal at any price**
 
  At a list price of $59.99, the RE305 is a fantastic deal, considering it's typically on sale for much cheaper, often $10 to $15 less than retail. It isn't TP-Link's lowest-end option, but the performance and speeds offered for the price are certainly more than your money's worth, especially if you live in a larger home and pay for higher internet speeds. It’s important to keep in mind that it won’t include all the features you’ll get with pricier extenders like multiple ethernet ports or additional antennas, but this basic setup is just about all the average user needs, anyway.
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/bG-oXoYxR83gVSUH4vzz37hfYxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-1-5c92424b46e0fb000172f127.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
 
@@ -151,10 +157,10 @@ Lifewire / Claire Cohen
  The TP-Link AC1200 Wi-Fi Range Extender RE305 is a no-frills extender with supports dual-band Wi-Fi support and an Ethernet port for wired connectivity. It won’t fare well in homes beyond 2,000 square feet, but it's a value-priced extender that can be relied on at shorter ranges.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -190,20 +196,14 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-overcoming-picture-deformation-on-streamed-videos/"><u>[New] Overcoming Picture Deformation on Streamed Videos</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/breaking-down-the-boundaries-an-expert-review-on-watch-dogs-legons-groundbreaking-scenery/"><u>Breaking Down the Boundaries: An Expert Review on Watch Dogs: Legon's Groundbreaking Scenery</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-enhanced-gaming-on-the-go-the-acer-predator-triton-300-se-review-for-gamers-seeking-quality-and-affordability/"><u>Experience Enhanced Gaming on the Go: The Acer Predator Triton 300 SE Review for Gamers Seeking Quality and Affordability</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-picks-top-power-inverters-to-upgrade-your-system/"><u>Expert Picks: Top Power Inverters to Upgrade Your System</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/get-premium-features-in-a-wallet-friendly-package-discover-the-lg-2amotv-24lh4830-model/"><u>Get Premium Features in a Wallet-Friendly Package: Discover the LG 2amoTV 24LH4830 Model</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-latest-epson-stylus-nx42e-driver-for-windows-users-compatible-with-windows-7-8-and-10/"><u>Get the Latest Epson Stylus NX42e Driver for Windows Users: Compatible with Windows 7, 8 & 10</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-xiaomi-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix corrupt video files of Xiaomi using Video Repair Utility on Windows?</u></a></li>
-<li><a href="https://techtrends.techidaily.com/iphone-ai/"><u>IPhone用 AI動画ぼかし方法 - アプリとウェブで学ぶ</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/proactive-positioner-tripod-a-nomads-ideal-ally/"><u>Proactive Positioner Tripod: A Nomad's Ideal Ally</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-itel-a70-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Itel A70 Step-by-Step Solutions | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/reviewing-the-unihertz-atom-xl-unleashing-impressive-power-in-tiny-packages/"><u>Reviewing the Unihertz Atom XL – Unleashing Impressive Power in Tiny Packages</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/skyrim-review-for-the-nintendo-switch-dive-into-an-enchanting-richly-crafted-game-world/"><u>Skyrim Review for the Nintendo Switch - Dive Into an Enchanting, Richly Crafted Game World</u></a></li>
-<li><a href="https://extra-information.techidaily.com/strategic-placement-sites-for-video-marketing/"><u>Strategic Placement Sites for Video Marketing</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-the-garmin-vivomove-hr-a-chic-choice-for-active-living/"><u>The Ultimate Review of the Garmin Vivomove HR - A Chic Choice for Active Living</u></a></li>
-<li><a href="https://techtrends.techidaily.com/voice-enabled-assistance-making-siri-read-your-iphone-or-mac-content-aloud/"><u>Voice-Enabled Assistance: Making Siri Read Your iPhone or Mac Content Aloud</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-from-zero-to-hero-crafting-an-authoritative-online-self-for-2024/"><u>[New] From Zero to Hero Crafting an Authoritative Online Self for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/elevate-your-shooter-skills-with-key-settings/"><u>Elevate Your Shooter Skills with Key Settings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-realities-behind-bose-quietcontrol-30-technology/"><u>The Realities Behind Bose QuietControl 30 Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-residential-weather-monitors-2024-reviews/"><u>Top Rated Residential Weather Monitors: 2024 Reviews</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-ranking-netgear-routers-a-comprehensive-guide/"><u>Top-Ranking Netgear Routers : A Comprehensive Guide</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/transferring-data-effortlessly-connecting-your-pc-with-a-galaxy-s-using-wifi-or-usb-cable-methods/"><u>Transferring Data Effortlessly: Connecting Your PC with a Galaxy S # Using WiFi or USB Cable Methods</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-buyers-guide-selecting-the-perfect-tablet-by-dimension-and-mass/"><u>Ultimate Buyer's Guide: Selecting the Perfect Tablet by Dimension & Mass</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/unlocking-potential-discovering-hidden-streaming-tricks-for-2024/"><u>Unlocking Potential Discovering Hidden Streaming Tricks for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/unveil-your-videos-secrets-of-social-sharing-success-for-2024/"><u>Unveil Your Videos Secrets of Social Sharing Success for 2024</u></a></li>
 </ul></div>
 

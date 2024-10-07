@@ -1,7 +1,7 @@
 ---
 title: The Stylish, Easy-to-Carry Acer Chromebook R 11 - Detailed Product Assessment
-date: 2024-08-27T12:09:10.501Z
-updated: 2024-08-28T12:09:10.501Z
+date: 2024-10-03T03:08:33.955Z
+updated: 2024-10-06T20:04:55.143Z
 categories:
   - BestProducts
 description: This Article Describes The Stylish, Easy-to-Carry Acer Chromebook R 11 - Detailed Product Assessment
@@ -37,9 +37,35 @@ Lifewire / Jason Schneider
 
 4.2
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Acer Chromebook 15 CB3-532
 
 ![Acer Chromebook 15](https://www.lifewire.com/thmb/de6GmnZf-POMS25HOUd4hX7ytI8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer_LaptopsUnder200_Chromebook_HeroSquare-362ddb9951d04861a4b66cea1c000233.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jason Schneider
 
@@ -72,6 +98,13 @@ Lifewire / Jason Schneider
 
 ![Acer Chromebook 15](https://www.lifewire.com/thmb/KPrvN1kvoH081BHRUonphp9CIeY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer_LaptopsUnder200_Chromebook_02-c3813ec58fc848e6a715abe090ebe6b1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jason Schneider
 
 ## **Design: Slightly bulky with a couple of nice touches**
@@ -88,14 +121,6 @@ Lifewire / Jason Schneider
 
  The device first asks you to set your regions, then connect to a Wi-Fi network, then finally to sign into a Google account and set up permissions. From here it drops you basically immediately to the Chromebook home screen where you can either dive right in, or follow the popup tour given by Google. One thing I liked a lot about this was that Google gives you a short three-popup tour to start, then asks if you’d like to go deeper or just jump right into the machine yourself. This staged version of a device tour is a great way to let you, the user, tailor it to your preferences. This also makes it great for an older-aged tech user who might need a bit of hand-holding as they get to know their laptop.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Display: Big, bright, and better than you might think**
 
  The display on the Acer Chromebook 15 is bigger than you might expect from a laptop that runs[Chrome OS](https://www.lifewire.com/google-chrome-os-1616448) , with a 15.6-inch backlit LED screen that offers a ton of room for windows and programs. The resolution measures in at 1366x768 meaning it checks all the boxes for being classified as an HD display.
@@ -105,9 +130,12 @@ Lifewire / Jason Schneider
  The whole laptop is made of plastic, and measures right around 1-inch thick, weighing in at almost 4.5 pounds.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance: Really solid, to a point**
 
  Chrome OS provides an interesting advantage in the performance category. Right out of the box, this laptop will look and feel very fast, but as soon as you try to open more than about 6 tabs on Chrome, or you fire up multiple apps and videos, it slows down exponentially. On paper, it sports a dual-core Intel Celeron N3060 processor capable for standard-run speeds of 1.6GHz.
@@ -125,22 +153,20 @@ Lifewire / Jason Schneider
  I am a little annoyed with the “search” key that Chromebooks placed where a caps lock key should be--resulting in a lot of accidental search callups. The trackpad also leaves a bit to be desired, requiring a firm, chunky press, and doesn’t support as many gestures as Windows or OSX.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Audio: An unexpected letdown**
 
  Laptops are never amazing specimen when it comes to on-board speakers, so I wasn’t expecting much out of this either. Because it’s a 15-inch machine, there’s plenty of room in the Chromebook 15 for more components, and Acer has opted to put in two giant speaker grilles along either side of the keyboard. Taking that into account, I was hoping that the speakers would be louder and fuller than a normal laptop. However, the response is very tinny and it wasn’t as loud as I was hoping. In fact, these are among the worst speakers I’ve tested on a budget laptop, leaving me to believe that the grilles are just for show.
 
 ![Acer Chromebook 15](https://www.lifewire.com/thmb/yw3n6Y9SGTIh4h10bF7XbAc5La0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer_LaptopsUnder200_Chromebook_03-5724a73204e94f548f20aec5fa86074f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Jason Schneider
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Network and connectivity: Modern, fast, and optimized for Chrome OS**
 
  Despite the lighter OS, the Chromebook 15 offers modern, well-equipped network features. First off, there’s an 802.11ac-capable Wi-Fi card built-in, which means you’ll get less interference than the N-protocol Wi-Fi, and you’ll have access to the[5GHz bands](https://www.lifewire.com/is-5-ghz-wifi-better-than-2-4-ghz-818293) common in most modern routers. There’s also Bluetooth 4.2 capability which provided me with a plenty-stable connection for my Bluetooth headphones, and will work nicely if you want to connect a mouse or other peripherals.
@@ -167,9 +193,6 @@ Lifewire / Jason Schneider
 
  That said, the Chromebook 15 runs so well, though likely only because of the lightweight operating system and limited app capabilities. Chrome OS is kind of like just using a Chrome window with a bunch of tabs on a regular PC. For most people, the OS is more than capable of handling most of your browsing needs. This Chromebook is a great example of how far you can push Chrome OS on a budget device, with a big bright screen for watching movies, too.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Really affordable with plenty to offer**
 
  The list price for this Acer Chromebook sits at just about $400 (MSRP), but most of the time you can find it on Amazon for between $150-$250\. I picked up my unit for about $185, and it tends to hover just around there.
@@ -187,8 +210,12 @@ Lifewire / Jason Schneider
  This is a great Chromebook with a lot of impressive things to offer. The bright screen has plenty of room for vibrant video viewing and multiple windows of productivity. The excellent battery life means you won’t be tethered to a desk, and the light, fast Chrome OS means it will take a lot to slow the Acer Chromebook 15 down. However, the limited onboard storage, bulky size and weight, and the lack of full app choices might limit you a bit too much. At the end of the day, at this price point, it’s perfect for light, basic use.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Chromebook 15 CB3-532
@@ -201,14 +228,11 @@ Lifewire / Jason Schneider
 * RAM  4GB
 * Storage  16GB
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -217,4 +241,19 @@ Lifewire / Jason Schneider
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-splitstream-analysis-top-video-camera-champion/"><u>[Updated] 2024 Approved SplitStream Analysis Top Video Camera Champion?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-art-of-viral-marketing-mastering-instagram-fame-through-9-key-tips/"><u>[Updated] The Art of Viral Marketing Mastering Instagram Fame Through 9 Key Tips</u></a></li>
+<li><a href="https://fox-links.techidaily.com/eclectic-videoland-rating/"><u>Eclectic Videoland Rating</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-discovering-the-essence-of-excellent-screen-capture-with-recmeister/"><u>In 2024, Discovering the Essence of Excellent Screen Capture with Recmeister</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-perfect-shots-essential-photography-edits/"><u>In 2024, Perfect Shots Essential Photography Edits</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-transfer-your-apple-iphone-6-apps-to-new-iphone-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Transfer your Apple iPhone 6 Apps to New iPhone | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/simplify-coding-tasks-by-adding-codegpt-to-vs-code/"><u>Simplify Coding Tasks by Adding CodeGPT to VS Code</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/steady-hand-techniques-for-videographers-for-2024/"><u>Steady-Hand Techniques for Videographers for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-complete-guide-to-the-samsung-qn55q6f-a-masterpiece-of-4k-and-hdr-technology/"><u>The Complete Guide to the Samsung QN55Q6F - A Masterpiece of 4K and HDR Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-definitive-guide-to-the-netgear-wireless-range-extender-ac1200-ex6200-review/"><u>The Definitive Guide to the Netgear Wireless Range Extender (AC1200, EX6200) Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-hp-omen-obelisk-assessment-top-tier-gaming-power-on-a-budget/"><u>The HP OMEN Obelisk Assessment - Top Tier Gaming Power on a Budget</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-powerhouse-in-depth-review-of-dbpowers-600a-with-a-18000mah-capacity-for-emergency-charging-needs/"><u>The Powerhouse: In-Depth Review of DBPOWER's 600A with a 18,000mAh Capacity for Emergency Charging Needs</u></a></li>
+</ul></div>
 

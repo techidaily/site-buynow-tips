@@ -1,7 +1,7 @@
 ---
 title: Discovering Speed and Sleek Design in Wi-Fi 6 with a Thorough Review of the Netgear Nighthawk RAX80
-date: 2024-08-27T12:10:11.704Z
-updated: 2024-08-28T12:10:11.704Z
+date: 2024-10-04T19:07:45.320Z
+updated: 2024-10-06T19:31:20.435Z
 categories:
   - BestProducts
 description: This Article Describes Discovering Speed and Sleek Design in Wi-Fi 6 with a Thorough Review of the Netgear Nighthawk RAX80
@@ -39,9 +39,23 @@ thumbnail: https://www.lifewire.com/thmb/XkocSdwFR10S2RFDprKa7fLDNz4=/400x300/fi
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -66,9 +80,6 @@ thumbnail: https://www.lifewire.com/thmb/XkocSdwFR10S2RFDprKa7fLDNz4=/400x300/fi
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: A lot of power packed into a small frame**
 
  The Beatit Jump Starter D11’s main unit's effectively a small black brick with red accents. Roughly the size of a small paperback book, the unit's constructed out of durable plastic and features a flashlight at one end. Along one of the long sides there's a small display that shows battery status, the on/off switch, two USB power outputs, and the device’s charging port. On the opposing side a rubber flap covers the jumper cable port; a unique port that the jumper cable accessory plugs in to.
@@ -87,9 +98,6 @@ thumbnail: https://www.lifewire.com/thmb/XkocSdwFR10S2RFDprKa7fLDNz4=/400x300/fi
 
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Plenty of power for all your needs**
 
  Time and again, the Beatit Jump Starter D11 was able to get a car with a very[depleted battery](https://www.lifewire.com/car-batteries-are-made-to-die-534765) started. Even after repeated testing the unit’s own battery only dropped down to 85% capacity.
@@ -99,8 +107,12 @@ thumbnail: https://www.lifewire.com/thmb/XkocSdwFR10S2RFDprKa7fLDNz4=/400x300/fi
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
  There aren’t a ton of other features present with the Beatit Jump Starter D11 but there are some of note, including the unit’s built-in flashlight. It’s a nice addition to have if you must jump start a car in the middle of the night, but it doesn’t put out of a ton of light and the beam is pretty narrow. You can pick the unit up and use it as a large flashlight, though doing so while also trying to get the clamps attached is cumbersome.
@@ -110,17 +122,24 @@ thumbnail: https://www.lifewire.com/thmb/XkocSdwFR10S2RFDprKa7fLDNz4=/400x300/fi
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: A ton of value for a tiny cost**
 
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
 
  At that price point, it packs a ton of value into its diminutive size.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
 **_DBPOWER 600A Peak 18000mAh Portable Car Jump Starter:_**  When it comes down to it these two units are surprisingly similar, down to the case and overall design of the unit. If you really want the ability to use your jump starter to also charge your laptop the DBPOWER is worth a look. Otherwise, save yourself around $10 and stick with the Beatit BT-D11.
@@ -137,9 +156,6 @@ thumbnail: https://www.lifewire.com/thmb/XkocSdwFR10S2RFDprKa7fLDNz4=/400x300/fi
 
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  800A BT-D11 Car Jump Starter
@@ -162,8 +178,6 @@ thumbnail: https://www.lifewire.com/thmb/XkocSdwFR10S2RFDprKa7fLDNz4=/400x300/fi
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -171,4 +185,20 @@ thumbnail: https://www.lifewire.com/thmb/XkocSdwFR10S2RFDprKa7fLDNz4=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/astering-yoga-top-10-youtube-resources-for-enlightened-living/"><u>[New] Mastering Yoga Top 10 YouTube Resources for Enlightened Living</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-a-step-by-step-framework-for-engaging-fb-giving-campaigns/"><u>[Updated] A Step-by-Step Framework for Engaging FB Giving Campaigns</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-choosing-an-original-channel-moniker-a-guide-for-filmmakers-with-filmora-for-2024/"><u>[Updated] Choosing an Original Channel Moniker A Guide for Filmmakers with Filmora for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-facebook-video-integration-for-pc-and-android-users-explained/"><u>[Updated] In 2024, Facebook Video Integration for PC & Android Users Explained</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-through-the-eye-a-top-ten-glimpse-at-2024s-superior-camera-lenses/"><u>[Updated] Through The Eye A Top Ten Glimpse at 2024'S Superior Camera Lenses</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-how-to-autoplay-youtube-videos-on-facebook/"><u>2024 Approved How to Autoplay Youtube Videos on Facebook?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/achieve-perfect-screen-captures-on-the-mi-11-lite/"><u>Achieve Perfect Screen Captures on the Mi 11 Lite</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/perfect-tape-mac-based-recording-for-2024/"><u>Perfect Tape Mac-Based Recording for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/recovering-failed-zip-operations-on-win-11-system/"><u>Recovering Failed ZIP Operations on Win 11 System</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-acer-aspire-e15-laptop-review-exceptional-value-in-affordable-computing/"><u>Top Acer Aspire E15 Laptop Review: Exceptional Value in Affordable Computing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlocking-road-safety-and-convenience-at-a-great-price-the-ultimate-guide-to-z-edge-z3plus-dashcam-review/"><u>Unlocking Road Safety and Convenience at a Great Price - The Ultimate Guide to Z-Edge Z3+ Dashcam Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unravel-the-value-of-economical-high-definition-pet-cams-by-petcube/"><u>Unravel the Value of Economical, High Definition Pet Cams by Petcube</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-next-gen-viewing-expert-review-of-samsungs-stellar-4k-hdr10plus-qn55q60rafxza-television/"><u>Unveiling the Power of Next-Gen Viewing: Expert Review of Samsung's Stellar 4K HDR10+ QN55Q60RAFXZA Television</u></a></li>
+</ul></div>
 

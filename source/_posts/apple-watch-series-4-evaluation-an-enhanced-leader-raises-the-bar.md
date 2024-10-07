@@ -1,7 +1,7 @@
 ---
 title: "Apple Watch Series 4 Evaluation: An Enhanced Leader Raises the Bar"
-date: 2024-09-20T18:02:49.204Z
-updated: 2024-09-26T17:15:39.964Z
+date: 2024-10-03T17:30:42.440Z
+updated: 2024-10-06T16:03:53.045Z
 categories:
   - BestProducts
 description: "This Article Describes Apple Watch Series 4 Evaluation: An Enhanced Leader Raises the Bar"
@@ -75,6 +75,13 @@ Lifewire / Emily Isaacs
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/C-YK_WPWu8Ujx1fwDLxvO6Epi-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_05-adcddc5fc05b415dbcd82396bc0ada77.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  The Kinesis Freestyle2 Blue for Mac breaks free of these norms by using a split, modular design that features two keyboard halves, one for each hand, connected via a 9 or 20-inch cable depending upon the chosen model. These pieces were designed with comfort in mind. They may be used separately or connected with a pivot tether at the top of the two halves. This allows you the opportunity to customize your setup and maximize your comfort, whether that’s by placing the halves closer together or further apart.
@@ -91,15 +98,22 @@ Lifewire / Emily Isaacs
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/XHY6Xe9cdaO1U6Uj0wDY6rROlcA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_04-7fad98b589454e0388ecf48afe425e8c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  From here, we followed the instructions in the provided instructional pamphlet and enabled Bluetooth on our iPad. After about a minute of scanning, the Kinesis KB800MB-BT keyboard appeared as an available device. We simply tapped to connect. From here, it prompted us to input a numeric code and press return. Once we’d done this, setup was complete.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Features: Efficient hotkeys once you get used to them**
@@ -110,28 +124,15 @@ Lifewire / Emily Isaacs
 
  Its split design is comfortable, following the natural arc of your fingers and hands as they rest upon its keys.
 
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery: Plenty of juice so you’re never in a bind**
 
  The battery life on the Freestyle2 is excellent. It arrives with a partial charge, so it’s important to remember to fully charge it after receiving it. Once charged, the battery life can last up to 300 plus hours of regular use. The Freestyle2 does an excellent job of letting you know when its battery is getting low—battery lights will flash red to indicate when there are about four hours of battery life remaining. This ensures you’re never left hanging.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Excellent for the features**
@@ -139,19 +140,6 @@ Lifewire / Emily Isaacs
  Full-size ergonomic keyboards tend to retail anywhere from $50 to $200, depending on the features involved. Generally retailing for about $100 on Amazon, the Freestyle2 sits comfortably at the front of this curve. While $100 may seem expensive for a keyboard, consider the features involved. Its travel-friendly build, adjustable setup options, extended battery life, and ability to switch quickly and smoothly between multiple connected devices make it an excellent choice for the features.
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/vncgu0FEgBJ69UL6H8BjQ2QoGRI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_03-9055476d1d974c8bbe9b1c39d479b300.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -204,18 +192,21 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-7-tips-for-capturing-live-online-classes-gratis-for-2024/"><u>[Updated] 7 Tips for Capturing Live Online Classes Gratis for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-stabilize-your-lens-no-trips-only-tricks-for-2024/"><u>[Updated] Stabilize Your Lens No Trips, Only Tricks for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/assessing-hewlett-packards-economical-laptop-can-the-hp-15s-affordable-amd-processor-meet-your-needs/"><u>Assessing Hewlett-Packard’s Economical Laptop: Can the HP 15'S Affordable AMD Processor Meet Your Needs?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/auditory-purchases-5-key-specs-to-assess/"><u>Auditory Purchases: 5 Key Specs to Assess</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/best-2024-options-beyond-microsoft-office/"><u>Best 2024 Options Beyond Microsoft Office</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/best-routers-with-built-in-parental-control-features/"><u>Best Routers with Built-In Parental Control Features</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/budget-friendly-analysis-of-the-tp-link-re200-wireless-range-expander-ac750/"><u>Budget-Friendly Analysis of the TP-Link RE200 Wireless Range Expander (AC750)</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/can-motorola-edgeplus-compete-with-top-smartphone-contenders-a-detailed-review/"><u>Can Motorola Edge+ Compete with Top Smartphone Contenders? A Detailed Review</u></a></li>
-<li><a href="https://change-location.techidaily.com/honor-x9b-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor X9b Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/pc-gamers-rejoice-crash-free-experience-with-the-latest-fixes-in-total-war-warhammer-iii/"><u>PC Gamers Rejoice! Crash-Free Experience with the Latest Fixes in 'Total War: Warhammer III'</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/recover-missing-social-media-icon-in-facebook-watch-for-2024/"><u>Recover Missing Social Media Icon in Facebook Watch for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/streamlining-your-watch-time-on-instagram-mobiledesktop-for-2024/"><u>Streamlining Your Watch Time on Instagram (Mobile/Desktop) for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/top-rated-virtual-reality-headsets-comprehensive-tests-and-insights-by-tech-gurus-techradar/"><u>Top-Rated Virtual Reality Headsets : Comprehensive Tests & Insights by Tech Gurus | TechRadar</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-a-step-by-step-guide-to-crafting-immersive-fb-video-experienenas/"><u>[New] In 2024, A Step-by-Step Guide to Crafting Immersive FB Video Experienenas</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-strategic-approaches-to-subtitle-embedding-on-facebook-reddit-for-2024/"><u>[New] Strategic Approaches to Subtitle Embedding on Facebook, Reddit for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-boosting-video-appeal-implementing-neon-borders-in-thumbnails/"><u>[Updated] In 2024, Boosting Video Appeal Implementing Neon Borders in Thumbnails</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/a-call-for-improved-refund-strategies-at-sony-and-nintendo-the-industry-talks-back/"><u>A Call for Improved Refund Strategies at Sony and Nintendo: The Industry Talks Back</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-the-ambient-weather-ws-1002-wifi-outdoor-sensor-expensive-but-reliable-quality/"><u>Comprehensive Guide to the Ambient Weather WS-1002 WiFi Outdoor Sensor - Expensive but Reliable Quality</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/cut-to-the-chase-newest-method-for-idevice-screen-recordings-2023-for-2024/"><u>Cut-to-the-Chase Newest Method for iDevice Screen Recordings, 2023 for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-charm-of-the-propella-7s-40-the-ideal-lightweight-and-economical-choice/"><u>Discover the Charm of the Propella 7S 4.0 - The Ideal Lightweight & Economical Choice</u></a></li>
+<li><a href="https://windows11.techidaily.com/halt-auto-restarts-windows-11-troubleshooting/"><u>Halt Auto Restarts: Windows 11 Troubleshooting</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-from-google-pixel-fold-by-drfone-android/"><u>How to Bypass FRP from Google Pixel Fold?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-to-upgrade-your-intel-imac-a-step-by-step-tutorial/"><u>How to Upgrade Your Intel iMac: A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ipad-vs-ipad-air-whats-the-difference/"><u>IPad Vs. IPad Air: What’s the Difference?</u></a></li>
+<li><a href="https://techidaily.com/minecraft-offline-mode-a-step-by-step-tutorial-for-windows-10-users/"><u>Minecraft Offline Mode: A Step-by-Step Tutorial for Windows 10 Users</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/synologys-rt2600ac-unveiled-pioneering-long-range-connectivity-and-robust-family-management-features-for-home-networks/"><u>Synology's RT2600ac Unveiled: Pioneering Long Range Connectivity & Robust Family Management Features for Home Networks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-kobo-forma-ereader-perfecting-your-book-enthusiasts-journey/"><u>The Ultimate Guide to the Kobo Forma eReader: Perfecting Your Book Enthusiast's Journey</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-test-of-jabra-talk-45-sound-quality-plus-battery-life/"><u>The Ultimate Test of Jabra Talk 45 - Sound Quality + Battery Life</u></a></li>
 </ul></div>
 

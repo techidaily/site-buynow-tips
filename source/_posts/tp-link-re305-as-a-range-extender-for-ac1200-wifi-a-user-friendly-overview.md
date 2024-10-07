@@ -1,7 +1,7 @@
 ---
 title: TP-Link RE305 as a Range Extender for AC1200 WiFi - A User-Friendly Overview
-date: 2024-08-27T12:10:16.402Z
-updated: 2024-08-28T12:10:16.402Z
+date: 2024-10-03T00:20:27.539Z
+updated: 2024-10-06T21:05:40.777Z
 categories:
   - BestProducts
 description: This Article Describes TP-Link RE305 as a Range Extender for AC1200 WiFi - A User-Friendly Overview
@@ -64,8 +64,12 @@ Lifewire / Erika Rawes
  The TP-Link Archer C80 is an affordable[long range router](https://www.lifewire.com/best-long-range-routers-4122554) that should be ideal for medium-sized homes. With 3x3[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , parental controls, and remote control using TP-Link’s Tether app, the Archer C80 has a few admirable features for a router under $100, but it also lacks some of the things we’ve come to expect in a router in this price range (like smart assistant compatibility and no USB port). I tested the TP-Link Archer C80 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment when compared to other budget routers on the market.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design: Basic, but effective**
 
  The Archer C80 is an exceptionally small router, with a body that measures only 4.6 inches tall, 8.5 inches wide, and 1.26 inches in depth. Since its body is smaller than a paperback book, the router can sit inconspicuously on a table or desk. It also has two keyhole mounts on the back for mounting on a wall.
@@ -88,10 +92,14 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/tXeiVJNqjtwMg97as87xxtsMwhc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_04-375b5f92ce9d44f4af109c8f6bfada16.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Network Performance: Fast speeds, No USB port**
 
@@ -101,11 +109,15 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ## **Range: Even better than advertised**
 
  TP-Link advertises the C80 as a router for three-bedroom homes. However, that estimate understates the router’s range capabilities. My home is a two-story, 3,000 square-foot residence with five-bedrooms, and I was able to maintain a stable Wi-Fi connection in every corner. Every closet, bathroom, and bedroom got a steady signal, and I experienced no dead zones whatsoever. Even in the garage, front yard, and backyard, the signal remained strong. It was only when I attempted to use multiple gaming and streaming devices at one time that I experienced any sort of lag.
@@ -113,8 +125,12 @@ Lifewire / Erika Rawes
  Every closet, bathroom, and bedroom maintained a signal, and I experienced no dead zones whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Software: TP-Link Tether app**
 
  The C80 is a cinch to set up in less than five minutes, with guest networks created and all. The TP-Link Tether app is one of my favorite router companion apps. The interface is super clean, and you can see exactly what devices are on each of your network bands. You can even have the app alert you when a new device signs into your network.
@@ -125,19 +141,15 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Around 100 bucks**
 
  The TP-Link Archer C80 sells for $100, which is a reasonable price for the unit considering it offers fast speeds, dual-band connectivity, and technologies like MU-MIMO to enhance performance.
@@ -178,8 +190,6 @@ Lifewire / Erika Rawes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -187,4 +197,26 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/updated-google-upload-mastery-a-step-by-step-guide/"><u>[Updated] Google Upload Mastery - A Step-by-Step Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-harnessing-digital-artistry-top-6-nft-makers-reviewed/"><u>2024 Approved Harnessing Digital Artistry - Top 6 NFT Makers Reviewed</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/apex-creators-video-giants-in-the-making-for-2024/"><u>Apex Creators Video Giants in the Making for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/deciding-between-gmail-and-outlook-an-in-depth-review-of-which-is-better-for-you/"><u>Deciding Between Gmail & Outlook - An In-Depth Review of Which Is Better For You</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-elite-body-cams-dominating-2amoy-market-this-year/"><u>Discover the Elite Body Cams Dominating 2Amoy Market This Year</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-value-in-mobility-the-review-of-microsofts-newly-released-laptop-go/"><u>Discovering Value in Mobility – The Review of Microsoft's Newly Released Laptop Go</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/eliminating-windows-update-anomaly-error-0xca00a009/"><u>Eliminating Windows Update Anomaly: Error 0xCA00A009</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-google-stadia-opportunities-for-enhancement/"><u>Evaluating Google Stadia: Opportunities for Enhancement</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-radpower-radcity-5plus-bike-features-powerful-yet-on-the-heavier-side/"><u>Evaluating RadPower RadCity 5+ Bike Features: Powerful Yet on the Heavier Side</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-seamless-internet-with-google-nest-wi-fi-speed-meets-convenience/"><u>Experience Seamless Internet with Google Nest Wi-Fi - Speed Meets Convenience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-the-touch-in-depth-review-of-the-lenovo-9-inch-nook-tablet/"><u>Experience the Touch: In-Depth Review of the Lenovo 9-Inch Nook Tablet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-tp-link-re505x-range-extender-a-comprehensive-guide/"><u>Expert Analysis: TP-Link RE505X Range Extender - A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/eye-on-the-best-online-photo-printers-for-24/"><u>Eye on the Best Online Photo Printers for '24</u></a></li>
+<li><a href="https://driver-install.techidaily.com/gaomon-s620-free-download-and-easy-setup/"><u>Gaomon S620: Free Download & Easy Setup</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-enhance-ig-visuals-with-our-top-10-grid-making-tools-selection/"><u>In 2024, Enhance IG Visuals with Our Top 10 Grid Making Tools Selection</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-understanding-your-new-reality-on-instagram/"><u>In 2024, Understanding Your New Reality on Instagram</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-is-offering-free-mobile-language-courses-for-millions-of-ukrainian-refugees/"><u>Mondly Is Offering Free Mobile Language Courses for Millions of Ukrainian Refugees</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/solving-hyperx-cloud-alpha-headset-microphone-issues-a-comprehensive-guide/"><u>Solving HyperX Cloud Alpha Headset Microphone Issues: A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/sub-from-srt-effective-techniques-for-format-shift-for-2024/"><u>SUB From SRT Effective Techniques for Format Shift for 2024</u></a></li>
+</ul></div>
 

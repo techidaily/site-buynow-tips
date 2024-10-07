@@ -1,7 +1,7 @@
 ---
 title: Unveiling Our Findings on Thermaltake's Premium TM Laptop Chiller - High Quality but at a Hefty Price
-date: 2024-08-22T18:10:26.195Z
-updated: 2024-08-23T18:10:26.195Z
+date: 2024-10-02T17:30:06.429Z
+updated: 2024-10-06T18:44:35.348Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling Our Findings on Thermaltake's Premium TM Laptop Chiller - High Quality but at a Hefty Price
@@ -77,6 +77,13 @@ Andy Zahn / Lifewire
 
 Andy Zahn / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Story: Engaging and well written
 
  You start out by choosing from one of several different life paths, each of which features a different intro, as well as unique dialogue options throughout the game. The Nomad starts in the wastelands, the Street Kid in the inner city, and the Corpo in what else but the heart of a mega corporation.
@@ -89,9 +96,6 @@ Andy Zahn / Lifewire
 
  Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Gameplay: Fun, but deeply flawed
 
  As with the game as a whole, Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows. It does some things very well and stumbles bafflingly in other regards. The game mostly takes place in the first person, with third-person view being an option while driving.
@@ -99,6 +103,19 @@ Andy Zahn / Lifewire
  Driving is not what I’d call a perfect experience in either third or first-person modes. Though beautifully designed and widely varied, vehicles tend to have little weight to them, and you really have to work to avoid careening about the road, running over pedestrians, and attracting the tepid attention of the police. They all also seem to be in desperate need of a new set of brakes, and to make matters worse the AI for the NPC vehicles is very simple indeed. Park your car with a bit of it sticking out into the road and a line will quickly build up as these simpletons exhibit infinite patience rather than simply go around.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/NwK7qVv8XDmr_i0b9XzULnmPZ9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-5-664cae2e38304560a7d6fc3ce2a84335.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -114,9 +131,6 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/ByBdwophc_bSfdD-P0CfbqJgbwY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-7-e6be7e2c1ae24ac3a1c5dbfd4a5b595a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 Andy Zahn / Lifewire
 
  You can also use fast travel booths to get around instantly once you’ve unlocked them, though I found myself favoring the slow route, despite the issues inherent in that experience. Cruising through Night City is truly a jaw-dropping experience.
@@ -131,9 +145,6 @@ Andy Zahn / Lifewire
 
  Driving out of a garage for the first time into a canyon of towering sci-fi skyscrapers bedecked in holograms and neon is one of those awe-inspiring moments that come only fleetingly in video games.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Customization: Lots to tinker with
 
  There is a deep level of character customization possible in Cyberpunk 2077, and you can sink a lot of time into creating the perfect character. Of course, you can always just pick a preset, but where's the fun in that? I tried to craft a likeness of Snake Plissken from Escape from Los Angeles, but couldn’t get it quite right, so I made a rough approximation of Basil Fawlty instead.
@@ -141,6 +152,13 @@ Andy Zahn / Lifewire
  Next, you get seven points with which to customize your character’s attributes between body, intelligence, technical ability, and cool. This determines your proficiency in both physical and technical skills. Don’t worry too much, as you will level up and add to these attributes and their associated skills as the game progresses. Skills allow you to fine-tune your abilities, as well as add new ones to your arsenal. It’s a good idea to focus on a specialty, once you know what you enjoy doing in the game because the more points you put into a category the more options unlock.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/Uqy4AEm6VMUR3LFH9U2FK5UDvo0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-3-28901c5bd3564eeea8e98bc9dbb8ae07.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -152,9 +170,6 @@ Andy Zahn / Lifewire
 
 At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ## Bugs: Welcome to Glitch City
 
  At launch Cyberpunk 2077 is something of a bug-riddled mess. Even a few months and a few patches later it’s very noticeably in need of major fixes. Right out of the gate I found a collectible card that can only be picked up during the intro, but the game refused to allow me to pick it up, so I was forced to leave it sitting there forlornly, forever gnawing at the completionist streak in me.
@@ -167,16 +182,22 @@ At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/JM3cD1pX6maee1yiQYZnSgc-9pw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-4-624da4fa8225434eb59ba999a53dafd6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Mature content: Pushing the boundaries
 
  It must be mentioned that Cyberpunk 2077 earns its mature rating. Parents and players alike would do well to head the descriptors of that rating, as all of them are well deserved. There are options to ameliorate this in some respects, but only to a limited extent. The fact is that Cyberpunk 2077 is an imagining of a dark and disturbing future, and the game forces players to confront the consequences should humanity go down such a road.
@@ -185,9 +206,6 @@ Andy Zahn / Lifewire
 
  The high quality of storytelling is probably the main highlight of the game, next to the insane graphical fidelity.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ## Performance: Making strong GPUs cry
 
  Sometimes a game comes along that pushes the limits of what computer hardware is possible. This led to a whole generation of gamers growing up asking the classic question “Can it run Crysis?”. Cyberpunk 2077 is truly the Crysis of the modern day, and that means that at launch very few people will get to experience this game as intended. To get the most out of this game you really need a Nvidia RTX 3080, an expensive GPU that at the time of this writing is so scarce that really only a handful of people around the globe are getting the most out of Cyberpunk 2077.
@@ -208,9 +226,6 @@ Andy Zahn / Lifewire
 
  An alternative worth considering if you have a robust high-speed internet connection is streaming the game on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) . This will allow you to experience the game at its best without having to invest in a two thousand dollar PC. However, it does leave your ability to play the game at the mercy of your ability to access a strong internet connection.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Graphics: Ahead of its time
 
  The star of the show in Cyberpunk 2077 are the visuals, and if you have a PC with the hardware to render the game at its maximum quality while maintaining playable frame rates the world of Night City is absolutely jaw-dropping. Driving out of a garage for the first time into a canyon of towering sci-fi skyscrapers bedecked in holograms and neon is one of those awe-inspiring moments that come only fleetingly in video games.
@@ -229,15 +244,19 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/o42yZx4igr8SBsJoS2Nc52n6m3U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-6-1b41a87ba1244122adf280147c09e5f1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
 
 ## Multiplayer: Absent for the moment
 
  At launch and for long after Cyberpunk 2077 will be a single-player game. However, CDPR has said that a few years down the road they will be launching a multiplayer mode, and a lot of people are looking forward to that. Of course, it is impossible to predict if this will be any good or if some circumstances might prevent its release, but there is a lot of potential for Cyberpunk to become a better experience when Night City goes online. With that said, CDPR really needs to fix the single-player game before they even think about launching multiplayer.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Price: A refreshing lack of micro-transactions
 
  At $60 with no extra monetization at launch, Cyberpunk 2077 is something of a bargain. Take this with a grain of salt though, as this situation could change dramatically once the multiplayer mode is released.
@@ -256,6 +275,13 @@ Andy Zahn / Lifewire
 
  Cyberpunk 2077 had enormous potential, but it launched long before it was complete and the result is a deeply conflicting experience. Game-breaking bugs, performance issues, missing features, and demanding hardware requirements make it difficult to recommend, but there is the core of something great lying within. There are hundreds of hours of content to enjoy if you can temper your expectations and employ a saintly degree of patience.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Cyberpunk 2077
@@ -265,14 +291,11 @@ Andy Zahn / Lifewire
 * Platforms  PC, Xbox Series X, Xbox One, PlayStation 5, PlayStation 4, Stadia
 * Rating  M
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -281,4 +304,19 @@ Andy Zahn / Lifewire
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-motorola-defy-2-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Motorola Defy 2 | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-steps-for-creating-a-popular-individual-podcast-show/"><u>2024 Approved Steps for Creating a Popular Individual Podcast Show</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-locked-or-disabled-from-apple-iphone-12-mini-7-mehtods-you-cant-miss-by-drfone-ios/"><u>Apple ID Locked or Disabled From Apple iPhone 12 mini? 7 Mehtods You Cant-Miss</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/changes-in-our-user-privacy-guidelines/"><u>Changes in Our User Privacy Guidelines</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-play-hevc-h-265-video-on-samsung-galaxy-a24-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>How to play HEVC H.265 video on Samsung Galaxy A24?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-direction-and-intensity-in-video-lighting/"><u>In 2024, Direction and Intensity in Video Lighting</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/rotating-reality-in-visuals-the-art-of-spinning-images-for-instagram-triumphs/"><u>Rotating Reality in Visuals The Art of Spinning Images for Instagram Triumphs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/speedy-performance-and-advanced-features-an-expert-review-of-the-new-amazon-fire-tv-cube/"><u>Speedy Performance & Advanced Features: An Expert Review of the New Amazon Fire TV Cube</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/steam-deck-showdown-is-it-a-game-changer/"><u>Steam Deck Showdown: Is It a Game Changer?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/switching-sides-in-depth-look-at-nintendos-lite-vs-oled-versions/"><u>Switching Sides: In-Depth Look at Nintendo's Lite vs OLED Versions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/synology-rt2600ac-dual-band-gigabit-wi-fi-router-review/"><u>Synology RT2600ac Dual-Band Gigabit Wi-Fi Router Review</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-distinctive-features-of-auto-gpt-in-contrast-to-chatgpt-an-in-depth-look/"><u>The Distinctive Features of Auto-GPT in Contrast to ChatGPT - An In-Depth Look</u></a></li>
+</ul></div>
 

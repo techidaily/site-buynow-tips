@@ -1,7 +1,7 @@
 ---
 title: "Bringing Zombies Alive with Excitement: The Ultimate Insight Into '7 Days to Die,' Day by Day and Platform by Platform"
-date: 2024-08-27T12:06:05.614Z
-updated: 2024-08-28T12:06:05.614Z
+date: 2024-10-04T16:01:50.273Z
+updated: 2024-10-07T00:59:44.704Z
 categories:
   - BestProducts
 description: "This Article Describes Bringing Zombies Alive with Excitement: The Ultimate Insight Into '7 Days to Die,' Day by Day and Platform by Platform"
@@ -67,11 +67,22 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/MW5wYA5ujBjG5LdXn-w9bTJd5WQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-2-a59091cd21c04d99a42270199349fc2a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup Process: Easy thanks to Steam**
 
  7 Days to Die for PC can be located on Steam, making it easy to set up. It takes a little while to download, but once it boots up, you’re in. You’ll press the “New Game” button and you’ll need to create a new character, which is easy if you choose one of the preset characters from the list. If you’d like to make a unique character, it’s easy with a creation system similar to Skyrim. Everything, down to the very arch on the eyebrows, is customizable.
@@ -81,8 +92,12 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/Eq0YCIdbj82yj3lOCWEdZS7jX6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-4-341174c3997543728bd2b024c6e2a309.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
 ## **Plot: Open world horror sandbox**
@@ -123,9 +138,6 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Graphics: Outdated, but detailed on optimal**
 
  For a game that was released in 2013 originally, the graphics could be a little better, even if you play on optimal settings. Back in the day, we played on lower settings rather than splurge on a fancy graphics card. If you play on the lower settings, it’s cringeworthy, though not as cringeworthy as the Witcher 3’s lowest settings.
@@ -134,9 +146,6 @@ Lifewire / Rebecca Isaacs
 
  Because the graphics are a rather mixed bag, the frames per second (fps) can vary dramatically. We experienced drops as low as 18 fps when playing. When surrounded by a horde, that can cost you your life.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Platform: It’s complicated**
 
  7 Days to Die runs on many platforms:[PC](https://www.lifewire.com/what-is-a-mac-4155662) ,[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) , and[Xbox 360](https://www.lifewire.com/xbox-360-buyers-guide-3562451) . We played 7 Days on PC, and at the time of writing, they released a teaser for the Alpha 18 update which would roll out to the PC version of the game.
@@ -146,6 +155,13 @@ Lifewire / Rebecca Isaacs
 ## **Price: Average for an alpha game**
 
  At around $25, 7 Days isn’t the most expensive zombie game on the market. However, it is the most expensive alpha zombie game out there. Because you can purchase it on[Steam](https://www.lifewire.com/what-is-steam-4177380) or Humble Bumble, we recommend waiting for a Steam sale and getting it for a discount, especially since it’s still in progress. This way, if you decide you don’t like it in the future, you aren’t out the full price.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Other sandbox shooters**
 
@@ -160,17 +176,18 @@ Lifewire / Rebecca Isaacs
  Despite flaws in graphics, there’s a lot to love about 7 Days to Die. The challenging skill tree system and dangerous intelligent zombies add an element that’s not typically found in zombie shooters. If you want a game to commit to for hours on end, building bases and exploring dungeon-like homes while slaying zombie cheerleaders, then 7 Days to Die could be a fun way to ease some stress after a long day of work.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * The Last of Us Remastered
 * [Days Gone](https://www.lifewire.com/days-gone-review-4778364)
 * [Dying Light](https://www.lifewire.com/dying-light-review-4778324)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  7 Days to Die
@@ -183,14 +200,11 @@ Lifewire / Rebecca Isaacs
 * Graphics  1 GB Dedicated Memory
 * Game Updates  Alpha 17.4 out; Alpha 18 Announced
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -199,4 +213,23 @@ Lifewire / Rebecca Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-legality-query-personal-savings-of-youtube-videos/"><u>[New] Legality Query Personal Savings of YouTube Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-win-and-mac-mp3-converter-unlock-your-music-from-youtube-for-2024/"><u>[Updated] Win & Mac MP3 Converter Unlock Your Music From YouTube for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-itel-p55t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Itel P55T | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-leading-17-laptop-models-dominating-2024s-tech-scene/"><u>Discover the Leading 17 Laptop Models Dominating 2024'S Tech Scene</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-benefits-of-the-garmin-vivomove-hr-watch-where-elegance-meets-exercise/"><u>Discovering the Benefits of the Garmin Vivomove HR Watch - Where Elegance Meets Exercise</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-the-power-in-a-pocketbook-the-razer-book-13-reviewed/"><u>Experience the Power in a Pocketbook: The Razer Book 13 Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-netgear-nighthawk-ax8-the-ultimate-wi-fi-n-mesh-expander-for-modern-homes/"><u>Expert Analysis of the Netgear Nighthawk AX8: The Ultimate Wi-Fi N Mesh Expander for Modern Homes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-unbeatable-dji-mavic-2-the-ultimate-tool-for-professionals/"><u>Expert Analysis of the Unbeatable DJI Mavic 지킬 2 프로 - The Ultimate Tool for Professionals</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-winegard-fl5500a-flatwave-balancing-quality-with-high-cost/"><u>Expert Analysis: Winegard FL5500A FlatWave - Balancing Quality with High Cost</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-assessment-of-the-compact-aphaca-bt69-car-bluetooth-fm-transmitter-performance-review/"><u>Expert Assessment of the Compact Aphaca BT69 Car Bluetooth FM Transmitter Performance Review</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/full-guide-to-unlock-iphone-xr-with-itunes-by-drfone-ios/"><u>Full Guide to Unlock iPhone XR with iTunes</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-vivo-v30-pro-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Vivo V30 Pro</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-ending-your-insta-saga-a-comprehensive-guide-to-deactivation/"><u>In 2024, Ending Your Insta Saga A Comprehensive Guide to Deactivation</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-master-quick-photo-collage-with-google-images-in-minutes/"><u>In 2024, Master Quick Photo Collage with Google Images in Minutes</u></a></li>
+<li><a href="https://windows11.techidaily.com/master-8-windows-cutting-apps-for-videos/"><u>Master 8 Windows Cutting Apps for Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-learning-from-images-to-effective-youtube-thumbnails/"><u>Rapid Learning From Images To Effective YouTube Thumbnails</u></a></li>
+</ul></div>
 

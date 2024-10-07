@@ -1,7 +1,7 @@
 ---
 title: "PowerShot G9XII Review: The New Classic Travel Companion"
-date: 2024-08-27T12:11:52.240Z
-updated: 2024-08-28T12:11:52.240Z
+date: 2024-10-02T19:06:52.003Z
+updated: 2024-10-06T21:40:22.940Z
 categories:
   - BestProducts
 description: "This Article Describes PowerShot G9XII Review: The New Classic Travel Companion"
@@ -69,8 +69,12 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design: Glimpsing an ugly future**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna looks something like what I would imagine a space prison to look like. It’s far larger than any of the other antennas that I tested, and during every step of the assembly I kept thinking to myself “well that part can’t possibly be necessary.” From the comically long antennas and giant metal grate, to the bulbous hollowed out spheres, there is a lot going on here.
@@ -79,10 +83,6 @@ Lifewire / Jonno Hill
 
  As you’ll see later though, this is because the ClearStream 2V Indoor/Outdoor HDTV Antenna doesn’t really care about looks. Everything is 100% about function. There are, however, a few little elements from a design perspective that help make the ClearStream a somewhat thoughtful device nonetheless. Once assembled, all the parts fit together nicely like a lego set.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup: Buckle up**
 
  Setup of the ClearStream 2V Indoor/Outdoor HDTV Antenna has by far the most complicated setup of the antennas that I tested in our roundup. The instructions that come included have illustrations that show how everything fits together, but it isn’t outlined in the simplest manner possible.
@@ -91,10 +91,6 @@ Lifewire / Jonno Hill
 
  Once the entire device is assembled, the real work begins in my opinion. Now you have to figure out how and where to mount this beast of an antenna. Antenna’s Direct has you covered here, including a hefty bracket and swiveling mast that will help you mount the antenna to just about anywhere with a flat surface that you don’t mind screwing some bolts into.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ## **Performance: Top tier**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna might be an unsightly space jail, but it sure gets good reception. I tested the antenna indoors along with the rest of the suite of indoor antennas, and in the same orientation. Perhaps it would have benefited from being placed outside, but in the interest of fairness I used the same method for all.
@@ -110,20 +106,25 @@ Lifewire / Jonno Hill
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/NoQoQy3-EFUpi1z9oMTpD2JGWHQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_04-70f5a48ac9a347d286c71240b85cbc1c.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: Performance doesn’t come cheap**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna has a list price of $120 and a 90-day rolling average price on Amazon of $83\. This is significantly more than any of the other antennas I tested, some of which could be had for around $25\. If you live far enough that you need a better performing antenna, however, it could easily be worth every penny. I would only caution buyers to make sure they really do need this performance before pulling the trigger on this very large antenna.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **ClearStream 2V Indoor/Outdoor HDTV Antenna vs 1byone Digital Amplified Indoor HD TV Antenna**
 
  I figured it might be interesting to compare the cheapest antenna to the most expensive antenna. If you are living inside of a city, fairly close to a signal source, you can probably get away with a cheaper antenna like the $25 amplified antenna by manufacturer 1byone. This flat, simple antenna takes up far less space and still managed to get 59 channels. It also maintained a clear picture on all of the major network stations just fine.
@@ -134,6 +135,13 @@ Lifewire / Jonno Hill
 
 **Great performance for those that need it.**
  The ClearStream 2V Indoor/Outdoor HDTV Antenna isn’t the cheapest or best-looking antenna on the market, but it gets the job done better than any of the other antennas we tested. Buyers who know they need an antenna with better range and performance will find this to be a noticeable bump from cheaper indoor antennas.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -146,14 +154,11 @@ Lifewire / Jonno Hill
 * Range  60 miles
 * Warranty  Lifetime parts
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,4 +167,23 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-document-gameplay-secrets-in-galaxy-androids/"><u>[New] In 2024, Document Gameplay Secrets in Galaxy Androids</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-fixing-windows-10-photo-viewer-hangs-quickly/"><u>[Updated] Fixing Windows 10 Photo Viewer Hangs Quickly</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-guide-to-make-your-shorts-thumbnail-pop-up/"><u>[Updated] Guide to Make Your Shorts' Thumbnail Pop Up</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-navigating-video-streaming-tools-a-focus-on-zoom-with-youtube/"><u>[Updated] Navigating Video Streaming Tools A Focus on Zoom with YouTube</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-next-gen-display-top-5-hdmi-21-infinity-refresh-monitors-ps5/"><u>[Updated] Next-Gen Display Top 5 HDMI 2.1 Infinity Refresh Monitors [PS5]</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-boosting-video-visibility-by-sending-imovie-content-to-vimeo/"><u>2024 Approved Boosting Video Visibility by Sending iMovie Content to Vimeo</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-vimeo-and-youtube-analyzing-their-unique-features/"><u>2024 Approved Vimeo and YouTube Analyzing Their Unique Features</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-poco-x5-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Poco X5</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/gamers-checklist-5-key-points-for-selecting-the-perfect-console/"><u>Gamers' Checklist: 5 Key Points for Selecting the Perfect Console</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/high-temperature-curing-methods-like-steam-or-autoclave-curing-accelerate-hydration-but-require-careful-temperature-control/"><u>High-Temperature Curing Methods Like Steam or Autoclave Curing Accelerate Hydration but Require Careful Temperature Control.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-oneplus-9-pro-exceptional-design-performance-and-photography/"><u>In-Depth Analysis of OnePlus 9 Pro: Exceptional Design, Performance & Photography</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-the-best-and-worst-of-the-ring-battery-doorbell-plus-model/"><u>In-Depth Analysis: The Best & Worst of the Ring Battery Doorbell + Model</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-examination-of-lg-gram-laptop-series-17-striking-balance-between-portability-and-performance/"><u>In-Depth Examination of LG Gram Laptop Series 17: Striking Balance Between Portability & Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-hitman-3-critique-an-impeccable-series-culmination/"><u>In-Depth Hitman 3 Critique: An Impeccable Series Culmination</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-testing-of-the-affordable-dell-g5-5090-a-top-contender-in-entry-level-pcs-with-wide-options/"><u>In-Depth Testing of the Affordable Dell G5 #5090: A Top Contender in Entry-Level PCs with Wide Options</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-in-2024-a-guide-on-starting-private-live-streams-on-youtube/"><u>New In 2024, A Guide on Starting Private Live Streams on YouTube</u></a></li>
+</ul></div>
 

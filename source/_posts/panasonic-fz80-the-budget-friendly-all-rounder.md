@@ -1,7 +1,7 @@
 ---
 title: "Panasonic FZ80: The Budget-Friendly All-Rounder"
-date: 2024-08-27T12:11:06.364Z
-updated: 2024-08-28T12:11:06.364Z
+date: 2024-09-29T19:49:46.305Z
+updated: 2024-10-06T21:29:21.457Z
 categories:
   - BestProducts
 description: "This Article Describes Panasonic FZ80: The Budget-Friendly All-Rounder"
@@ -77,8 +77,12 @@ Lifewire / James Huenink
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/jgQ_lVlvzgmXFPpBg5nEd6pgV_c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_12_Final_Horiz-e97c48d3af6842eb88775a9d703ce2b6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / James Huenink
 
 ## **Camera Quality: Quality camera with some autofocus troubles**
@@ -93,9 +97,6 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/Bko9Uk1HIIMt9aNgtBf9ATCy0AA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_14_Final_Horiz-4f1b9fe91b8c4229b17dbbe6afb81b8c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
  Lifewire / James Huenink
 
 ## **Performance: Decent sound quality for a small mic**
@@ -106,21 +107,26 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/C2UBXNFmxG8nA0udy1IprMH4LBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_9_Final_Horiz-1af52951f8704af9b76d7dd1ec9744a9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
  Lifewire / James Huenink
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Inexpensive HD camera**
 
  The Logitech C615 costs $70 MSRP, but you can find it for about half that cost. Even at full price, it's a solid value. The thoughtful design, image quality, and microphone clarity easily justify the price tag.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Competition: Acquits itself well against the competition**
 
 **_Docooler USB 2.0 12 Megapixel_ :** The Docooler USB 2.0 12 Megapixel is one of the cheapest cameras on the market, going for between $8 and $15\. But there's a reason it retails so cheaply; it's a nightmare to use, the audio quality is torturous, and the camera doesn't approach the advertised 12 MP. Despite being nearly $60 more expensive, the C615 is the obvious winner here.
@@ -138,8 +144,12 @@ Lifewire / James Huenink
  The Logitech C615 Webcam strikes the perfect balance between performance and affordability. The quality design, high definition video, and quality sound make this an excellent webcam for most tasks at a great price.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  C615 HD Laptop Webcam
@@ -163,8 +173,6 @@ Lifewire / James Huenink
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -172,4 +180,26 @@ Lifewire / James Huenink
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-chinas-value-driven-virtual-reality-marketplace-for-2024/"><u>[New] China's Value-Driven Virtual Reality Marketplace for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-top-8-best-video-grabbers-for-windows-10/"><u>[Updated] 2024 Approved Top 8 Best Video Grabbers for Windows 10</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-unravel-the-secrets-to-sequential-video-viewing-no-charges/"><u>[Updated] In 2024, Unravel the Secrets to Sequential Video Viewing (No Charges)</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/from-youtube-streams-to-local-files-audio-guide-for-2024/"><u>From YouTube Streams to Local Files Audio Guide for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/guia-facil-para-convertir-archivos-mkv-en-mp4-con-la-excelente-calidad-original/"><u>Guía Fácil Para Convertir Archivos MKV en MP4 Con La Excelente Calidad Original</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-you-play-mp4-files-on-galaxy-s23-tactical-edition-by-aiseesoft-video-converter-play-mp4-on-android/"><u>How do you play MP4 files on Galaxy S23 Tactical Edition?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-apex-on-ice-olympic-highlights-of-short-track-events/"><u>In 2024, Apex on Ice Olympic Highlights of Short-Track Events</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/laugh-out-loud-meme-making-techniques-for-2024/"><u>Laugh Out Loud Meme-Making Techniques for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/secure-reliable-and-free-the-10-best-email-accounts-you-should-try-today/"><u>Secure, Reliable & Free: The 10 Best Email Accounts You Should Try Today!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-pelvis-is-a-common-site-for-osteolytic-lesions-because-of-its-high-red-marrow-content-and-blood-supply/"><u>The Pelvis Is a Common Site for Osteolytic Lesions because of Its High Red Marrow Content and Blood Supply</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-process-of-selecting-the-right-smart-tv/"><u>The Process of Selecting the Right Smart TV</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-samsung-galaxy-watch-active-examined-a-tracker-dedicated-to-your-health-and-fitness-goals/"><u>The Samsung Galaxy Watch Active Examined - A Tracker Dedicated to Your Health and Fitness Goals</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-timeless-appeal-of-classic-gaming-reviewing-the-iconic-super-mario-bros-for-nintendos-pioneering-game-and-watch/"><u>The Timeless Appeal of Classic Gaming: Reviewing the Iconic Super Mario Bros. For Nintendo's Pioneering Game & Watch</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-owning-a-syma-n107g-rc-quadcopter-value-performance-and-user-experience-insights/"><u>The Ultimate Guide to Owning a Syma N107g RC Quadcopter - Value, Performance & User Experience Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-verdict-on-thermaltake-massive-laptop-pad-advanced-cooling-with-an-upmarket-price-tag/"><u>The Ultimate Verdict on Thermaltake Massive Laptop Pad: Advanced Cooling with an Upmarket Price Tag</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-oppo-by-fonelab-android-recover-video/"><u>The way to get back lost videos from Oppo</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-10-fun-games-ideal-for-beating-boredom/"><u>Top 10 Fun Games Ideal for Beating Boredom</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-acer-discounts-on-prime-day-2024-hottest-deals/"><u>Top Acer Discounts on Prime Day 2024: Hottest Deals!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-artists-tablets-ranked-by-performance-and-quality/"><u>Top-Rated Artists Tablets Ranked by Performance & Quality</u></a></li>
+</ul></div>
 

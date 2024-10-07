@@ -1,7 +1,7 @@
 ---
 title: "OnePlus Nord N100 Review: A Solid Budget Phone"
-date: 2024-08-27T12:07:31.496Z
-updated: 2024-08-28T12:07:31.496Z
+date: 2024-10-02T17:11:46.611Z
+updated: 2024-10-07T04:10:24.201Z
 categories:
   - BestProducts
 description: "This Article Describes OnePlus Nord N100 Review: A Solid Budget Phone"
@@ -73,6 +73,13 @@ Lifewire / Jeremy Laukkonen
 
 ![HP Notebook 15](https://www.lifewire.com/thmb/ByP4cHLIz7Vshzf3Ac-DIXvvdQs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW4043278-HP-Notebook-15-2-32edd74fefa149f3addd156e886ab4c2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 ## **Design: Premium looks at a budget price**
@@ -85,14 +92,18 @@ Lifewire / Jeremy Laukkonen
 
  The laptop is less than an inch thick at the rear, and it slopes down to an even thinner profile at the front. It does weigh in at over four and a half pounds, which cuts down on portability somewhat, but the short battery life means you won’t be carrying this one with you everywhere anyway.
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Generally straightforward, but bloatware can extend the initial setup**
 
  The HP Notebook 15 is a[Windows 10](https://www.lifewire.com/windows-10-2626217) laptop, and the setup process isn’t anything out of the ordinary for a laptop like this. We timed the initial setup, and it took less than 15 minutes from plugging it in and turning it on to hitting the desktop for the first time. HP does ask for some information (including your email address) during the signup process, but most OEMs have a similar process for setting up support and warranty information.
 
  It does come with a[Microsoft 365](https://www.lifewire.com/how-to-install-office-365-4589808) trial and about ten utilities and apps from HP that most users won’t want or need. Removing all of the bloatware extends the initial setup time significantly, especially since this isn’t the fastest laptop to begin with, but uninstalling what you don’t need does free up some space and help the laptop run a little faster.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Display: Unremarkable, and not HD**
 
@@ -101,6 +112,13 @@ Lifewire / Jeremy Laukkonen
  We’d like to see at least 1600 x 900, if not 1920 x 1080 resolution, on a laptop of this size, but that isn’t necessarily a deal breaker at this price point.
 
 ![HP Notebook 15](https://www.lifewire.com/thmb/UzcvGMOLjjUMq7266i_u0-aS_d0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW4043278-HP-Notebook-15-3-ebd4f88f5f364fda82cb320e14a5690f.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -121,8 +139,12 @@ Lifewire / Jeremy Laukkonen
  We also ran the Fire Strike benchmark, which is another gaming benchmark that’s designed for slightly more powerful machines. It only managed a score of 547 in that one, with a totally unplayable 3 FPS.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Productivity: Works fine for basic productivity tasks**
 
  In real-world use, we found that the HP Notebook 15 feels sluggish a lot of the time, especially when running multiple apps at once or juggling 10 or more web browser tabs. It’s especially bad at working with images and video, but it’s usable for basic tasks like word processing and email.
@@ -131,9 +153,6 @@ Lifewire / Jeremy Laukkonen
 
  Once you get down to work, the HP Notebook 15’s keyboard is great. The keys feel nice and snappy, not mushy, and the positioning is decent. We didn’t have any trouble typing or using the touchpad, and it’s nice to have a full, island-style keyboard with a dedicated numeric keypad.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Audio: Solid sound for a budget laptop**
 
  The dual speakers are located between the keyboard and the screen and fire upward, ensuring that they won’t ever be muffled by your hands or the surface the laptop is sitting on.
@@ -152,13 +171,23 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Camera: Just an unimpressive 720p webcam**
 
  The HP Notebook 15 includes a 720p webcam that works well enough for video chat, but it’s a little blurry and washed out for use in professional teleconferencing. It’s there if you need it, but it isn’t anything special.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Battery: Mediocre battery life requires frequent charging**
 
  The HP Notebook 15 has a three-cell 41Wh battery according to its specific sheet, and that matches what we found in our testing. Our readings showed a 41,040 mWh design capacity and a 41,040 full charge capacity. Unfortunately, that just isn’t enough battery to support this laptop.
@@ -167,23 +196,14 @@ Lifewire / Jeremy Laukkonen
 
  In our testing, we found that the HP Notebook 15 battery holds up for about four and a half hours of constant use. That’s enough for light use, but isn’t enough to hold you over for a full day of work or school without plugging the charger in at some point. With very light use and the Wi-Fi turned off, the battery lasts a couple hours longer.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: Excessive bloatware clogs up the works**
 
  The HP Notebook 15 comes equipped with Windows 10 and free trials of McAfee antivirus and Microsoft 365\. It also has a handful of basic Windows apps installed by default, and a lot of bloatware from HP — there are about ten different apps, including HP JumpStart and HP Audio Switch, that we think most users will want to uninstall.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: Attractive price for what you get**
 
  The HP Notebook 15 won’t win any awards for performance or battery life, but it’s a classic example of the old maxim that “you get what you pay for.” The MSRP is just $299, so if you’re in the market for an ultra-budget laptop, then it’s worth a look.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## **Competition: For a little more money, you can get a whole lot more**
 
  The HP Notebook 15 stacks up favorably against some of its ultra-budget competitors, but it falls woefully short compared to laptops that are even marginally more expensive. This indicates that if you have a little more to spend, it’s worth investing in a better-performing machine.
@@ -200,6 +220,13 @@ Lifewire / Jeremy Laukkonen
 
  The lower-resolution display, unimpressive battery, and weak internals make anything beyond basic tasks a struggle for the HP Notebook 15\. But if you just need a laptop for web browsing, email, and word processing — and plan to keep it near an outlet — then the HP Notebook 15 fits the bill for an incredibly low price.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [HP Pavilion Laptop 15z Touch](https://www.lifewire.com/hp-pavilion-laptop-15z-touch-review-4686745)
@@ -207,8 +234,12 @@ Lifewire / Jeremy Laukkonen
 * [Asus Chromebook C202SA](https://www.lifewire.com/asus-chromebook-c202sa-review-4589359)
 
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Notebook 15
@@ -224,14 +255,11 @@ Lifewire / Jeremy Laukkonen
 * Camera  720p webcam
 * Ports  2x USB 3.1, 1x USB 2.0, HDMI, Ethernet, headphone jack
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -240,4 +268,26 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-reverse-image-syndrome-explaining-sideways-ig-vids/"><u>[New] Reverse Image Syndrome Explaining Sideways IG Vids</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-the-ultimate-guide-to-mastering-message-pins-on-discord-for-2024/"><u>[New] The Ultimate Guide to Mastering Message Pins on Discord for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-optimize-editing-efficiency-using-xps-capabilities/"><u>2024 Approved Optimize Editing Efficiency Using XP's Capabilities</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-itel-a05s-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Itel A05s | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-midland-lxt500vp3-a-radio-full-of-features-but-limited-performance/"><u>Comprehensive Review of the Midland LXT500VP3 - A Radio Full of Features but Limited Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/crafting-perfection-with-precision-a-thorough-review-of-the-xp-pen-artist-16-pro-drawing-pad/"><u>Crafting Perfection with Precision: A Thorough Review of the XP-Pen Artist 16 Pro Drawing Pad</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decoding-anthropics-a-detailed-review-of-their-smart-photo-editor-features/"><u>Decoding Anthropics: A Detailed Review of Their Smart Photo Editor Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/dive-into-acoustic-wonderland-with-logitechs-g533/"><u>Dive Into Acoustic Wonderland with Logitech's G533</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-call-history-from-xiaomi-redmi-12-5g-by-fonelab-android-recover-call-logs/"><u>Easy steps to recover deleted call history from Xiaomi Redmi 12 5G</u></a></li>
+<li><a href="https://driver-download.techidaily.com/effortless-installation-of-ft232r-driver-for-usb-uart-communication-devices/"><u>Effortless Installation of FT232R Driver for USB-UART Communication Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elite-rating-for-sleepers-a-detailed-review-of-the-bestselling-philips-somneo-alarm/"><u>Elite Rating for Sleepers: A Detailed Review of the Bestselling Philips Somneo Alarm</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/engage-directly-with-the-lenovo-9-inch-navigational-pad/"><u>Engage Directly With the Lenovo 9-Inch Navigational Pad</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-latest-samsung-galaxy-s21-model-less-is-more-approach-by-samsung/"><u>Evaluating the Latest Samsung Galaxy S21 Model: Less Is More Approach by Samsung</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-webex-insights-into-its-top-perks-and-pitfalls-for-effective-digital-teamwork/"><u>Evaluating Webex: Insights Into Its Top Perks and Pitfalls for Effective Digital Teamwork</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exclusive-samsung-galaxy-s20-fe-5g-analysis-the-ultimate-choice-for-enthusiastic-5g-users/"><u>Exclusive Samsung Galaxy S20 FE 5G Analysis - The Ultimate Choice for Enthusiastic 5G Users</u></a></li>
+<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-vivo-v29e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Vivo V29e | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/get-the-most-out-of-culinary-classes-with-these-essential-study-tips/"><u>Get the Most Out of Culinary Classes with These Essential Study Tips</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-discreetly-explore-instagram-stories-with-us/"><u>In 2024, Discreetly Explore Instagram Stories With Us</u></a></li>
+<li><a href="https://windows11.techidaily.com/tackling-the-code-4-error-a-compre-cookie-guide/"><u>Tackling the Code 4 Error: A Compre Cookie Guide</u></a></li>
+</ul></div>
 

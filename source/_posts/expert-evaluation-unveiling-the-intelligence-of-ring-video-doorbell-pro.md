@@ -1,7 +1,7 @@
 ---
 title: "Expert Evaluation: Unveiling the Intelligence of Ring Video Doorbell Pro"
-date: 2024-09-20T17:18:00.794Z
-updated: 2024-09-26T17:46:13.378Z
+date: 2024-10-05T19:21:35.851Z
+updated: 2024-10-06T19:35:36.492Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Evaluation: Unveiling the Intelligence of Ring Video Doorbell Pro"
@@ -41,6 +41,13 @@ Lifewire / Emily Isaacs
 
 4.4
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
@@ -71,13 +78,6 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  One unique feature of the Sculpt we loved was the function switch. Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key. Options include refreshing the active page, navigating to the home page in web, opening up the computer’s settings, a play/pause button, switching between active windows, and increasing or decreasing volume.
@@ -92,6 +92,13 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
@@ -104,27 +111,20 @@ Lifewire / Emily Isaacs
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Great for the features**
 
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
@@ -138,13 +138,6 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  The Surface is a high-end keyboard, but that quality comes at a higher price. The Surface tends to retail for around $129, much more than the Sculpt which retails for around $80\. That said, it’s an upgrade in almost every way. If you’re on a budget, the Sculpt is a great option, but if you’re able to splurge, the Surface is our top pick for wireless ergonomic keyboards.
@@ -156,6 +149,19 @@ Lifewire / Emily Isaacs
  **A secure, mid-priced wireless keyboard with lots of customization options.**
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
+
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -187,21 +193,24 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-top-15-nba-live-stream-techniques/"><u>[New] Top 15 NBA LIVE STREAM Techniques</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-tailoring-the-perfect-youtube-conclusion-for-engagement/"><u>2024 Approved Tailoring the Perfect YouTube Conclusion for Engagement</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-vivo-y200-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Vivo Y200</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-to-upgrade-the-ps3-hard-drive-to-create-more-space/"><u>How to Upgrade the PS3 Hard Drive to Create More Space</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ideal-55-inch-tv-toshiba-lf711u2-fire-edition-for-prime-members/"><u>Ideal 55-Inch TV: Toshiba LF711U2 Fire Edition for Prime Members</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-conceptualizing-shorter-vids-for-instagram-with-mac/"><u>In 2024, Conceptualizing Shorter Vids for Instagram with Mac</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-oppo-find-n3-flip-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Oppo Find N3 Flip | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-a23-5g-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy A23 5G Bootloader Easily</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-review-and-setup-guide-for-blinks-outdoor-4-wireless-motion-sensor-light-camera/"><u>In Depth Review & Setup Guide for Blink's Outdoor 4 Wireless Motion Sensor Light Camera</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-star-wars-squadrons-the-ultimate-guide-to-epic-galactic-battles/"><u>In-Depth Analysis of Star Wars: Squadrons - The Ultimate Guide to Epic Galactic Battles</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-asus-ac68u-wireless-router-speedy-secure-and-5g-ready/"><u>In-Depth Look at Asus AC68U Wireless Router: Speedy, Secure, & 5G Ready</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/iphone-15-pro-max-vs-samsung-s2e-ultra-showdown-unpacking-their-main-contrasts/"><u>IPhone 15 Pro Max Vs. Samsung S2e Ultra Showdown: Unpacking Their Main Contrasts</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/lost-access-retrieving-your-fb-credentials-without-a-registered-emailphone/"><u>Lost Access: Retrieving Your FB Credentials without a Registered Email/Phone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/make-an-informed-decision-ponder-this-first-when-buying-a-dvr/"><u>Make an Informed Decision: Ponder This First when Buying a DVR</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/maximizing-zoom-top-strategies-for-chromebooks-for-2024/"><u>Maximizing Zoom Top Strategies for Chromebooks for 2024</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/the-ultimate-guide-to-mp3-to-mp4-file-format-transition/"><u>The Ultimate Guide to MP3-to-MP4 File Format Transition</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagrams-hidden-gems-designing-stunning-engaging-puzzle-posts-for-2024/"><u>[New] Instagram's Hidden Gems Designing Stunning, Engaging Puzzle Posts for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-screen-recorder-showdown-features-and-prices-compared/"><u>[Updated] 2024 Approved Screen Recorder Showdown Features and Prices Compared</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-using-laptopsmobile-for-google-meet-join/"><u>[Updated] 2024 Approved Using Laptops/Mobile for Google Meet Join</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-clearing-the-darkness-remedies-for-invisible-gaming-captures-by-obs-for-2024/"><u>[Updated] Clearing the Darkness Remedies for Invisible Gaming Captures by OBS for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/basic-building-blocks-simplest-mc-dwellings-for-novices/"><u>Basic Building Blocks Simplest MC Dwellings for Novices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-conscious-caixun-75-inch-android-tv-4k-reveal-a-comprehensive-guide/"><u>Budget-Conscious Caixun 75 Inch Android TV 4K Reveal: A Comprehensive Guide</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/capture-your-games-in-stunning-detail-on-windows-11-for-2024/"><u>Capture Your Games in Stunning Detail on Windows 11 for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-enhanced-productivity-with-an-ergodyne-topo-anti-fatigue-mat-for-your-office-space/"><u>Experience Enhanced Productivity with an Ergodyne-Topo Anti-Fatigue Mat for Your Office Space</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/exploring-the-functionality-of-symbol-files-tab-in-integrated-development-environments/"><u>Exploring the Functionality of Symbol Files Tab in Integrated Development Environments</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/from-slow-to-speedy-elevate-your-macbook-pro/"><u>From Slow to Speedy: Elevate Your MacBook Pro</u></a></li>
+<li><a href="https://driver-error.techidaily.com/1721102019494-issue-with-slow-gaming-due-to-gpu-lag-heres-how-we-fixed-it/"><u>Issue with Slow Gaming Due to GPU Lag - Here’s How We Fixed It</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/simplify-your-pets-diet-using-the-arf-automatic-pet-nourisher/"><u>Simplify Your Pet's Diet Using the Arf Automatic Pet Nourisher</u></a></li>
+<li><a href="https://win-able.techidaily.com/stop-game-crashes-in-multiversus-now-explore-these-8-powerful-fix-techniques/"><u>Stop Game Crashes in MultiVersus Now! Explore These 8 Powerful Fix Techniques</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-aesthetic-price-of-performance-an-insightful-review-into-the-netgear-powerline-1200/"><u>The Aesthetic Price of Performance: An Insightful Review Into the Netgear Powerline 1200</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-guide-to-procuring-and-utilizing-free-visual-frame-content-for-2024/"><u>The Guide to Procuring and Utilizing Free Visual Frame Content for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-arlo-video-doorbell-enhanced-safety-and-convenience-at-your-doorstep/"><u>The Ultimate Guide to the Arlo Video Doorbell: Enhanced Safety and Convenience at Your Doorstep</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-blueear-wireless-earbuds-hat-chic-comfort-with-adequate-sound-clarity/"><u>The Ultimate Guide to the BlueEar Wireless Earbuds Hat: Chic Comfort with Adequate Sound Clarity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/transforming-value-and-versatility-in-depth-review-of-the-asus-chromebook-flip-c302ca/"><u>Transforming Value & Versatility: In-Depth Review of the Asus Chromebook Flip C302CA</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/virtual-pitch-greatness-a-comprehensive-review-of-fifa-19-as-a-sports-game-giant/"><u>Virtual Pitch Greatness: A Comprehensive Review of FIFA 19 as a Sports Game Giant</u></a></li>
 </ul></div>
 

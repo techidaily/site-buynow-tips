@@ -1,7 +1,7 @@
 ---
 title: Expert Evaluation of the Wallet-Friendly Amazon Basics Heavy-Duty Crosscut Shredder (6 Sheets)
-date: 2024-08-22T18:10:07.237Z
-updated: 2024-08-23T18:10:07.237Z
+date: 2024-10-03T20:57:24.490Z
+updated: 2024-10-06T23:10:22.067Z
 categories:
   - BestProducts
 description: This Article Describes Expert Evaluation of the Wallet-Friendly Amazon Basics Heavy-Duty Crosscut Shredder (6 Sheets)
@@ -40,6 +40,13 @@ Lifewire / Erika Rawes
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -81,8 +88,12 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Performance: Almost two dozen channels (in a rural area)**
@@ -92,14 +103,14 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## **Range: 35 miles**
 
  The AmazonBasics antenna has a 35-mile range, which isn’t very far considering 50 plus miles is becoming more common. It is omnidirectional, however, so you don’t need to point it in a specific direction. It supports UHF/VHF, so I was able to get a decent selection of channels.
@@ -108,10 +119,6 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
@@ -121,8 +128,12 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
  The Antop AT-127 (see[online](https://www.lowes.com/pd/ANTOP-Omni-Directional-Indoor-HD-UHF-VHF-TV-Antenna/1000503257?) ) is a 40-mile range antenna that sells for around $35\. It’s one of the better-looking antennas I’ve seen, as it’s reversible with faux light wood and dark wood sides. Unlike the AmazonBasics antenna, the Antop comes with a stand, and it has an easy-push connector for faster setup. These features go some ways towards justifying the Antop's higher price tag.
@@ -133,9 +144,6 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Ultra-Thin Antenna
@@ -152,14 +160,11 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 * Ports  Coax
 * Cable length  10-foot Coax Cable
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -168,4 +173,21 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-perfecting-your-tiktok-audio-voice-editing-secrets-revealed-for-2024/"><u>[New] Perfecting Your TikTok Audio Voice Editing Secrets Revealed for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-the-timeless-tale-of-roguelike-and-roguelite-for-2024/"><u>[New] The Timeless Tale of Roguelike and Roguelite for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-10-premier-moba-experiences-on-android-devices/"><u>[Updated] In 2024, 10 Premier MOBA Experiences on Android Devices</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-the-art-of-concluding-videos-crafting-impactful-vimeo-ends/"><u>[Updated] In 2024, The Art of Concluding Videos Crafting Impactful Vimeo Ends</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-mycams-evolution-a-new-era-of-home-video-capture/"><u>[Updated] MyCam's Evolution A New Era of Home Video Capture</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Nokia C12 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-s24-ultra-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Samsung Galaxy S24 Ultra Phone with Broken Screen</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mastering-the-installation-process-of-kodi-software-on-windows-nk-11-systems/"><u>Mastering the Installation Process of Kodi Software on Windows Nk 11 Systems</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-authoritative-source-for-new-tech-gear-features-and-comparisons-by-toms-team/"><u>The Authoritative Source for New Tech Gear Features and Comparisons by Tom's Team</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-features-that-make-lg-stylo-a-must-have-phone/"><u>The Ultimate Guide to the Features that Make LG Stylo a Must-Have Phone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-value-proposition-of-the-samsung-galaxy-a71-5g-how-this-mid-range-device-stacks-up-against-flagship-contenders/"><u>The Value Proposition of the Samsung Galaxy A71 5G: How This Mid-Range Device Stacks Up Against Flagship Contenders</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-9-considerations-for-choosing-your-next-dash-cam/"><u>Top 9 Considerations for Choosing Your Next Dash Cam</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-reviews-of-fellowes-microban-wired-keyboards-affordable-quality-at-its-finest/"><u>Top Reviews of Fellowes Microban Wired Keyboards: Affordable Quality at Its Finest</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-the-leading-wireless-mice-of-2024/"><u>Ultimate Guide: The Leading Wireless Mice of 2024</u></a></li>
+</ul></div>
 

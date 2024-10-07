@@ -1,7 +1,7 @@
 ---
 title: Compact & Powerful 360-Degree Camera – Theta SC2 Tested
-date: 2024-08-27T12:06:24.976Z
-updated: 2024-08-28T12:06:24.976Z
+date: 2024-10-03T18:54:47.426Z
+updated: 2024-10-07T02:48:22.779Z
 categories:
   - BestProducts
 description: This Article Describes Compact & Powerful 360-Degree Camera – Theta SC2 Tested
@@ -74,9 +74,6 @@ thumbnail: https://www.lifewire.com/thmb/CMi9CccXZVUVcwSL_bR0hHJY3nE=/540x405/fi
 
  It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Avoid the app**
 
  The setup options for the Netgear Nighthawk AX8 are the same as with Netgear’s other extenders—even those without Wi-Fi 6 support. You’ll begin with the extender plugged in near your router. If your router supports[WPS](https://www.lifewire.com/what-is-wps-4842308) , then you can pair the extender with it easily by following the process listed in the included booklet, which is as simple as pressing a button on the router and then doing the same on the extender.
@@ -90,13 +87,21 @@ thumbnail: https://www.lifewire.com/thmb/CMi9CccXZVUVcwSL_bR0hHJY3nE=/540x405/fi
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Connectivity: Smooth sailing**
 
  Once through the hassle of setup, the Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender really did deliver strong performance. I tested the connection in my office, which reliably sees reduced 5GHz reception from my router due to obstructions in between, and saw a noticeable boost in both reception and speed.
@@ -114,8 +119,18 @@ thumbnail: https://www.lifewire.com/thmb/CMi9CccXZVUVcwSL_bR0hHJY3nE=/540x405/fi
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -124,14 +139,24 @@ thumbnail: https://www.lifewire.com/thmb/CMi9CccXZVUVcwSL_bR0hHJY3nE=/540x405/fi
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: More than most**
 
  The Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender is listed at $250, although it’s being sold for $220 at multiple retailers as of this writing. That’s definitely on the higher end for an extender.
 
  Should you really spend that much on an extender? If you don’t already have a new Wi-Fi 6 router, then probably not. You might see higher peaks of speed as I did, but rather than trying to mix and match old and new tech, you’re probably better off investing in a new Wi-Fi mesh system that can cover the entire house. Netgear’s Orbi is a favorite, as is Google’s similar Nest Wi-Fi system.
+
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Netgear Nighthawk AX8 vs. Netgear Nighthawk X6S (EX8000)**
 
@@ -143,9 +168,6 @@ thumbnail: https://www.lifewire.com/thmb/CMi9CccXZVUVcwSL_bR0hHJY3nE=/540x405/fi
 
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
@@ -163,8 +185,6 @@ thumbnail: https://www.lifewire.com/thmb/CMi9CccXZVUVcwSL_bR0hHJY3nE=/540x405/fi
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -172,4 +192,24 @@ thumbnail: https://www.lifewire.com/thmb/CMi9CccXZVUVcwSL_bR0hHJY3nE=/540x405/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-connectivity-at-its-peak-usb-c-and-the-hp-envy-27-monitor/"><u>[New] Connectivity at Its Peak USB-C & the HP Envy 27 Monitor</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-affordable-audio-capture-software-the-best-of-discords-offers/"><u>[Updated] Affordable Audio Capture Software The Best of Discord's Offers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-best-youtube-title-generators-for-2024/"><u>[Updated] Best YouTube Title Generators for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-connect-instagram-to-facebook/"><u>[Updated] How to Connect Instagram to Facebook</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ultimate-guide-premium-plugins-boosting-ae-projects/"><u>[Updated] Ultimate Guide Premium Plugins Boosting AE Projects</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/chatgpt-plus-reviewed-are-these-5-features-enough-to-justify-the-cost/"><u>ChatGPT Plus Reviewed - Are These 5 Features Enough to Justify the Cost?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/clearstream-2v-hd-antenna-reviewed-high-performance-technology-in-an-unattractive-package-what-you-need-to-know/"><u>ClearStream 2V HD Antenna Reviewed: High-Performance Technology in an Unattractive Package – What You Need to Know</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-game-insight-on-monster-hunter-world-a-guide-to-formidable-creatures/"><u>Comprehensive Game Insight on 'Monster Hunter: World': A Guide to Formidable Creatures</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-kootek-laptop-cooler-evaluation-an-excellent-choice-for-gamers-and-professionals/"><u>Comprehensive Kootek Laptop Cooler Evaluation: An Excellent Choice for Gamers and Professionals</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-reliability-and-velocity-in-motorola-mg7700/"><u>Comprehensive Review: Reliability & Velocity in Motorola MG7700</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/conquer-backyards-with-the-galaxy-ford-f150-an-ultimate-guide-to-this-mighty-rc-truck/"><u>Conquer Backyards with the Galaxy Ford F150 - An Ultimate Guide to This Mighty RC Truck</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/detailed-analysis-of-the-thrilling-overwatch-team-action-shooter-excellence/"><u>Detailed Analysis of the Thrilling Overwatch: Team Action Shooter Excellence</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-how-the-google-pixel-5-blends-economical-pricing-with-top-tier-specifications-our-expert-review/"><u>Discover How the Google Pixel 5 Blends Economical Pricing with Top-Tier Specifications – Our Expert Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonizing-halos-korean-turkish-language/"><u>Harmonizing Halos: Korean-Turkish Language</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-google-pixel-7a-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Google Pixel 7a Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-honor-90-gt-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Honor 90 GT FRP Bypass Instantly</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-apple-iphone-6-plus-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock Apple iPhone 6 Plus</u></a></li>
+</ul></div>
 

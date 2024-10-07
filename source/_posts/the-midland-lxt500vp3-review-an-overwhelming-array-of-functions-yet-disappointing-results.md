@@ -1,7 +1,7 @@
 ---
 title: The Midland LXT500VP3 Review – An Overwhelming Array of Functions Yet Disappointing Results
-date: 2024-09-29T16:50:33.636Z
-updated: 2024-10-01T16:10:00.927Z
+date: 2024-10-04T21:22:49.348Z
+updated: 2024-10-06T22:39:13.477Z
 categories:
   - BestProducts
 description: This Article Describes The Midland LXT500VP3 Review – An Overwhelming Array of Functions Yet Disappointing Results
@@ -38,22 +38,15 @@ Lifewire / Andrew Hayward
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## TopMate C302 Laptop Cooling Pad
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Um5K58ex8qVMnW5PlEtqzPi9c-4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -101,6 +94,13 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
 ## Performance: It makes a difference
@@ -118,16 +118,10 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Xs71AyeThjZwy-vZJ9LfxIhuXJc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_04-eadbaf270b874af9bb8843b95efe8ca7.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
@@ -136,11 +130,25 @@ Lifewire / Andrew Hayward
 
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: It’s very affordable
 
  At $30, this is one of the most affordable laptop cooling pads on the market right now. While results varied across multiple tests and games/apps, the C302 was pretty well in line with some of the pricier options I tested. It feels a little flimsy and doesn’t have any premium features, but the C302 is a very good entry-level option.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -154,25 +162,11 @@ Lifewire / Andrew Hayward
 
  Durability questions aside, the TopMate C302 Laptop Cooling Pad ultimately worked about as well as the other, pricier pads I tested, helping to offset some of the heat generated by a very hot gaming laptop. If you’re concerned about long-term damage or performance degradation from an overheating laptop, the C302 is a cost-efficient way to help keep your notebook from reaching extreme heat peaks.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 * [North Face Pivoter Backpack](https://www.lifewire.com/north-face-pivoter-backpack-review-4690198)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -202,20 +196,20 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-experts-guide-to-selecting-nearest-realistic-3ds-simulators/"><u>[New] 2024 Approved Expert's Guide to Selecting Nearest Realistic 3DS Simulators</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-converting-srt-into-sub-quick-effective-ways/"><u>[Updated] 2024 Approved Converting SRT Into SUB Quick, Effective Ways</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-step-by-step-editing-and-enhancing-your-youtube-content/"><u>[Updated] 2024 Approved Step-by-Step Editing and Enhancing Your YouTube Content</u></a></li>
-<li><a href="https://discover-help.techidaily.com/1726029291332-h264avi/"><u>「H264ビデオファイルをAVI形式へ変換：品質を失わない方法」</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/2024s-top-picks-for-efficient-and-durable-rechargeable-battery-chargers/"><u>2024'S Top Picks for Efficient and Durable Rechargeable Battery Chargers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-netgear-nighthawk-rax80-unleashing-the-power-of-wi-fi-6/"><u>Comprehensive Review of Netgear Nighthawk RAX80: Unleashing the Power of Wi-Fi 6</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/from-clips-to-masterpieces-top-highlight-video-makers-revealed-for-2024/"><u>From Clips to Masterpieces Top Highlight Video Makers Revealed for 2024</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/guia-para-la-conversion-de-archivos-raw-en-imagenes-jpeg/"><u>Guía Para La Conversión De Archivos RAW en Imágenes JPEG</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-alcatel-joy-tab-2-assessment-the-affordable-lte-tablet-option/"><u>In-Depth Alcatel Joy Tab 2 Assessment: The Affordable LTE Tablet Option</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-review-unveiling-the-capabilities-and-limitations-of-google-phone-service/"><u>In-Depth Review: Unveiling the Capabilities and Limitations of Google Phone Service</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-review-why-the-flexispot-theodore-is-setting-new-standards-for-chic-office-workstations/"><u>In-Depth Review: Why the Flexispot Theodore Is Setting New Standards for Chic Office Workstations</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/m4vmp4movwmv/"><u>M4VをMP4/MOV/WMVに転送する究極ガイド - スムーズなファイル変換</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/showdown-of-giants-how-s23-ultra-stacks-up-against-s21-ultra/"><u>Showdown of Giants: How S23 Ultra Stacks Up Against S21 Ultra</u></a></li>
-<li><a href="https://howto.techidaily.com/solved-warning-camera-failed-on-sony-xperia-1-v-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Sony Xperia 1 V | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-philips-hf3520-timepiece-top-rated-for-affordability-and-functionality/"><u>Unveiling the Philips HF3520 Timepiece: Top Rated for Affordability and Functionality</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-cutting-edge-live-broadcast-solutions/"><u>[New] In 2024, Cutting-Edge Live Broadcast Solutions</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unlock-social-media-8-free-fb-extractors/"><u>[Updated] 2024 Approved Unlock Social Media 8 FREE FB Extractors</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-compre-written-explanation-easy-hdr-understanding/"><u>[Updated] Compre Written Explanation Easy HDR Understanding</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/access-updated-hp-designjet-500-driver-software-here-beginner-friendly/"><u>Access Updated HP DesignJet 500 Driver Software Here – Beginner Friendly</u></a></li>
+<li><a href="https://win-blog.techidaily.com/effective-solutions-when-your-astro-a50-isnt-detected-by-the-control-hub/"><u>Effective Solutions When Your Astro A50 Isn't Detected By the Control Hub</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-on-apple-iphone-8-plus-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code On Apple iPhone 8 Plus</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-icloud-lock-from-your-apple-iphone-11-pro-max-and-ipad-by-drfone-ios/"><u>In 2024, How to fix iCloud lock from your Apple iPhone 11 Pro Max and iPad</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/stay-cool-under-pressure-with-the-havit-5-adjustable-fan-laptop-cooler-reviewed-here/"><u>Stay Cool Under Pressure with The HAVIT 5 Adjustable Fan Laptop Cooler Reviewed Here!</u></a></li>
+<li><a href="https://os-tips.techidaily.com/struggling-with-muted-iphone-learn-effective-solutions-to-revive-its-volume/"><u>Struggling with Muted Iphone? Learn Effective Solutions to Revive Its Volume</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-a-list-elite-selection-of-smart-glasses/"><u>The A-List: Elite Selection of Smart Glasses</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-acer-aspire-c27-expertly-balanced-and-intriguingly-low-profile-for-ultimate-efficiency/"><u>The Acer Aspire C27: Expertly Balanced and Intriguingly Low Profile for Ultimate Efficiency</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-new-era-of-smart-displays-echo-4gen-analyzed-and-appraised/"><u>The New Era of Smart Displays: Echo (4Gen) Analyzed and Appraised</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-perfect-blend-of-price-and-performance-in-a-hisense-50-4k-hdr-tv/"><u>The Perfect Blend of Price and Performance in a Hisense 50 4K HDR TV</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-blueear-bluetooth-beanie-aesthetic-comfortable-and-audio-aware-accessory/"><u>The Ultimate Guide to the Blueear Bluetooth Beanie: Aesthetic, Comfortable & Audio-Aware Accessory</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-car-audio-experts-rate-the-aphaca-bt69-is-it-the-leading-wireless-bluetooth-fm-radio-for-your-dashboard/"><u>Top Car Audio Experts Rate the Aphaca BT69: Is It the Leading Wireless Bluetooth FM Radio for Your Dashboard?</u></a></li>
 </ul></div>
 

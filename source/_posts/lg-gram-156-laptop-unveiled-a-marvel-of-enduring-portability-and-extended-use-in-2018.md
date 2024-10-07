@@ -1,7 +1,7 @@
 ---
 title: "LG Gram 15.6” Laptop Unveiled: A Marvel of Enduring Portability and Extended Use in 2018"
-date: 2024-08-27T12:12:07.915Z
-updated: 2024-08-28T12:12:07.915Z
+date: 2024-09-29T18:17:11.396Z
+updated: 2024-10-07T00:09:20.869Z
 categories:
   - BestProducts
 description: "This Article Describes LG Gram 15.6” Laptop Unveiled: A Marvel of Enduring Portability and Extended Use in 2018"
@@ -36,6 +36,13 @@ Lifewire / Danny Chadwick
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Z-Edge Z3 Plus Dashcam
 
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/sE7fZzxcPjZXohzroVqLVr5l4qs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
@@ -66,8 +73,18 @@ Lifewire / Danny Chadwick
  Lifewire / Danny Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design: Small but solid**
 
  If you didn’t know this device was a dashcam, you could be forgiven for mistaking it for a point-and-shoot camera. It has a three-inch screen, and while that is small by the standards of today’s mobile devices, it’s a great size for your windshield. All the indicator lights and icons fit nicely on the screen and you only need to glance at it briefly while you drive to see that it’s recording.
@@ -94,9 +111,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process: Super straightforward**
 
  If you’re even passingly familiar with digital cameras, you can have the Z3 Plus set up and ready to go within a few minutes of taking it out of the box. And while you should read the user manual before turning it on, you probably won’t run into any major difficulties if you don’t. The most time-consuming part of the setup is running the power cable up and around your windshield so it’s not dangling down to the power supply while you drive. This requires you to tuck the cord under your car’s upholstery and panels, which takes about 20 minutes to complete.
@@ -107,10 +121,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ## **Camera Quality: Beyond high definition**
 
  The Z3 Plus has outstanding recording abilities for a camera this size and can capture footage up to 2560 x 1440 resolution. However, this will fill up your camera quite fast, so you can set it as low as 720p if you don’t need super high-resolution footage. You can also adjust the frame rate to 30 and 60 frames per second (for resolutions exceeding 1920 x 1080, only 30 fps is available).
@@ -123,9 +133,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Performance: Never failed**
 
  We tested the Z-Edge Z3 Plus on a six-hour road trip, and throughout the drive, the Z3 Plus nor the suction cup failed. So long as it was plugged into power, it functioned flawlessly.
@@ -135,15 +142,16 @@ Lifewire / Danny Chadwick
  We did experience one strange glitch at the end of our testing—a couple of minutes after we had boxed up the Z3 Plus and put it away, we noticed loud, rapid beeping coming from the box. We took the Z3 Plus back out and it was frozen on the power-up screen. We couldn’t get it to turn off (or stop beeping) until the battery died a few minutes later. The camera appeared to work fine after that and we weren’t able to replicate the problem, but it was something of an alarming glitch from such a new device.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Fair price for a fair product**
 
  As of the time of this writing, you can pick up this dashcam from Z-Edge for between $120 and $140, which seems like a good value to us. Given its features, tools, and image quality, it’s a fair price for a useful and reliable device.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ## **Competition: Z-Edge Z3 Plus vs. Apeman C450 Dash Camera**
 
  We tested the Z3 Plus alongside the Apeman C450 Series A dashcam. The two are comparable in size and function, but the Apeman is a more budget-friendly model that costs around $50\. We definitely noticed a difference when it comes to the construction quality, image resolution, clarity of the user manual, and overall experience—the Z3 Plus was superior in almost every way.
@@ -159,6 +167,13 @@ Lifewire / Danny Chadwick
  **A durable, reliable dashboard camera that captures high-quality footage.**
 
  The Z-Edge Z3 Plus is easy to set up, intuitive to use, captures clear video footage for a reasonable price. We would like to have seen a second mounting option to the suction cup and a longer-lasting battery, but those are minor quibbles in light of this device’s reliable performance.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -183,8 +198,6 @@ Lifewire / Danny Chadwick
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -192,4 +205,21 @@ Lifewire / Danny Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-simplified-guide-youtube-and-facebook-integration/"><u>[New] 2024 Approved Simplified Guide YouTube and Facebook Integration</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-home-cinema-mastery-top-10-hd-players-list/"><u>[New] Home Cinema Mastery Top 10 HD Players' List</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-detecting-unregistered-friends-list/"><u>[Updated] 2024 Approved Detecting Unregistered Friends List</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-exclusive-list-of-affordable-video-conferencing-apps-a-business-and-education-edition/"><u>[Updated] In 2024, Exclusive List of Affordable Video Conferencing Apps A Business & Education Edition</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-art-of-surrendering-to-the-spectacle-posting-immersive-videos-on-facebook/"><u>[Updated] In 2024, The Art of Surrendering to the Spectacle Posting Immersive Videos on Facebook</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-masterclass-in-image-moods-zenithcams-spectacle/"><u>[Updated] Masterclass in Image Moods ZenithCams Spectacle</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-nokia-xr21-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Nokia XR21 by Name | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experts-weigh-in-on-the-samsung-galaxy-tab-s-5e-a-versatile-feature-packed-tablet-review/"><u>Experts Weigh In on the Samsung Galaxy Tab S 5E – A Versatile, Feature-Packed Tablet Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-blocky-universe-an-inclusive-insight-into-minecraft/"><u>Exploring the Blocky Universe: An Inclusive Insight Into Minecraft</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/google-tv-and-chromecast-combined-heres-our-in-depth-review-a-new-era-for-streaming-begins/"><u>Google TV and Chromecast Combined? Here's Our In-Depth Review - A New Era for Streaming Begins</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-to-pick-your-ideal-tablet-a-focus-on-form-factor-size-and-ease-of-carry/"><u>How to Pick Your Ideal Tablet: A Focus on Form Factor, Size, and Ease of Carry</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/hp-spectre-x360-review-powerful-performance-on-a-big-screen-without-compromises/"><u>HP Spectre X360 Review - Powerful Performance on a Big Screen Without Compromises</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-infinix-note-30-pro-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Infinix Note 30 Pro For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/unlocking-every-game-on-epics-digital-shelves/"><u>Unlocking Every Game on Epic’s Digital Shelves</u></a></li>
+</ul></div>
 

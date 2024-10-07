@@ -1,7 +1,7 @@
 ---
 title: "Reviewing the LG K51: Attractive Appearance vs Underwhelming Processor Capabilities"
-date: 2024-08-27T12:06:26.230Z
-updated: 2024-08-28T12:06:26.230Z
+date: 2024-09-30T00:23:33.564Z
+updated: 2024-10-07T04:09:52.264Z
 categories:
   - BestProducts
 description: "This Article Describes Reviewing the LG K51: Attractive Appearance vs Underwhelming Processor Capabilities"
@@ -71,9 +71,6 @@ Lifewire / Yoona Wagener
 
 Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## Design: An accessory that blends in
 
  The Halo band doesn’t overwhelm the senses. I tested a small-sized band in silver and appreciated the streamlined bracelet style form factor. The fabric strap, which is a mix of sweat-wicking synthetics, has an athleisure look and feel: sporty but not to the degree that it screams sport watch. Rounding out the minimalist look is one sole button on the side of the sensor unit, which is flanked by an[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) indicator and one of two internal microphones. The other mic is located on the back, along with the optical sensor; it's largely undetectable if you manage a close fit.
@@ -85,8 +82,18 @@ Lifewire / Yoona Wagener
 Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Comfort: Streamlined but not immune to typical fit issues
 
  While the easy-adjusting Velcro strap is a welcome departure from the typical notch-and-clasp closure on most fitness trackers, adjusting the fit or removing the device wasn’t as smooth as I’d expected it to be. The end of the strap is finished with hardware that prevents the strap from coming completely undone from the loop. The band also includes a series of five strong Velcro strips/notches that serve as sizing adjusters. This construction helps prevent accidental drops when taking the band on/off, which is never a bad thing. On the other hand, though, the Velcro strips are so sturdy that they restricted quick adjustments and made removing the band less swift overall.
@@ -104,6 +111,13 @@ Lifewire / Yoona Wagener
  Instead, the Halo presents all activity data through a convenient point-tracking system. The weekly goal is 150, which converts to 150 minutes of cardiovascular activity, as recommended by the American Heart Association. Periods of movement and exercise count toward this point goal, while periods of non-movement subtract from points earned. It’s a digestible system that offers a new twist on the steps or movement alert functions you’ll find in fitness trackers and[smartwatches](https://www.lifewire.com/an-introduction-to-smart-watches-3441381) from Samsung, Garmin, Fitbit, and others. This system was an encouraging reset from those reminders that sometimes feel more annoying than motivating.
 
 ![Amazon Halo](https://www.lifewire.com/thmb/FjdFyV6Y4mTXNsqccZ4aEBJNpV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_05-e671ee9f77cc4cee8e2580a2dba449d5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener.
 
@@ -125,9 +139,6 @@ Lifewire / Yoona Wagener
 
  The app makes everything from the initial setup to body scanning and voice tracking straightforward.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ## Battery: Enough juice to last nearly a week
 
  Amazon says that with tone tracking enabled, the band should last up to seven days on a single charge. There are two options for tracking tone: one for more accuracy and one to optimize battery life. I chose the latter and found that the band lasted for six days, which comes close to the manufacturer’s claims. I also noticed that by manually muting the mic, the battery drained far less quickly than when I left it on to listen at all times.
@@ -136,11 +147,22 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/fBsShcBruhAWkg-kTKPWkYUaImo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_04-ee532fbe8d2f4e8195e63ed9dd45611a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Price: A reasonable price for the feature set
 
  Retailing for just about $100, the Amazon Halo band certainly won’t break the bank for budget-minded shoppers. While the lack of display could be a deterrent, the solid mobile app provides convenient access to the detailed sleep, automatic activity tracking, and specialized tone of voice and body fat analysis the Halo provides.
@@ -157,9 +179,6 @@ Lifewire / Yoona Wagener
 
  The Amazon Halo isn’t for everyone with its lack of display and additional layers of data tracking to capture tone of voice and body fat percentage. But for the user that wants a little less hardware but more forward-thinking fitness/health tracking, this unique wearable offers a different approach to increasing activity and wellness awareness on a daily basis.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Apple Watch Series 5](https://www.lifewire.com/apple-watch-series-6-review-5087552)
@@ -167,8 +186,12 @@ Lifewire / Yoona Wagener
 * [Ticwatch Pro](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Halo
@@ -191,8 +214,6 @@ Lifewire / Yoona Wagener
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -200,4 +221,24 @@ Lifewire / Yoona Wagener
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-maximize-impact-with-customized-youtube-end-screen-templates/"><u>[Updated] 2024 Approved Maximize Impact with Customized YouTube End Screen Templates</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-comprehensive-examination-assessing-gecatas-game-logger/"><u>[Updated] Comprehensive Examination Assessing Gecata's Game Logger</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-is-broadcasting-facebook-videos-a-reality-yet/"><u>[Updated] In 2024, Is Broadcasting Facebook Videos a Reality Yet?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-prime-time-action-film-transcription/"><u>[Updated] Prime Time Action Film Transcription</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/advanced-audio-to-text-software-rankings/"><u>Advanced Audio to Text Software Rankings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-precision-timekeeping-with-the-philips-hf3520-an-insightful-review/"><u>Affordable Precision Timekeeping with the Philips HF3520 - An Insightful Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-vuebell-smart-video-doorbell-top-reviews-and-features/"><u>Affordable VueBell Smart Video Doorbell - Top Reviews & Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-tv-4k-2021-unveiled-revolutionize-your-streaming-experience-with-siri-voice-commands/"><u>Apple TV 4K 2021 Unveiled: Revolutionize Your Streaming Experience with Siri Voice Commands!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/audiophiles-dream-dive-into-the-crystal-clear-soundscape-of-midlands-gxt1000vp4-review/"><u>Audiophile's Dream: Dive Into the Crystal-Clear Soundscape of Midland's GXT1000Vp4 Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/caixuns-budget-friendly-large-screen-android-tv-75-inch-4k-review-and-verdict/"><u>Caixun's Budget-Friendly Large Screen Android TV (75 Inch, 4K) Review and Verdict</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Nokia XR21? | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/spotting-sham-talkers-openais-solution-for-chatgpt-fakes/"><u>Spotting Sham Talkers: OpenAI's Solution for ChatGPT Fakes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-video-game-systems-in-2/"><u>Top Rated Video Game Systems in 2#!</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-tips-for-resolving-wallpaper-engine-stability-issues-in-windows-11-and-10/"><u>Troubleshooting Tips for Resolving Wallpaper Engine Stability Issues in Windows 11 and 10</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-chatgpt-enterprise-unique-offerings-and-differences-explained/"><u>Understanding ChatGPT Enterprise: Unique Offerings and Differences Explained</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unlocking-secure-communications-your-ultimate-guide-to-adding-senders-to-gmails-whitelist/"><u>Unlocking Secure Communications: Your Ultimate Guide to Adding Senders to Gmail's Whitelist</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/user-experience-insights-on-imo-instant-chat-platform/"><u>User Experience Insights on Imo Instant Chat Platform</u></a></li>
+</ul></div>
 

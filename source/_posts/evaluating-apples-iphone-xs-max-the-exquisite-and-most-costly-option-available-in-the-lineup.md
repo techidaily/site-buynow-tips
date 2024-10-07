@@ -1,7 +1,7 @@
 ---
 title: Evaluating Apple's iPhone XS Max - The Exquisite and Most Costly Option Available in the Lineup
-date: 2024-09-24T16:11:51.329Z
-updated: 2024-09-26T16:54:41.634Z
+date: 2024-09-29T20:30:21.448Z
+updated: 2024-10-06T18:27:56.495Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating Apple's iPhone XS Max - The Exquisite and Most Costly Option Available in the Lineup
@@ -39,6 +39,13 @@ thumbnail: https://www.lifewire.com/thmb/oKIA4TfwiMHcCcIxT0lRhSZxNCI=/400x300/fi
 
 3.6
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/EEEMCdq2FsBPMcT8nPUgndDIw4A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
@@ -65,13 +72,6 @@ thumbnail: https://www.lifewire.com/thmb/oKIA4TfwiMHcCcIxT0lRhSZxNCI=/400x300/fi
 
  Though Sony panels are sometimes on the expensive end of the spectrum, there are some older Sony 4K TVs that can be had for a nice little discount. One such TV is Sony’s XBR65X850F from their X850F series. This specific model has now been replaced by the X850G, but that doesn’t mean you necessarily need to go with the most current model. In fact, snagging one of these earlier generation sets can save you some cash without forcing you to compromise too much.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Standard Sony**
 
  The XBR65X850F's design is a combination of sleek and workmanlike. The stand on this Sony is pretty common for TVs these days, with two V-shaped feet that stick out to either side. While they look aluminum, these are actually plastic too, with merely an aluminum finish. They are decently steady, but we noticed a bit of wobble if you move the TV around. It should be plenty sturdy for most, though you will need a fairly wide stand for them to rest on since they stick out so far. There’s also no room for adjusting the unit up or down, but they’re tall enough to fit a soundbar underneath if you want. They also flip open on the top if you want to use them for some clever cable management.
@@ -92,13 +92,6 @@ thumbnail: https://www.lifewire.com/thmb/oKIA4TfwiMHcCcIxT0lRhSZxNCI=/400x300/fi
 
  On the front of the screen, the bezels are a little thicker than some of the 4K TVs we’ve reviewed, but they’re pretty thin and shouldn’t distract. There’s your standard anti-glare coating found on the screen here too.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Stick to the on-screen instructions**
 
  Setting up pretty much any modern-day smart TV is an easy process, so just stick to the on-screen instructions and you’ll be golden. Go ahead and unpack it all, tear off that plastic film, plug in the power cable, and turn on the device.
@@ -111,6 +104,13 @@ thumbnail: https://www.lifewire.com/thmb/oKIA4TfwiMHcCcIxT0lRhSZxNCI=/400x300/fi
 
  With the initial process done, you will likely need to run a quick update check. This should automatically pop up, but check under the settings tab if it doesn’t. An update to the firmware should improve things considerably, especially if you need to upgrade to the latest version of Android TV. Updating takes a bit of time to do, so maybe go watch some TV while…oh right. Well, whatever you do during this process, just remember not to unplug the power while it’s running through updates.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Image Quality: Impressive 4K for IPS with some shortcomings**
 
  This section is perhaps the most important for a TV, and while the XBR65X850F performs pretty well in some aspects here, it also has a few weak points.
@@ -118,13 +118,6 @@ thumbnail: https://www.lifewire.com/thmb/oKIA4TfwiMHcCcIxT0lRhSZxNCI=/400x300/fi
  Starting off with some of this unit’s strengths, this particular series uses an IPS panel for the screen, which means you’re going to get vibrant colors, a nice backlight for viewing in bright rooms, and excellent viewing angles. This all adds up to a superb experience if you’ve got a big living room that’s brightly lit by windows, where viewers might not be able to sit completely centered.
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/r5reh9LkA7QvieX1JzBg5J8qNjY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-5-00a73edbf91c48c6aa2718ab211f2e5d.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -147,6 +140,19 @@ thumbnail: https://www.lifewire.com/thmb/oKIA4TfwiMHcCcIxT0lRhSZxNCI=/400x300/fi
  Built-in speakers are never going to be great, but they’re nice to have if you’re lacking an[external sound system](https://www.lifewire.com/connect-tv-to-external-audio-system-1846816) like a soundbar. While we’d recommend getting an external setup for the best experience, let’s take a quick look at what the XBR65X850F has to offer with the included setup.
 
  Right off the bat, this TV can get quite loud and you shouldn’t run into any volume issues. That being said, the overall experience is mediocre at best. The louder you turn it up, the more distortion is added. These speakers should suffice in quiet environments if you’re primarily looking for nice clear dialogue with treble and mid, but the bass is not so good.
+
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: A bit sluggish but good enough**
 
@@ -171,10 +177,16 @@ thumbnail: https://www.lifewire.com/thmb/oKIA4TfwiMHcCcIxT0lRhSZxNCI=/400x300/fi
  But how do these prices stack up against comparable TVs from competitors like LG or Samsung? Taking a quick look around online, you can easily save a few hundred dollars by going with a comparable LG TV, while Samsung was pretty closely matched with Sony. In the end, the price for the X850F series isn’t the best bang for your buck, but it ain’t bad either.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Sony XBR65X850F vs. Samsung UN65RU8000**
@@ -196,10 +208,10 @@ thumbnail: https://www.lifewire.com/thmb/oKIA4TfwiMHcCcIxT0lRhSZxNCI=/400x300/fi
  The X850F series is far from perfect, but the Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV and its family are more than capable of providing a pleasurable viewing experience for most people. Despite this, there are probably better options out there that can be had for even less.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -231,20 +243,15 @@ thumbnail: https://www.lifewire.com/thmb/oKIA4TfwiMHcCcIxT0lRhSZxNCI=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-top-8-cost-effective-multi-platform-virtual-communication-software/"><u>2024 Approved Top 8 Cost-Effective, Multi-Platform Virtual Communication Software</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/dvd-windows-10dvdavi-mp4-h264/"><u>轻松转换DVD文件 - Windows 10专属自由套装：从原始DVD到高效率的AVI MP4 H264，适用于所有移动设备</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-closer-look-at-the-sonic-mastery-of-sony-wh-1000xm4/"><u>A Closer Look at the Sonic Mastery of Sony WH-1000XM4</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/acer-aspire-e-n-analysis-exceptional-performance-at-wallet-friendly-prices/"><u>Acer Aspire E N Analysis - Exceptional Performance at Wallet-Friendly Prices</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apple-mac-mini-m1-2020-review-surpassing-competitors-in-the-arm-powered-pc-arena/"><u>Apple Mac Mini (M1, 2020) Review: Surpassing Competitors in the ARM-Powered PC Arena</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/asus-vivobook-11-reviewed-an-ideal-blend-of-miniature-design-and-cost-efficiency-for-everyday-use/"><u>ASUS VivoBook 11 Reviewed: An Ideal Blend of Miniature Design and Cost-Efficiency for Everyday Use</u></a></li>
-<li><a href="https://win-dash.techidaily.com/behringer-driver-collection-free-downloads-available-today/"><u>Behringer Driver Collection - Free Downloads Available Today!</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/elevate-valorant-gameplay-try-the-premium-no-cost-voice-modifier-now/"><u>Elevate Valorant Gameplay - Try the Premium, No-Cost Voice Modifier Now</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/liberate-yourself-with-free-movie-player-software/"><u>Liberate Yourself with FREE MOVIE PLAYER Software</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/maximizing-efficiency-discover-the-leading-speech-to-text-apps-for-macos/"><u>Maximizing Efficiency Discover the Leading Speech-to-Text Apps for MacOS</u></a></li>
-<li><a href="https://games-able.techidaily.com/no-more-ea-rising-prices-ended-my-subscription/"><u>No More EA: Rising Prices Ended My Subscription</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/top-rated-pc-gamepad-controllers-a-comprehensive-guide/"><u>Top-Rated PC Gamepad Controllers : A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-features-and-performance-of-the-hisense-40h5590f-tv-a-value-for-money-review/"><u>Unveiling the Features and Performance of the Hisense 40H5590F TV: A Value for Money Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-game-changing-power-of-the-apple-macbook-pro-with-m1-chip-2020-edition/"><u>Unveiling the Game-Changing Power of the Apple MacBook Pro with M1 Chip, 2020 Edition</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/what-should-be-your-priority-while-picking-out-a-non-carrier-locked-smartphone/"><u>What Should Be Your Priority While Picking Out a Non-Carrier Locked Smartphone?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-best-practices-for-streamlining-webinars-on-windowsapple-os/"><u>2024 Approved Best Practices for Streamlining Webinars on Windows/Apple OS</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/achieve-stunning-visuals-premium-4k-projectors-under-2k-dollars-s-market-sweepstakes/"><u>Achieve Stunning Visuals: Premium 4K Projectors Under 2K Dollars 'S Market Sweepstakes</u></a></li>
+<li><a href="https://article-helps.techidaily.com/free-top-10-subtitles-tools-srt-file-transformers/"><u>Free Top 10 Subtitles Tools SRT File Transformers</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Motorola Moto G14 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maisto-rc-rock-crawler-review/"><u>Maisto RC Rock Crawler Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/pioneering-peace-in-personal-audio-24/"><u>Pioneering Peace in Personal Audio '24</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/stand-tall-at-work-in-depth-cumuluspro-mat-review-for-active-sitters/"><u>Stand Tall at Work: In-Depth CumulusPRO Mat Review for Active Sitters</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/top-tier-techniques-instagrams-clandestine-tools-for-growth/"><u>Top-Tier Techniques Instagram's Clandestine Tools for Growth</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unpacking-the-features-and-performance-of-the-new-generation-kindle-paperwhite-by-amazon/"><u>Unpacking the Features and Performance of the New Generation Kindle Paperwhite by Amazon</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/xml-demystified-a-step-by-step-guide-for-fcpx-editors-for-2024/"><u>XML Demystified A Step-by-Step Guide for FCPX Editors for 2024</u></a></li>
 </ul></div>
 

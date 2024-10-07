@@ -1,7 +1,7 @@
 ---
 title: Get Free, Crisp TV Channels with AmazonBasics' Flat Antenna – The Savvy Shopper’s Guide
-date: 2024-09-28T17:27:28.593Z
-updated: 2024-10-01T19:24:43.073Z
+date: 2024-10-05T03:33:37.993Z
+updated: 2024-10-07T03:59:51.938Z
 categories:
   - BestProducts
 description: This Article Describes Get Free, Crisp TV Channels with AmazonBasics' Flat Antenna – The Savvy Shopper’s Guide
@@ -37,13 +37,6 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
@@ -69,6 +62,13 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -87,7 +87,21 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels (in a rural area)**
 
@@ -95,21 +109,7 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Range: 35 miles**
 
@@ -118,6 +118,13 @@ Lifewire / Erika Rawes
  Even with the short-range, I was able to pick up 16 channels on my first attempt, including The CW, PBS, and more. In a different room in my test home, I was able to get 23 channels, but this is probably because there’s less tree cover outside of the house on that side of the property. Considering the location of my test home, 23 channels is pretty good.
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Super affordable**
 
@@ -136,13 +143,6 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -175,22 +175,18 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-screensavers-supreme-mastering-the-art-of-twitvid-archiving-for-2024/"><u>[New] ScreenSavers Supreme Mastering the Art of TwitVid Archiving for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-become-audio-prodigy-installing-vrecorder-made-ahead/"><u>[Updated] 2024 Approved Become Audio-Prodigy - Installing VRecorder Made Ahead</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-chat-to-tune-downloader-for-fb/"><u>[Updated] In 2024, Chat to Tune Downloader for FB</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-the-true-income-potential-in-podcasting/"><u>2024 Approved Unveiling the True Income Potential in Podcasting</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-infinix-zero-5g-2023-turbo-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Infinix Zero 5G 2023 Turbo to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-data-from-apple-iphone-12-pro-max-to-new-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How To Transfer Data from Apple iPhone 12 Pro Max to New iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-skyrocket-your-content-tips-for-trending-videos/"><u>In 2024, Skyrocket Your Content Tips for Trending Videos</u></a></li>
-<li><a href="https://games-able.techidaily.com/lessons-from-my-titan-gpu-overinvestment/"><u>Lessons From My Titan GPU Overinvestment</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-camera-straps-for-photographers-in-2e24/"><u>Top-Rated Camera Straps for Photographers in 2E24</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/transitioning-kodi-now-easily-installs-on-linux-with-flatpak-support/"><u>Transitioning Kodi: Now Easily Installs on Linux with Flatpak Support</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/understanding-nerfing-in-gaming-insights-into-player-concerns/"><u>Understanding Nerfing in Gaming: Insights Into Player Concerns</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unexpected-benefits-of-mastering-soldering-techniques/"><u>Unexpected Benefits of Mastering Soldering Techniques</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlocking-multiplayer-gaming-with-steam-understanding-and-using-the-family-sharing-option/"><u>Unlocking Multiplayer Gaming with Steam - Understanding and Using the Family Sharing Option</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-changes-netflixs-shift-away-from-the-standard-subscription-option/"><u>Unveiling Changes: Netflix's Shift Away From the Standard Subscription Option</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-top-6-desired-aspects-of-traditional-loading-screen-experiences-in-modern-gaming/"><u>Unveiling the Top 6 Desired Aspects of Traditional Loading Screen Experiences in Modern Gaming</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/why-investing-in-an-office-chair-outweighs-the-appeal-of-gaming-seats-a-value-comparison/"><u>Why Investing in an Office Chair Outweighs the Appeal of Gaming Seats: A Value Comparison</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/1725289452927-winx-hd-video-converter-deluxe/"><u>WinX HD Video Converter Deluxe - 有料なし、機能限定もなし! 完全無料版ライセンスコード入手方法</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-cultivate-your-circle-grow-your-instagram-flock-to-1k-every-month/"><u>[New] 2024 Approved Cultivate Your Circle Grow Your Instagram Flock to 1K Every Month</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-animators-dream-tools-premium-choices-for-3d-mastery/"><u>[New] The Animator’s Dream Tools Premium Choices for 3D Mastery</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-elevate-meeting-experience-with-zooms-camera-snaps/"><u>[Updated] 2024 Approved Elevate Meeting Experience with Zoom's Camera Snaps</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-best-practices-for-amassing-itunes-video-archives/"><u>[Updated] Best Practices for Amassing iTunes Video Archives</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Infinix Smart 7 HD? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-itel-a70-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Itel A70? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-overcome-the-persistent-windows-update-issue-error-code-0x802n401c-on-win11-systems/"><u>How to Overcome the Persistent Windows Update Issue (Error Code 0X802n401c) on Win11 Systems</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/solving-stubborn-exe-files-opening-woes/"><u>Solving Stubborn EXE Files' Opening Woes</u></a></li>
+<li><a href="https://win11.techidaily.com/unlock-your-full-potential-with-network-traffic-insight-via-win11s-netstat/"><u>Unlock Your Full Potential with Network Traffic Insight via Win11's Netstat</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-issues-in-googles-pixel-slate-a-deep-dive-into-chromeos-flaws/"><u>Unveiling Issues in Google's Pixel Slate - A Deep Dive Into ChromeOS Flaws</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-potential-of-the-asus-ac88u-for-competitive-gaming-scenarios/"><u>Unveiling the Potential of the Asus AC88U for Competitive Gaming Scenarios</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-secrets-of-the-apple-iphone-15-pro-in-depth-hands-on-testing-and-review/"><u>Unveiling the Secrets of the Apple iPhone 15 Pro: In-Depth Hands-On Testing and Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/webex-video-conferencing-feature-breakdown-pros-vs-cons-for-remote-collaboration/"><u>Webex Video Conferencing Feature Breakdown: Pros vs Cons for Remote Collaboration</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Netgear Orbi RBS50Y Assessment for Enhanced Backyard Connectivity
-date: 2024-08-27T12:11:50.963Z
-updated: 2024-08-28T12:11:50.963Z
+date: 2024-09-30T22:30:00.746Z
+updated: 2024-10-06T19:46:53.021Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Netgear Orbi RBS50Y Assessment for Enhanced Backyard Connectivity
@@ -73,8 +73,12 @@ Lifewire / Jeremy Laukkonen
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design: Understated and easy to fit in with most decors**
 
  The Eero Pro is a mesh system that allows you to use a couple of modular components to build out a wireless network that works with your living space or office. The main component is the Eero Pro router itself, which is a sleek little unit that’s significantly smaller than most routers. It’s also a lot simpler, with just one indicator light, no external ports or antennas, and only two Ethernet ports.
@@ -87,18 +91,6 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Possibly the easiest Wi-Fi mesh system you’ll ever use**
 
  If you’ve hesitated to set up your own wireless network, or shied away from mesh networks, because it seems too complicated, you’ll be pleasantly surprised by the Eero Pro. The entire setup process is accomplished with the help of a[smartphone app](https://www.lifewire.com/what-are-apps-1616114) that walks you through every step, and the overall experience is one of the easiest we’ve ever seen.
@@ -108,6 +100,13 @@ Lifewire / Jeremy Laukkonen
  When you place each Eero beacon, the app automatically tests to see if the placement will work. We received the go ahead on our first try in each case, but it’s nice that the app has the ability to let you know if you might have placement issues.
 
  The one issue with Eero that may bother some people is that you have to sign up for an account during the setup process. This includes providing Eero with your phone number so that they can send you a confirmation code. It was a quick and easy process, but it was a bit of an annoyance all the same.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity: Tri-band base stations and dual-band beacons**
 
@@ -124,6 +123,13 @@ Lifewire / Jeremy Laukkonen
  The biggest shortfall of the Eero Pro, in terms of connectivity, is that it only has two Ethernet ports. One connects the router to your modem, and the other can be connected to a device like a computer to provide a wired internet connection. If you want to connect other devices via Ethernet, you’ll need a[network switch](https://www.lifewire.com/definition-of-network-switch-817588) .
 
 ![Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/thmb/L8g27SmIGtD8G-19FjJtPqPeQIQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4140134_EeroPro-4-5e47062bd2f141d69819fa37cf2c1899.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -147,10 +153,14 @@ Lifewire / Jeremy Laukkonen
 
 ![Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/thmb/W25qxNjZ6Kuufukkif19R-eKC_Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4140134_EeroPro-5-e47c4a1838934bf7a139c76cc161dad9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Fantastic phone app, no web interface**
 
@@ -172,9 +182,6 @@ Lifewire / Jeremy Laukkonen
 
  The built-in parental controls are great, but the catch is you have to pay extra for this feature. If you want to access parental controls, in addition to threat scanning and blocking, ad blocking, and advanced network security, it will set you back $3.99/month or $29.99/year.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ## **Price: On the expensive side**
 
  In the configuration we tested, with a single Eero Pro and two beacons, this system has an MSRP of $319\. A single Eero Pro has an MSRP of $159, and beacons have an MSRP of $149\. You can also buy Eero Pro routers and beacons in a variety of other configurations, like three routers, a router and a single beacon, and others.
@@ -183,9 +190,6 @@ Lifewire / Jeremy Laukkonen
 
  If you need to extend your Wi-Fi network through a very large space, or you have a history of Wi-Fi dead zones, our hands-on testing shows that the Eero Pro can get the job done. That makes it well worth the price, although it isn’t the only mesh system on the market.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Eero Pro vs. Netgear Orbi**
 
  The Netgear Orbi is one of the closest competitors to the Eero Pro, and there’s a lot to like about both systems. The Orbi is a lot more complicated than the Eero Pro, as you have more choices. The closest to the system we tested is their RBK33 system, which has an MSRP of $300\. Like the Eero Pro system we tested, the RBK33 comes with an Orbi router and two plug-in satellites.
@@ -203,8 +207,12 @@ Lifewire / Jeremy Laukkonen
  The Eero Pro is a little on the pricey side, and we were a bit disappointed in the speeds that we measured during testing, but the bottom line is that this system offers decent performance while demystifying the process of setting up a mesh Wi-Fi network. If you want a painless setup process and a system that just works, the Eero Plus is what you’re looking for.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Pro Mesh Wi-Fi System
@@ -231,8 +239,6 @@ Lifewire / Jeremy Laukkonen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -240,4 +246,26 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/nboxing-youtube-shorts-music-hacks-for-viral-scenes-for-2024/"><u>[New] Unboxing YouTube Shorts Music Hacks for Viral Scenes for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-7-best-vocal-modification-software-on-the-market-for-2024/"><u>[Updated] 7 Best Vocal Modification Software on the Market for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-telling-stories-on-linkedin-with-professional-videos/"><u>2024 Approved Telling Stories on LinkedIn with Professional Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Lava Storm 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-innovating-advertising-on-facebook-the-most-effective-videography/"><u>In 2024, Innovating Advertising on Facebook The Most Effective Videography</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-premium-selection-of-fastest-recorders/"><u>In 2024, Premium Selection of Fastest Recorders</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-streamline-your-content-delivery-with-tailored-srt-upload-practices-on-media-outlets/"><u>In 2024, Streamline Your Content Delivery with Tailored SRT Upload Practices on Media Outlets</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-multiplayer-a-comprehensive-review-of-the-powerhouse-that-is-nvidia-shield-tv-pro/"><u>Mastering Multiplayer: A Comprehensive Review of the Powerhouse That Is Nvidia Shield TV Pro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximizing-blog-revenue-with-effective-ad-campaigns-on-buyselladscom/"><u>Maximizing Blog Revenue with Effective Ad Campaigns on buySELLads.com</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigate-your-mac-with-ease-top-mice-recommendations-for-a-smooth-experience/"><u>Navigate Your Mac with Ease - Top Mice Recommendations for a Smooth Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/next-gen-battle-analyzing-features-between-samsung-galaxy-s23-ultra-and-s21-ultra/"><u>Next-Gen Battle: Analyzing Features Between Samsung Galaxy S23 Ultra and S21 Ultra</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/optimal-sound-quality-top-rated-wired-earbuds-2024-edition/"><u>Optimal Sound Quality: Top-Rated Wired Earbuds, 2024 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/photoscape-software-evaluation-top-ranked-free-tool-for-imagery-manipulation/"><u>PhotoScape Software Evaluation: Top-Ranked Free Tool for Imagery Manipulation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/premier-pro-basketball-simulation-nba/"><u>Premier Pro-Basketball Simulation: NBA</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/professional-photographers-choice-in-depth-look-at-the-dji-mavic-2-pro/"><u>Professional Photographer's Choice: In-Depth Look at the DJI Mavic 2 Pro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/proven-guidelines-for-buying-capture-equipment/"><u>Proven Guidelines for Buying Capture Equipment</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-honor-70-lite-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Honor 70 Lite 5G with and without jailbreak | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Nikon W100: Affordable, Tough & Splash-Resistant"
-date: 2024-08-27T12:08:55.559Z
-updated: 2024-08-28T12:08:55.559Z
+date: 2024-10-06T01:46:09.297Z
+updated: 2024-10-06T21:32:40.242Z
 categories:
   - BestProducts
 description: "This Article Describes Nikon W100: Affordable, Tough & Splash-Resistant"
@@ -64,11 +64,22 @@ thumbnail: https://thmb.techidaily.com/4cdd8afbaa8b657928993c65ff49e85d13ed57593
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/8rMhc1Lk5yFRFW4Zlt2K9cmPdFo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-4-01d7e5ff51aa47008d803513064f4a7a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design and Software: A surprising amount of features in this chunky watch**
 
  The most outstanding feature of the Bitwatch’s design is its chunkiness. For those with small wrists, this smartwatch looks ridiculous. Furthermore, the included bands are too small in comparison to the watch, giving the overall design a cheap feel. When you wear this watch, you will notice it weighing your wrists down, taunting you to take it off. But as ugly as the Bitwatch is, it is a functional little watch. It has a power button and volume buttons, as well as a strong vibration motor. Its touchscreen works without a problem, and the app layout is intuitive to understand.
@@ -79,14 +90,6 @@ thumbnail: https://thmb.techidaily.com/4cdd8afbaa8b657928993c65ff49e85d13ed57593
 
  While it doesn’t have[NFC](https://www.lifewire.com/what-is-nfc-832715) or GPS, it does have a speaker, and you can send basic messages with the watch. The Bitwatch S1 is surprisingly robust for those who want to dip their toes into the smartwatch experience, with many of the features that mid-tier smartwatches possess.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## **Setup Process: Easy, but unexplained**
 
  Setting up the Bitwatch works as you’d expect. Pair it via the Bluetooth on your phone and download the Beantech app. It works with both Android and iOS, so you should have no difficulty. Alerts will show up in the remote notifier app, and apps such as the calendar are not synced with your phone’s calendar apps, so keep that in mind if you’d like to add any events, notifications, or alarms to your watch.
@@ -94,6 +97,13 @@ thumbnail: https://thmb.techidaily.com/4cdd8afbaa8b657928993c65ff49e85d13ed57593
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/O7xHfA9sKsBdC0nmqNXbFky-Dm4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-2-3b838f1124184bbd9452b79bb8449c2b.jpg)
 
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: You get what you pay for**
 
@@ -107,16 +117,8 @@ thumbnail: https://thmb.techidaily.com/4cdd8afbaa8b657928993c65ff49e85d13ed57593
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/7GtX2IU-w4sJA-BTqQtHQThxaJo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-3-ade31135cd9d4fe0b6b01286941d2652.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ## **Battery: It last longer than most flagship smartwatches**
 
  The battery life on the Bitwatch is excellent. With regular usage (GPS, heart rate, Bluetooth all on), we got between two and three days of use before we had to recharge. Charging is a little annoying, though, since it uses a snapping charger base that’s difficult to remove.
@@ -128,8 +130,12 @@ The powerful video editing program for your Windows PC</a>
  The Beantech Bitwatch is not a groundbreaking smartwatch, but it provides a lot of essential features for $50.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Competition: If you want more, it will cost more**
 
  For a budget smartwatch, the Bitwatch packs a lot of features. However, it suffers in reliability and style, which may turn users off from the smartwatch market altogether. For a little more money, you can get the Amazfit Bip_,_ a sleek smartwatch from Huami that has a thirty-day battery life, fitness tracking, onboard GPS, and notifications. If you’re looking to get something very cheap to try out the smartwatch lifestyle, you should also look at the Padgene DZ09 Smart Watch, which is only $15 and has a lot of the features on the Bitwatch.
@@ -142,9 +148,6 @@ The powerful video editing program for your Windows PC</a>
 
  The Beantech Bitwatch is not a groundbreaking smartwatch, but it provides a lot of essential features for $50\. If you’re looking to try out smartwatches, the Bitwatch will give you a solid battery life, music storage, passive notifications, phone call management, and a very large touchscreen.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Bitwatch S1 Plus
@@ -159,14 +162,11 @@ The powerful video editing program for your Windows PC</a>
 * Battery Capacity  Unknown; 2 days in field testing
 * Waterproof  No
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -175,4 +175,22 @@ The powerful video editing program for your Windows PC</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/new-iphones-unlocked-smart-tips-for-saving-and-playing-gifs/"><u>[New] IPhones Unlocked Smart Tips for Saving & Playing GIFs</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-key-strategies-for-gaining-facebooks-top-marker/"><u>[Updated] 2024 Approved Key Strategies for Gaining Facebook's Top Marker</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-collaborative-filmmaking-teamwork-in-producing-instagram-content/"><u>[Updated] In 2024, Collaborative Filmmaking Teamwork in Producing Instagram Content</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-mastering-youtube-seo-boost-your-video-popularity/"><u>[Updated] Mastering YouTube SEO Boost Your Video Popularity</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-ios-tutorial-downloading-episodes-effortlessly/"><u>[Updated] Ultimate iOS Tutorial Downloading Episodes Effortlessly</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exclusive-comparison-deciding-on-the-perfect-console-nintendo-switch-lite-or-oled/"><u>Exclusive Comparison: Deciding on the Perfect Console, Nintendo Switch Lite or OLED</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-what-you-need-to-know-about-the-truecaller-phone-application/"><u>Expert Review: What You Need to Know About the Truecaller Phone Application</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-governance-in-tropico-6-power-plays-in-a-perfect-paradise/"><u>Exploring Governance in 'Tropico 6': Power Plays in a Perfect Paradise</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/family-fun-with-holy-stones-rc-car-toys-a-thorough-product-review-and-analysis/"><u>Family Fun with Holy Stone's RC Car Toys - A Thorough Product Review and Analysis.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/family-oriented-fun-with-the-holy-stone-cartoon-themed-rc-racer-expert-review-inside/"><u>Family-Oriented Fun with the Holy Stone Cartoon-Themed RC Racer – Expert Review Inside</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/future-proof-gaming-consoles-of-2024-your-buyers-checklist/"><u>Future-Proof Gaming Consoles of 2024: Your Buyer's Checklist</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-apples-upgraded-series-4-smartwatch/"><u>In-Depth Review of Apple's Upgraded Series 4 Smartwatch</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/keeping-consistent-pacing-in-obs-broadcasts-for-2024/"><u>Keeping Consistent Pacing in OBS Broadcasts for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/solving-msvcr120dll-absence-in-windows-systems/"><u>Solving MSVCR120.dll Absence in Windows Systems</u></a></li>
+</ul></div>
 

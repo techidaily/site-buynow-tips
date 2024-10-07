@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Guide: Premium Storage Solutions – The Leading External HDDs"
-date: 2024-09-22T16:46:56.871Z
-updated: 2024-09-26T17:21:22.563Z
+date: 2024-09-30T23:53:26.720Z
+updated: 2024-10-07T00:06:18.479Z
 tags:
   - buying-guides
 categories:
@@ -59,6 +59,13 @@ Best Portable External Hard Drive
 Best External Solid State Drive  
 [$149 at Amazon](https://www.amazon.com/SAMSUNG-Portable-SSD-1TB-MU-PC1T0H/dp/B0874YDQ9K?tag=hotoge-20&ascsubtag=UUhtgUeUpU208981&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749487%2Fbest-external-hard-drives%2F&asc%5Fcampaign=Commerce&th=1&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749487%2Fbest-external-hard-drives%2F&asc%5Fcampaign=Commerce)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  What to Look for in an External Hard Drive in 2023
 
  External hard drives (or HDDs) come in many shapes and sizes and are designed for different use cases. They all provide extra storage for [backups](https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-by-checkra1n-even-on-iphone-14-pro-max-if-youve-tried-everything-by-drfone-ios/) and can easily be moved from one device to another, but several key areas shape which drive is right for you.
@@ -86,13 +93,6 @@ Best External Solid State Drive
 
 ![WD My Book Duo on office desk](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/08/best-hard-drives-wd-my-book-duo.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Western Digital
 
 | Pros                                                                           | Cons                                                                 |
@@ -116,6 +116,13 @@ Western Digital
 ![WD My Book](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/wd-my-book.png) 
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Best External Hard Drive Overall
 
@@ -150,13 +157,6 @@ Western Digital
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Best Budget External Hard Drive
 
 #####  WD My Passport Ultra Blue
@@ -166,6 +166,13 @@ $90 $100 Save $10
 Need to save money but also need to make sure your data is safe? WD's Ultra Blue will have all the space you need, is portable, and will not break down after a year.
 
 [$90 at Amazon](https://www.amazon.com/My-Passport-Ultra-Portable-External-Drive-USB-C/dp/B07GKFHVC5?tag=hotoge-20&ascsubtag=UUhtgUeUpU208981&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749487%2Fbest-external-hard-drives%2F&asc%5Fcampaign=Commerce) [Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fwd__my_passport_ultr%2F6295033.p%3FskuId%3D6295033) [Adorama](https://adorama.rfvk.net/c/156932/51926/1036?subId1=UUhtgUeUpU208981&subId2=ehtg&u=https%3A%2F%2Fwww.adorama.com%2Fwdc3c0020bbl.html) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  Best External Hard Drive for Mac: [Sandisk G-DRIVE ArmorATD](https://www.amazon.com/SanDisk-Professional-G-DRIVE-ArmorATD-SDPH81G-005T-GBAND/dp/B094JFHSYQ?tag=hotoge-20&ascsubtag=UUhtgUeUpU208981&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749487%2Fbest-external-hard-drives%2F&asc%5Fcampaign=Commerce) 
 
@@ -192,10 +199,10 @@ SanDisk
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Best External Hard Drive for Mac
@@ -209,6 +216,13 @@ A compact, high-capacity hard drive that includes several Mac-specific features 
 ##  Best External Hard Drive for PS5: [WD\_BLACK 5TB P10 Game Drive](https://www.amazon.com/WD%5FBlack-Drive-External-Compatible-WDBA3A0050BBK-WESN/dp/B07VNTFHD5?th=1&tag=hotoge-20&ascsubtag=UUhtgUeUpU208981&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749487%2Fbest-external-hard-drives%2F&asc%5Fcampaign=Commerce) 
 
 ![WD Black P10](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/wd-black-p10.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Western Digital
 
@@ -228,13 +242,6 @@ Western Digital
  The only real negatives here are that the price on a per-gigabyte basis is a little on the high side, and an external SSD will still be faster. You can get a slower drive of the same capacity for less if the speed doesn't appeal to you or a much faster external SATA SSD if the capacity isn't a selling point. But as a middle-ground between speed and capacity, the P10 is a fantastic choice.
 
 ![WD Black P10](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/wd-black-p10.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
 
@@ -282,23 +289,9 @@ WD\_BLACK's 12TB model is perfect for the Xbox, which doesn't have the same capa
 
 [$270 at Amazon](https://www.amazon.com/Black-12TB-Drive-External-WDBA5E0120HBKNESN/dp/B07XV8JN31?tag=hotoge-20&ascsubtag=UUhtgUeUpU208981&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749487%2Fbest-external-hard-drives%2F&asc%5Fcampaign=Commerce) [Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fwd__black_d10_game_d%2F6364270.p%3FskuId%3D6364270) [Lenovo](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.lenovo.com%2Fus%2Fen%2Fp%2Faccessories-and-software%2Fmemory-and-storage%2FMemory-) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##  Best Portable External Hard Drive: [LaCie Rugged Mini](https://www.amazon.com/LaCie-Rugged-External-Portable-LAC9000298/dp/B00IRV005E?tag=hotoge-20&ascsubtag=UUhtgUeUpU208981&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F749487%2Fbest-external-hard-drives%2F&asc%5Fcampaign=Commerce) 
 
 ![LaCie Rugged Mini 2TB External Hard Drive](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/08/LaCie-Rugged-Mini-2TB-External-Hard-Drive.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _LaCie_
 
@@ -337,10 +330,10 @@ If you want a truly portable hard drive, you want to make sure it can withstand 
 ![Samsung T7 on yellow background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/08/samsung-t7-resized.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Samsung
@@ -365,6 +358,13 @@ Samsung
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Best External Solid State Drive
 
 #####  Samsung T7 Portable SSD
@@ -377,19 +377,6 @@ Solid State Drives aren't as cost-effective as HDDs yet, but they're worth looki
 
 ## FAQ
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How do you format an external hard drive for Mac?
 
 To format or re-format an external hard drive for Mac, you'll want to use [Disk Utility](https://instagram-videos.techidaily.com/new-in-2024-10-instagram-hashtag-that-you-should-be-using-today/). Once you navigate there, find the drive under the External drives section, and click on it. Once there, you choose 'Erase' and it will format the drive for you.
@@ -401,6 +388,13 @@ To back up your iPhone data onto an external hard drive, you'll need to [back up
 ### How do you eject an external hard drive?
 
 While you can unplug an external hard drive when you're done with it, it is better to eject it to prevent possible data loss. On Windows, navigate to File Explorer, then find the hard drive under the 'This PC' menu. Right-click the drive, and choose Eject. On Mac, go to Finder, then find the drive under the 'Devices' menu. When you hover over the drive, there will be a small eject button next to the device name. Click that, and it'll eject the hard drive.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Can you password-protect an external hard drive?
 
@@ -429,16 +423,18 @@ Whether you're on Windows or Mac, moving files onto an external hard drive is ea
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-rapidly-constructing-a-dynamic-facebook-visual-narrative/"><u>[New] Rapidly Constructing a Dynamic Facebook Visual Narrative</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-top-12-tycoons-where-every-move-counts-toward-victory/"><u>[New] Top 12 Tycoons - Where Every Move Counts Toward Victory</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-the-art-of-connection-4-ways-to-tie-in-your-fb-story/"><u>[Updated] In 2024, The Art of Connection 4 Ways to Tie in Your Fb Story</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-sifting-through-media-options-vlc-versus-mx/"><u>2024 Approved Sifting Through Media Options VLC Versus MX</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/cookiebot-driven-solutions-boost-your-websites-engagement/"><u>Cookiebot-Driven Solutions: Boost Your Website's Engagement</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-nubia-red-magic-8s-pro-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Nubia Red Magic 8S Pro Device SIM</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Realme Narzo 60x 5G? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ps5-face-off-how-the-ps5-slim-stacks-up-against-its-bigger-brother-the-original-ps5/"><u>PS5 Face-Off: How the PS5 Slim Stacks Up Against Its Bigger Brother, The Original PS5</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/rediscovering-demons-souls-brilliant-graphics-unforgettable-gameplay-intact/"><u>Rediscovering Demon's Souls: Brilliant Graphics, Unforgettable Gameplay Intact</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-of-mlb-the-show-1n9-an-aesthetically-pleasing-sports-game-with-a-twist-of-rpg-elements/"><u>Review of MLB The Show 1N9: An Aesthetically Pleasing Sports Game with a Twist of RPG Elements</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-standing-exercise-routine-with-the-terramat-from-cubefit/"><u>Revolutionize Your Standing Exercise Routine with the TerraMat From CubeFit</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-capturing-facebook-hd-videos-for-later-use-for-2024/"><u>[New] Capturing Facebook HD Videos for Later Use for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-effective-ways-to-archive-webcam-discussions/"><u>[New] Effective Ways to Archive Webcam Discussions</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-expert-setup-guide-to-capture-high-quality-video-using-logitech-camera-for-2024/"><u>[New] Expert Setup Guide to Capture High-Quality Video Using Logitech Camera for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-closer-look-at-wonder-workshops-dash-a-revolutionary-learning-tool-for-kids/"><u>A Closer Look at Wonder Workshop's Dash: A Revolutionary Learning Tool for Kids</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/briefvideo-creator-for-2024/"><u>BriefVideo Creator for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/capturing-full-screen-images-and-videos-on-windows-11-a-comprehensive-guide/"><u>Capturing Full-Screen Images and Videos on Windows 11: A Comprehensive Guide</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-infinix-smart-8-hd-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Infinix Smart 8 HD FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-netgear-nighthawk-rax120-unrivaled-speed-and-performance/"><u>Expert Analysis: Netgear Nighthawk RAX120 - Unrivaled Speed & Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-the-upgraded-ring-doorbell-plus-is-it-worth-it/"><u>Expert Insights on The Upgraded Ring Doorbell Plus - Is It Worth It?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-pick-for-budget-friendly-cameras-the-pruveeo-f5-hd-dash-cam-reviewed/"><u>Top Pick for Budget-Friendly Cameras: The Pruveeo F5 HD Dash Cam Reviewed</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshoot-and-fix-stuttering-in-grounded-expert-advice-for-smooth-gaming/"><u>Troubleshoot & Fix Stuttering in 'Grounded': Expert Advice for Smooth Gaming</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unravel-the-potential-of-anker-usb-30-hubs-a-complete-performance-overview/"><u>Unravel the Potential of Anker USB 3.0 Hubs - A Complete Performance Overview</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-lidar-in-robotic-cleaning-a-closer-look-at-dreame-bot-l10-pro-review/"><u>Unveiling the Power of LiDAR in Robotic Cleaning - A Closer Look at Dreame Bot L10 Pro Review</u></a></li>
 </ul></div>
 

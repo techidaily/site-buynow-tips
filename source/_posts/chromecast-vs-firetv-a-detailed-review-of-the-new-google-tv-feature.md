@@ -1,7 +1,7 @@
 ---
 title: Chromecast vs FireTV - A Detailed Review of the New Google TV Feature
-date: 2024-08-22T18:09:25.754Z
-updated: 2024-08-23T18:09:25.754Z
+date: 2024-10-01T19:14:47.447Z
+updated: 2024-10-06T23:27:12.162Z
 categories:
   - BestProducts
 description: This Article Describes Chromecast vs FireTV - A Detailed Review of the New Google TV Feature
@@ -43,6 +43,13 @@ Lifewire / Erika Rawes
 
 ![Alienware Aurora R11 Review](https://www.lifewire.com/thmb/s3I5Cw7w0g8bE2MkogNY13CmpcM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Alienware-Aurora-R11-Desktop-PC-1-2d25241deb1445b5af4661451cda9988.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 [View On Amazon $3,998](https://www.amazon.com/dp/B08CRZ7H9Z/?tag=lifewire-onsite-prod-20&ascsubtag=5075589%7Cncc89a2f72d7a4507ae51c7212ef0150617%7CB08CRZ7H9Z) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Falienware-aurora-r11-desktop-intel-core-i7-10700f-16gb-memory-nvidia-geforce-rtx-2080-super-1tb-hdd-512gb-ssd-lunar-light%2F6427083.p%3FskuId%3D6427083) [View On Dell](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.dell.com%2Fen-us%2Fshop%2Fgaming-and-games%2Falienware-aurora-r11-gaming-desktop%2Fspd%2Falienware-aurora-r11-desktop)
@@ -69,10 +76,6 @@ Lifewire / Erika Rawes
 
  On paper, the Alienware Aurora R11 gaming PC looks like a winner. With a 10th generation[Intel](https://www.lifewire.com/amd-vs-intel-which-processor-is-best-for-you-4780276) processor and a multitude of configuration options, the R11 lets you choose an up-to-date PC that fits in your price range now, and then upgrade later on. The Dell subsidiary's latest beast comes in six main configurations, ranging from a base model (priced at $930) all the way up to a top tier model that includes two graphics cards (priced at $4,956). I tested the Alienware Aurora R11 for two weeks, evaluating its design, performance, gameplay, audio, network performance, software, upgradability, and cooling. Is the Alienware Aurora R11 a worthwhile investment? Here’s my full review.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## **Test model: 10th Gen Intel Core i7 10700F and NVIDIA GeForce RTX 2060**
 
  The Aurora R11 is extremely customizable, and you can choose exactly the components you want. You can select either a 10th Gen Core i5, i7, or i9 processor, and for graphics, you can get the NVIDIA GeForce GTX 1650 SUPER if you go for the base model, or go all the way up to two (yes, two!) NVIDIA GeForce RTX 2080 Ti cards in the highest tier model.
@@ -85,9 +88,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: A mature gaming rig**
 
  While some gaming PC towers boast bold designs with transparent glass, RGB fans, and enough colors to make you feel like you’re at a rave, the Aurora R11 takes a much different design approach. The R11 is unassuming—not too flashy and not too loud. It's elegant and simple in appearance with subtle strips of lighting on the front trim of the oblong chassis. This looks like a computer for someone with refined taste, as opposed to a colorful spectacle.
@@ -106,11 +106,15 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![Alienware Aurora R11](https://www.lifewire.com/thmb/JFFJbdkvNwhJ-T2_-B88xFQhCNQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Alienware-Aurora-R11-Desktop-PC-4-d7147c6bd520432285a9f2e58f788322.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: An absolute powerhouse**
 
  I was impressed with the R11’s overall performance, especially considering the model I tested is one of the more affordable configurations. Boot times are fast, and it jumps around different applications at lightning speed. It scored admirably in benchmark testing, clocking a single-core score of 4403 and a multi-core score of 33335 on Geekbench 3\. On PCMark 10, it scored a 6692, which was better than 92% of all results. It scored highest in essentials and digital content creation and slightly lower in productivity.
@@ -118,6 +122,13 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  When I connected a hard drive to one of the fast USB ports, games loaded up with impressive efficiency. The Aurora R11 was able to handle pretty much anything I threw at it.
 
  Boot times are fast, and it jumps around different applications at lightning speed.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Gaming: Played most games on the highest settings**
 
@@ -138,15 +149,29 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  The Aurora R11 is designed as a gaming PC, but you could absolutely use it for work. Since this PC has ample processing power and gaming-grade graphics, you could also use it for photo or video editing. The R11 includes a free keyboard and optical mouse, but you have to specifically indicate that you want those free options. Otherwise, you’ll just get the tower and power cord.
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Audio: 7.1 surround sound**
 
  The R11 has a number of options for audio sources, including ports for connecting a microphone, headphones, and[surround sound speakers](https://www.lifewire.com/what-is-surround-sound-1846802) . It even has an optical audio port. You should have no problem finding an audio solution that fits your needs. The R11 doesn’t include speakers in the box, but it does have integrated 7.1 channel audio (with SPDIF port).
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Network: Want Wi-Fi 5 or Wi-Fi 6?**
 
  The R11 includes the Dell Wireless DW1810 802.11ac Wireless card (Wi-Fi, Wireless LAN, and Bluetooth 5.0). For $20 added to the price, you can upgrade to the Killer AX1650 (2x2) 802.11ax Wireless Card and get Bluetooth 5.1 and Wi-Fi 6 capability.
@@ -159,6 +184,13 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software: Alienware Command Center**
 
  Like most gaming PCs, the R11 runs on Windows 10 Home. You can opt for additional software like Microsoft Office and McAfee antivirus protection while you’re customizing the PC during purchase.
@@ -167,9 +199,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Another application, Alienware Mobile Connect, lets you connect your PC to your mobile device. You can do things like a text from the application, make calls, access images and contacts, and mirror your screen.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Cooling: Air cooling vs. liquid cooling**
 
  The R11 comes in[air cooled](https://www.lifewire.com/best-laptop-cooling-pads-4149823) or[liquid cooled](https://www.lifewire.com/what-is-liquid-cooling-832445) configurations. I tested an air-cooled configuration. There’s a fan in the front that sucks air into the PC, and then there’s larger venting along the top and sides that helps push the air through the PC to cool down the processors. The fans are strategically placed for the optimal airflow, with a fan on the top that helps promote air circulation.
@@ -178,9 +207,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Upgradability: A latch system**
 
  The R11 is not quite as easy to open as a chassis with an easy-remove glass side panel, but it still offers easy upgradability. The tower opens with a lock and latch system that releases the side panel. Once you remove the side panel, you can move the power supply out of the way so you can better access the internals.
@@ -194,8 +220,12 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Not bad**
 
  The price of your R11 is going to vary widely depending on how much you want to put into it. You can get an Aurora R11 for under a grand though. The R11 configuration I tested retails for $1410, but it was $30 less because the test model included the lower tier chassis (without RGB lighting in the word “Alienware” along the side). For the lower tier models, the prices are reasonable, and you can upgrade the PC later on.
@@ -212,10 +242,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  The Aurora R11 could replace its predecessor as the best gaming desktop of the year.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Aurora R11
@@ -241,8 +267,6 @@ The ultimate burning program for all your needs!</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -250,4 +274,24 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-an-odyssey-through-time-unexplored-worlds-in-classic-books/"><u>[New] 2024 Approved An Odyssey Through Time Unexplored Worlds in Classic Books</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rafting-success-in-youtubes-creator-hub/"><u>[New] Crafting Success in YouTube's Creator Hub</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-master-the-art-of-audible-social-media-posts-without/"><u>[New] Master the Art of Audible Social Media Posts (Without)</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-non-retweet-strategies-for-mobile-video-shares-for-2024/"><u>[New] Non-Retweet Strategies for Mobile Video Shares for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1726028074948-dvd/"><u>近年の自動車でDVDが見られない問題とその迅速解決：カーナビゲーション再生不能への対処法</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/immediate-purchase-top-3-apple-innovations-unveiled-at-wwdc-available-for-pre-order-find-out-where/"><u>Immediate Purchase: Top 3 Apple Innovations Unveiled at WWDC, Available for Pre-Order - Find Out Where!</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-direct-video-sync-from-twitter-to-tumblr/"><u>In 2024, Direct Video Sync From Twitter to Tumblr</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-infinix-smart-7-hd-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Infinix Smart 7 HD</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Lava Yuva 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-oneplus-9-does-it-meet-expectations/"><u>In-Depth Look at OnePlus 9 - Does It Meet Expectations?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-lenovo-130s-laptop-moderate-battery-life-with-impressive-functionality/"><u>In-Depth Look at the Lenovo 130S Laptop: Moderate Battery Life with Impressive Functionality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-uniden-r3s-durability-and-extensive-radar-detection-features/"><u>In-Depth Look at Uniden R3's Durability and Extensive Radar Detection Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-the-economical-ambient-ws-2902a-osprey-high-performance-with-a-multitude-of-sensors/"><u>In-Depth Review of the Economical Ambient WS-2902A Osprey: High Performance with a Multitude of Sensors</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-philips-hf3505s-impact-on-natural-waking-routines/"><u>In-Depth Review: Philips HF3505's Impact on Natural Waking Routines</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/insightful-overview-how-does-google-voice-calling-compare-to-traditional-methods/"><u>Insightful Overview: How Does Google Voice Calling Compare to Traditional Methods?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/interactive-experience-with-philips-49-ultra-hd-curved-led-display-perfect-for-gamers/"><u>Interactive Experience with Philips' 49 Ultra HD Curved LED Display - Perfect for Gamers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-home-connectivity-with-tp-links-deco-p9-mesh-wi-fi-system-reviewed/"><u>Mastering Home Connectivity with TP-Link's Deco P9 Mesh Wi-Fi System Reviewed</u></a></li>
+</ul></div>
 

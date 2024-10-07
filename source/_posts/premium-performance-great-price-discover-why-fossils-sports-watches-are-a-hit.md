@@ -1,7 +1,7 @@
 ---
 title: "Premium Performance, Great Price: Discover Why Fossil's Sports Watches Are a Hit!"
-date: 2024-08-27T12:06:38.726Z
-updated: 2024-08-28T12:06:38.726Z
+date: 2024-10-03T19:05:10.476Z
+updated: 2024-10-06T21:39:21.739Z
 categories:
   - BestProducts
 description: "This Article Describes Premium Performance, Great Price: Discover Why Fossil's Sports Watches Are a Hit!"
@@ -43,6 +43,13 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/0q_63hnHYzqQ5_H2Q2RzjXF5Nls=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4161013-1-a308b649704344f6b5fd15dc900e5742.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
 [View On Amazon](https://www.amazon.com/dp/B07L7168W9/?tag=lifewire-onsite-prod-20&ascsubtag=4766870%7Cn4d8585d7485f4f72aafd3d2cb40e105b12%7CB07L7168W9) [View On Walmart](https://www.walmart.com/ip/Withings-Move-Activity-Tracker-Black/727305177) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fwithings-move-activity-tracker-coral%2F6351601.p%3FskuId%3D6351601)
@@ -70,6 +77,13 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/SRCqvDOet8fouJ8uY8ze0LlCiog=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-2-1fdc9f06eb6a45f2baa2b840822fba5d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
 ## **Design: Slim and clean**
@@ -89,9 +103,12 @@ Lifewire / Yoona Wagener
 ![Withings Move](https://www.lifewire.com/thmb/Qz1dlsE8jl99mXc7-kQ5LCVoiK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-3-b1e97631284d40829bd5714c59dc5f2a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
 ## **Setup Process** :**As easy as 1-2-3**
@@ -104,9 +121,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  First, we paired the Withings Move with our phone via Bluetooth, which was instantaneous. Next, we provided profile information for better activity metrics, downloaded an update, made sure the watch dials were working and the time was set correctly, and we were good to go.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## **Comfort: Light as a feather, even while sleeping**
 
  Some watches can feel heavy by the end of the day, but we didn’t encounter that weighed-down feeling with the Withings Move. The watch is really lightweight and the band is soft, flexible, and slim, which made sleeping with it a non-issue. It was also easy to achieve a good fit—especially for smaller wrists—thanks to the plentiful notches and the tab to keep the band in place.
@@ -117,11 +131,21 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![Withings Move](https://www.lifewire.com/thmb/WIXFA6BpXvAMWLdKpJ_jmzZh6o4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-5-cbc0f43d847b453bbfae994f03374cdb.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Performance: Limited activity tracking**
 
  While hybrid smartwatches like the Withings Move offer ease of use and versatility with your wardrobe and daily wear, they’re limited when it comes to tracking performance. Some activities are automatically recorded: walking, running, hiking, and swimming. With outdoor exercising, you can also track distance and elevation with the connected GPS feature.
@@ -138,7 +162,21 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![Withings Move](https://www.lifewire.com/thmb/vaUmI1isQP98tmL8uIZSghmAWGs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-6-259d8034cfb64485be60f9c5754fec79.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery: Long-lasting and hassle-free**
 
@@ -160,18 +198,12 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  There are also a number of other supplemental programs you can sign up for through the Health Connect app in order to up your general wellness. Most of these programs, which are free to join, require a specific type of Withings device, but others, like a meditation and pregnancy tracking program, don’t need any additional equipment.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: A bargain for the value**
 
  The Withings Move retails for $69.95, which is an attractive and affordable price for a hybrid smartwatch—most competitors tend to be well above $100\. While these other models, like the Fossil Harper and Fossil Q Commuter, typically come with more functionality like music storage or streaming, notifications, or taking a picture from your phone, there’s also a bigger price associated with those features.
 
  Those looking for a dressier and more substantial watch may find these Fossil models to be better alternatives. Other devices that are comparable in price, like the Fitbit Inspire Fitness Tracker, lack the analog watch qualities and look like designated activity trackers. The Withings Move splits the difference at a modest price.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ## **Withings Move vs. Misfit Phase**
 
  The Misfit Phase is another hybrid smartwatch with a classic wristwatch look, maybe even more so than the Withings Move. Priced at around $175, the Misfit Phase is more expensive, but also comes with a few bonuses that the Withings Move lacks, like text notifications, playing and pausing music on your phone, and also taking selfies.
@@ -186,9 +218,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  The Withings Move is a strong entry-level fitness tracker for the person who wants to track activities without going all-in on a smartwatch. It’s inexpensive, sporty, and subtle, which makes it compelling for those who don’t want to be distracted by notifications and all the hands-on features smartwatches bring to the table.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Withings Move Hybrid Smartwatch
@@ -207,8 +236,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -216,4 +243,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-unlocking-the-secrets-to-iphone-stellar-images/"><u>[New] Unlocking the Secrets to iPhone Stellar Images</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-vivo-x90s-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Vivo X90S Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-virtual-adventure-awaits-with-these-top-12-pc-clickers/"><u>2024 Approved Virtual Adventure Awaits with These Top 12 PC Clickers</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/best-video-language-changers-to-make-your-videos-accessible-for-2024/"><u>Best Video Language Changers to Make Your Videos Accessible for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-from-idea-to-reality-examining-mycams-video-recorder-performance/"><u>In 2024, From Idea to Reality Examining MyCam’s Video Recorder Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-and-setup-guide-for-blinks-outdoor-4-wireless-motion-sensor-light-camera/"><u>In Depth Review & Setup Guide for Blink's Outdoor 4 Wireless Motion Sensor Light Camera</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/iphone-15-pro-max-vs-samsung-s2e-ultra-showdown-unpacking-their-main-contrasts/"><u>IPhone 15 Pro Max Vs. Samsung S2e Ultra Showdown: Unpacking Their Main Contrasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/make-an-informed-decision-ponder-this-first-when-buying-a-dvr/"><u>Make an Informed Decision: Ponder This First when Buying a DVR</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/master-darkroom-techniques-on-any-system-discover-how-the-lightzone-program-is-changing-photography/"><u>Master Darkroom Techniques on Any System - Discover How the LightZone Program Is Changing Photography.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-performance-with-asus-rog-gt-ac5300-review-the-ultimate-choice-for-gaming-aficionados/"><u>Mastering Performance with Asus ROG GT-Ac5300 Review - The Ultimate Choice for Gaming Aficionados</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1726026520729-pc/"><u>PCゲームビデオキャプチャ技術: 最新３コツ</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/protecting-your-iphone-discover-the-6-leading-antivirus-applications/"><u>Protecting Your iPhone: Discover the 6 Leading Antivirus Applications</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/voice-assistant-meets-ai-conversation-integrate-chatgpt-into-your-android-phone-via-voice-command-using-voicegpt/"><u>Voice Assistant Meets AI Conversation: Integrate ChatGPT Into Your Android Phone via Voice Command Using VoiceGPT</u></a></li>
+</ul></div>
 

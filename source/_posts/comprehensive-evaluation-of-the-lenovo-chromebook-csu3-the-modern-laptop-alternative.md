@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Evaluation of the Lenovo Chromebook CSU3 - The Modern Laptop Alternative
-date: 2024-08-27T12:08:39.237Z
-updated: 2024-08-28T12:08:39.237Z
+date: 2024-09-30T23:11:18.279Z
+updated: 2024-10-06T22:08:25.450Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Evaluation of the Lenovo Chromebook CSU3 - The Modern Laptop Alternative
@@ -37,9 +37,23 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -63,9 +77,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -88,9 +99,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process: T-minus one minute**
 
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
@@ -98,8 +106,12 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance: Reliable, accurate, quick and loud**
 
  When we tested the tire inflator, we took it on a road trip that took us to the states of Nevada, Utah, Idaho, and Wyoming. Along the way, we stopped at rural rest areas and gas stations. In order to use them in the circumstances, they were designed for. Throughout it all, the Kensun Portable Tire Inflator never failed to work when we needed it.
@@ -121,15 +133,16 @@ Lifewire / Jeffrey Daniel Chadwick
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: A decent buy considering its versatility**
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
  The Kensun Portable Tire Inflator is similar to the Jaco Digital Tire Inflator, they have similar cord and hose lengths, and can continually run for about half an hour. But the Kensun is more than twice the size of the Jaco, so it can deliver more power to fill your tires faster. Additionally, the Jaco lacks the ability to plug into an AC socket, so you can only use it in your car.
@@ -144,9 +157,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  AC/DC Portable Air Pump Tire Inflator
@@ -163,8 +173,6 @@ Lifewire / Jeffrey Daniel Chadwick
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -172,4 +180,23 @@ Lifewire / Jeffrey Daniel Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-premier-9-high-quality-online-mic-capture-solutions-23/"><u>[Updated] 2024 Approved Premier 9 High-Quality Online Mic Capture Solutions ('23)</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-beginners-guide-start-filming-with-ease-using-logitech-camera/"><u>[Updated] Beginner's Guide Start Filming with Ease Using Logitech Camera</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/best-no-cost-mac-software-for-hdsd-video-transcoding-beyond-format-factory/"><u>Best No-Cost Mac Software for HD/SD Video Transcoding Beyond Format Factory</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-ipad-pro-and-macbook-pro-key-features-and-performance/"><u>Comparing iPad Pro and MacBook Pro: Key Features & Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-acurite-pro-model-010n-effortless-installation-and-durable-construction/"><u>Comprehensive Analysis of AcuRite Pro Model 010N: Effortless Installation and Durable Construction</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-the-newly-improved-apple-ipad-air-102-8th-gen-a-leap-in-value-for-consumers/"><u>Comprehensive Analysis of the Newly Improved Apple iPad Air (10.2 - 8Th Gen): A Leap in Value for Consumers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-the-mighty-and-robust-radpower-radcity-5plus-bike-experience/"><u>Comprehensive Review: The Mighty and Robust RadPower RadCity 5+ Bike Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cutting-edge-tablets-for-artists-your-guide-to-the-best-picks-of-202/"><u>Cutting-Edge Tablets for Artists: Your Guide to the Best Picks of 202</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-best-2024-cell-phone-deals-tailored-for-senior-users/"><u>Discover the Best 2024 Cell Phone Deals Tailored for Senior Users</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elite-selection-of-body-worn-cameras-for-authorities/"><u>Elite Selection of Body-Worn Cameras for Authorities</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-contacts-from-samsung-by-fonelab-android-recover-contacts/"><u>How to Rescue Lost Contacts from Samsung ?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-xiaomi-13-ultra-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Xiaomi 13 Ultra to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-3-sites-to-find-free-itel-unlock-codes-to-unlock-your-itel-phone-by-drfone-android/"><u>In 2024, Top 3 Sites to Find Free Itel Unlock Codes to Unlock Your Itel Phone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-20-key-cmd-commands-a-primer/"><u>Mastering 20 Key CMD Commands: A Primer</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-punishes-misinformers-facebooks-latest-directive/"><u>Platform Punishes Misinformers: Facebook's Latest Directive</u></a></li>
+<li><a href="https://win-forum.techidaily.com/resolve-overloaded-disk-performance-tips-for-windows-10-users/"><u>Resolve Overloaded Disk Performance: Tips for Windows 10 Users</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Look at the Cost-Effective Amazon Basics 6-Sheets Cross-Cut Shredder
-date: 2024-09-25T18:08:10.206Z
-updated: 2024-09-26T17:50:18.431Z
+date: 2024-10-03T19:05:23.843Z
+updated: 2024-10-07T01:10:52.884Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Look at the Cost-Effective Amazon Basics 6-Sheets Cross-Cut Shredder
@@ -37,13 +37,6 @@ Lifewire / Todd Braylor
 
 3.8
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
@@ -69,6 +62,19 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -80,10 +86,10 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easy installation**
@@ -93,10 +99,10 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: Impressive detection**
@@ -119,13 +125,6 @@ Lifewire / Todd Braylor
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
  A popular competitor brand to Escort that makes a wide selection of radar detectors is Uniden. The Uniden DFR9 (view on[Amazon](https://www.amazon.com/Uniden-DFR9-Detection-Cameras-Display/dp/B07F6PZXHM/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7C) ) is a model that can be considered the next price tier above the S55\. The DFR9's MSRP is $300 but it can often be found on sale for about $270.
@@ -137,6 +136,13 @@ Lifewire / Todd Braylor
  **A basic radar detector that's ideal for beginners or anyone on a budget.**
 
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -167,24 +173,20 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-yield-your-content-mastering-youtube-ads-for-earnings/"><u>[New] 2024 Approved Yield Your Content Mastering YouTube Ads for Earnings</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-ultimate-webcam-usage-for-macbooks/"><u>[New] In 2024, Ultimate Webcam Usage for MacBooks</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-streamline-your-online-experience-insights-into-ffxp/"><u>[New] Streamline Your Online Experience Insights Into FFXP</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-unlock-the-secrets-to-enthralling-unboxing-content-on-insta-for-2024/"><u>[New] Unlock the Secrets to Enthralling Unboxing Content on Insta for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-a-journey-to-vivid-visuals-top-11-hue-enhancement-guides/"><u>[Updated] A Journey to Vivid Visuals Top 11 Hue Enhancement Guides</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/best-android-applications-the-ultimate-list-of-top-5-plant-identification-tools/"><u>Best Android Applications: The Ultimate List of Top 5 Plant Identification Tools</u></a></li>
-<li><a href="https://howto.techidaily.com/best-methods-for-lava-blaze-2-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Lava Blaze 2 Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/clearstream-2v-hd-antenna-reviewed-high-performance-technology-in-an-unattractive-package-what-you-need-to-know/"><u>ClearStream 2V HD Antenna Reviewed: High-Performance Technology in an Unattractive Package – What You Need to Know</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-game-insight-on-monster-hunter-world-a-guide-to-formidable-creatures/"><u>Comprehensive Game Insight on 'Monster Hunter: World': A Guide to Formidable Creatures</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-kootek-laptop-cooler-evaluation-an-excellent-choice-for-gamers-and-professionals/"><u>Comprehensive Kootek Laptop Cooler Evaluation: An Excellent Choice for Gamers and Professionals</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-reliability-and-velocity-in-motorola-mg7700/"><u>Comprehensive Review: Reliability & Velocity in Motorola MG7700</u></a></li>
-<li><a href="https://article-tips.techidaily.com/comprehensive-scrutiny-of-elite-parrot-ar-20/"><u>Comprehensive Scrutiny of Elite Parrot AR 2.0</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/conquer-backyards-with-the-galaxy-ford-f150-an-ultimate-guide-to-this-mighty-rc-truck/"><u>Conquer Backyards with the Galaxy Ford F150 - An Ultimate Guide to This Mighty RC Truck</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/detailed-analysis-of-the-thrilling-overwatch-team-action-shooter-excellence/"><u>Detailed Analysis of the Thrilling Overwatch: Team Action Shooter Excellence</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-how-the-google-pixel-5-blends-economical-pricing-with-top-tier-specifications-our-expert-review/"><u>Discover How the Google Pixel 5 Blends Economical Pricing with Top-Tier Specifications – Our Expert Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-how-to-increase-the-game-variety-on-your-nes-mini-edition/"><u>Discover How to Increase the Game Variety on Your NES Mini Edition</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/elevate-your-training-game-the-premier-selection-of-wrist-worn-fitness-trackers/"><u>Elevate Your Training Game : The Premier Selection of Wrist-Worn Fitness Trackers</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/inside-out-stardew-valley-and-the-allure-of-ginger-island/"><u>Inside Out Stardew Valley and the Allure of Ginger Island</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/panoramic-viewpoint-gear-for-vr/"><u>Panoramic Viewpoint Gear for VR</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-insta-boomerang-strategies-for-engaging-loops/"><u>[New] Insta-Boomerang Strategies for Engaging Loops</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-pioneering-technology-cutting-edge-screen-capture-software-listings-for-2024/"><u>[New] Pioneering Technology Cutting-Edge Screen Capture Software Listings for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-guide-to-pubg-voice-customization/"><u>[New] The Ultimate Guide to PUBG Voice Customization</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-best-5-fpv-goggles-for-drone-racing/"><u>[Updated] In 2024, Best 5 FPV Goggles for Drone Racing</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-navigating-the-intricacies-of-networked-livestream-with-vlc/"><u>[Updated] In 2024, Navigating the Intricacies of Networked Livestream with VLC</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-the-acer-chromebook-15-an-affordable-choice-with-spacious-screen-real-estate/"><u>Comprehensive Review: The Acer Chromebook 15, an Affordable Choice with Spacious Screen Real Estate</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-excellence-top-cable-modem-picks-for-2eplus24/"><u>Discovering Excellence: Top Cable Modem Picks for 2E+24</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/effective-ways-to-utilize-tailored-command-functionality-with-chatgpt/"><u>Effective Ways to Utilize Tailored Command Functionality with ChatGPT</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/free-to-air-hd-channel-selection-made-easy-with-amazonbasics-flat-tv-antenna-what-you-need-to-know/"><u>Free to Air HD Channel Selection Made Easy With AmazonBasics Flat TV Antenna – What You Need To Know</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-navigating-novelty-applying-cartoon-lenses-in-snapchat/"><u>In 2024, Navigating Novelty Applying Cartoon Lenses in Snapchat</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/stealthy-view-tips-for-invisible-instagram-stories-consumption-via-pcandroidiphone/"><u>Stealthy View Tips for Invisible Instagram Stories Consumption via PC/Android/iPhone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-roundup-of-movie-preview-collections-on-the-internet-7-must-see-pages/"><u>The Ultimate Roundup of Movie Preview Collections on the Internet - 7 Must-See Pages</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-5-essentials-a-comprehensive-guide-before-purchasing-your-perfect-fitness-tracker/"><u>Top 5 Essentials: A Comprehensive Guide Before Purchasing Your Perfect Fitness Tracker</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-latest-and-greatest-a-comprehensive-look-at-the-apple-iphone-12/"><u>Unveiling the Latest and Greatest: A Comprehensive Look at the Apple iPhone 12</u></a></li>
 </ul></div>
 

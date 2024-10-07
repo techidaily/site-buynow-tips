@@ -1,7 +1,7 @@
 ---
 title: Evaluating Cost and Quality in Routers with the TP-Link Archer C50 Analysis
-date: 2024-08-22T18:10:40.106Z
-updated: 2024-08-23T18:10:40.106Z
+date: 2024-10-04T04:02:30.770Z
+updated: 2024-10-06T19:41:47.884Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating Cost and Quality in Routers with the TP-Link Archer C50 Analysis
@@ -63,9 +63,6 @@ Lifewire / Erika Rawes
 
  The TP-Link Archer C80 is an affordable[long range router](https://www.lifewire.com/best-long-range-routers-4122554) that should be ideal for medium-sized homes. With 3x3[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , parental controls, and remote control using TP-Link’s Tether app, the Archer C80 has a few admirable features for a router under $100, but it also lacks some of the things we’ve come to expect in a router in this price range (like smart assistant compatibility and no USB port). I tested the TP-Link Archer C80 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment when compared to other budget routers on the market.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ## **Design: Basic, but effective**
 
  The Archer C80 is an exceptionally small router, with a body that measures only 4.6 inches tall, 8.5 inches wide, and 1.26 inches in depth. Since its body is smaller than a paperback book, the router can sit inconspicuously on a table or desk. It also has two keyhole mounts on the back for mounting on a wall.
@@ -74,13 +71,6 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/Ep4Dk2l5q44AgM0S3cs9My3AE3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_03-a367c45b39474785856cb986e82c88dc.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
  Overall, the C80 feels pretty sturdy. There are four antennas, and they don’t feel flimsy or easily breakable. The antennas are exceptionally long—disproportionately so when compared to the router’s body—but the length of the antennas is advantageous for performance. You can move the antennas 90 degrees up and down and roughly 180 degrees side to side, which lets you appropriately adjust them for placement on a wall or table. The Gigabit Ethernet ports (one WAN, four LAN) and power adapter port are located on the back of the device, which is ideal for placement on a flat surface, but not as great for mounting on a wall because the cables come out of the top of the router, and they’re difficult to hide or organize.
@@ -96,9 +86,20 @@ No advertising on the website.
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/tXeiVJNqjtwMg97as87xxtsMwhc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_04-375b5f92ce9d44f4af109c8f6bfada16.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Network Performance: Fast speeds, No USB port**
 
@@ -110,11 +111,25 @@ No advertising on the website.
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Range: Even better than advertised**
 
  TP-Link advertises the C80 as a router for three-bedroom homes. However, that estimate understates the router’s range capabilities. My home is a two-story, 3,000 square-foot residence with five-bedrooms, and I was able to maintain a stable Wi-Fi connection in every corner. Every closet, bathroom, and bedroom got a steady signal, and I experienced no dead zones whatsoever. Even in the garage, front yard, and backyard, the signal remained strong. It was only when I attempted to use multiple gaming and streaming devices at one time that I experienced any sort of lag.
 
  Every closet, bathroom, and bedroom maintained a signal, and I experienced no dead zones whatsoever.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: TP-Link Tether app**
 
@@ -127,20 +142,18 @@ No advertising on the website.
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ## **Price: Around 100 bucks**
 
  The TP-Link Archer C80 sells for $100, which is a reasonable price for the unit considering it offers fast speeds, dual-band connectivity, and technologies like MU-MIMO to enhance performance.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **TP-Link Archer C80 vs. TP-Link Archer A9**
 
  The Archer A9 is another affordable offering from TP-Link, with a price tag of under $100\. However, the A9 has a USB port and is compatible with Alexa and[IFTTT](https://www.lifewire.com/what-is-ifttt-4172417) —features the C80 lacks. I recently tested the A9 as well. The A9 offers more in the way of features, but I was able to get faster speeds and better coverage out of the C80\. If you want a router that offers a more comprehensive experience, go with the A9\. If you just want an affordable, speedy router that will maintain a signal at long range, you’ll probably be happy with the C80.
@@ -177,8 +190,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -186,4 +197,20 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-hit-the-right-notes-music-mastery-on-instagram/"><u>[New] 2024 Approved Hit the Right Notes Music Mastery on Instagram</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-best-on-action-cameras-with-premium-mics-for-2024/"><u>[New] Best On-Action Cameras with Premium Mics for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-top-5-freefire-techniques-for-gaming-vloggers/"><u>[New] In 2024, Top 5 FreeFire Techniques for Gaming Vloggers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-conquering-the-dilemma-how-to-send-videos-on-facebook-message-for-2024/"><u>[Updated] Conquering the Dilemma How to Send Videos on Facebook Message for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-invisible-riches-the-online-auction-exclusive-to-the-elusive-2023-edition/"><u>[Updated] Invisible Riches The Online Auction Exclusive to the Elusive, 2023 Edition</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-quality-matters-the-advantages-and-disadvantages-of-different-fps/"><u>2024 Approved Quality Matters The Advantages & Disadvantages of Different FPS</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-thrills-with-syma-s111g-rc-helicopter-an-in-depth-overview/"><u>Affordable Thrills with Syma S111G RC Helicopter - An In-Depth Overview</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/choosing-your-smartphone-iphone-vs-android-finding-the-perfect-match/"><u>Choosing Your Smartphone: IPhone Vs. Android - Finding the Perfect Match</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-samsungs-flagship-phones-a-detailed-review-of-the-galaxy-s10plus-vs-s20/"><u>Comparing Samsung's Flagship Phones: A Detailed Review of the Galaxy S10+ Vs. S20</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-samsung-galaxy-tab-s6-features-s-pen-and-dex-mode-unveiled/"><u>Comprehensive Evaluation of the Samsung Galaxy Tab S6 Features - S Pen & Dex Mode Unveiled</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/earn-1000-fast-enter-movavi-scholarship-contest-in-under-two-minutes/"><u>Earn $1,000 Fast - Enter Movavi Scholarship Contest in Under Two Minutes!</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-samsung-galaxy-a25-5g-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Samsung Galaxy A25 5G</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-itel-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Itel S23+? | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Mobvoi TicWatch E2 on a Budget - Is It Really Cheap Enough to Ignore Its Flaws?
-date: 2024-08-27T12:06:54.721Z
-updated: 2024-08-28T12:06:54.721Z
+date: 2024-09-29T23:52:32.707Z
+updated: 2024-10-06T19:44:45.756Z
 categories:
   - BestProducts
 description: This Article Describes The Mobvoi TicWatch E2 on a Budget - Is It Really Cheap Enough to Ignore Its Flaws?
@@ -42,6 +42,13 @@ Lifewire / Yoona Wagener
 
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/N-GQ6pPXvhJw5LQ_NHsY_n8NkZQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_HeroSquare-666cef27669e4f4ea53d69a546098b20.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
 [View On Amazon $120](https://www.amazon.com/dp/B08BRFWGMC/?tag=lifewire-onsite-prod-20&ascsubtag=5120915%7Cnc635061288084b3aac8ef97dc66e8cb722%7CB08BRFWGMC) [View On Walmart $170](https://www.walmart.com/ip/753687122) [View On Adorama.com $300](https://www.adorama.com/mbp10320003a.html)
@@ -67,13 +74,24 @@ Lifewire / Yoona Wagener
  This Wear OS device is friendly to both iPhone and Android users, though it's decidedly still more beneficial to the latter. Despite missing out on some key features best for[Android phones](https://www.lifewire.com/best-android-smartphones-577403) and generally feeling like this was just a bit too much watch for my wrist, I came away from a few days of use impressed by the battery life and solid workout tracking.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Design: Sleek and sporty with a large display
 
  If you enjoy a prominent display, the TicWatch Pro 3 offers that in spades, with a unique 1.4-inch two-fold design. The top layer is an always-on, low-light display that's usable in an extended battery-saving mode (Essential Mode). Underneath this efficient layer, you'll find a bright 454 x 454 Retina AMOLED display that adjusts automatically based on the amount of available light. Mobvoi also offers an extensive library of watch faces on the device itself or through the companion apps.
 
  The all-black build and face design gives this watch a sporty feel, extended by the two large buttons that serve as handy controls for launching workouts or waking the display. This display is also touch-responsive, which I found functioned well generally. There were moments when taps and swipes didn't seem to register immediately. These incidents were infrequent and minor when compared to the general user-friendliness of the device.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Comfort: Bulky for extended wear
 
@@ -101,9 +119,6 @@ Lifewire / Yoona Wagener
 
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/24UwZRaSR9Dx9_LbhC0ICDpEF2s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_03-35584bf0589a4ad19fcd9280d973018c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Lifewire / Yoona Wagener
 
  Sleep data was a little inconsistent in terms of when the device detected sleep. Sometimes the sleep start times were a couple of hours off. Generally, I was pleased with the presentation of sleep and exercise data. It's easy enough to glance at results from the watch and entirely forego a companion app.
@@ -129,8 +144,12 @@ Lifewire / Yoona Wagener
  The TicWatch Pro 3 does have 8GB of onboard storage, which makes this watch attractive for Android smartphone users who want to use it for onboard music storage. Apps like NavMusic make this easy. Android users also have easier control over and access to third-party fitness, productivity, and other useful apps from the[Google Play](https://www.lifewire.com/what-is-google-play-1616720) store than iOS users—who will likely find this a bit clunky to manage.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Battery: Solid 72-hour longevity
 
  Mobvoi touts the 72-hour battery life of the TicWatch Pro 3 in smart mode, and it delivers. I used the TicWatch Pro 3 exclusively in this highly connected mode, including a workout a day, and this watch was still chugging along by day three. Of course, battery performance always varies depending on usage. I didn't run any extra apps, store and play music, or leave the display to the always-on setting, which all helped me reach the three-day mark.
@@ -143,14 +162,15 @@ Lifewire / Yoona Wagener
 
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/O2h1ls6gDrmzljZ5SvO0QEkrLIE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_02-03e93150d27d41f89e14d807aad2d10d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Price: A bit costly for those missing a few premium features
 
  The TicWatch Pro 3 retails for nearly $300, a considerable investment on par with some[smartphones](https://www.lifewire.com/best-smartphones-4043781) . It's also steep considering that, unlike some premium wearables, this watch lacks an ECG monitor or other wellness bells and whistles. Fit personalization isn't as generous as some wearables, either.
@@ -173,9 +193,6 @@ Lifewire / Yoona Wagener
 
  The Mobvoi TicWatch Pro 3 GPS is a sporty, sleek smartwatch with good looks and great battery life. While the larger profile won't fit everyone, Android users, in particular, will find a lot to enjoy about this customizable wearable that functions as a daily workout tracker, smartwatch companion, and reliable time-telling accessory.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Apple Watch SE](https://www.lifewire.com/apple-watch-se-review-5088223)
@@ -202,14 +219,11 @@ Lifewire / Yoona Wagener
 * Water Resistance  IP68
 * Connectivity  Bluetooth, Wi-Fi
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -218,4 +232,17 @@ Lifewire / Yoona Wagener
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-3-step-guide-to-ascertain-googles-profitable-potential-youtube-analysis/"><u>[New] In 2024, 3-Step Guide to Ascertain Google's Profitable Potential YouTube Analysis</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-step-up-your-income-game-with-these-13-unbeatable-reddit-tactics/"><u>[New] Step Up Your Income Game with These 13 Unbeatable Reddit Tactics</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-leading-websites-for-free-game-of-thrones-ringtones/"><u>2024 Approved Leading Websites for Free Game of Thrones Ringtones</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-closer-look-at-the-microsoft-surface-go-balancing-cost-efficiency-with-a-confusing-identity/"><u>A Closer Look at the Microsoft Surface Go - Balancing Cost Efficiency with a Confusing Identity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/acer-xf2-40-desktop-prioritizing-performance-in-modern-design/"><u>Acer XF2-40 Desktop: Prioritizing Performance in Modern Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/alcatel-joy-tab-2-lte-tablet-evaluation-affordable-performance/"><u>Alcatel Joy Tab 2 LTE Tablet Evaluation - Affordable Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-watch-series-9-review/"><u>Apple Watch Series 9 Review</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-latest-driver-for-your-asus-usb-bt500-bluetooth-adapter-on-windows-operating-systems/"><u>Get the Latest Driver for Your Asus USB-BT500 Bluetooth Adapter on Windows Operating Systems</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-unlocked-iphone-11-pro-by-drfone-ios/"><u>In 2024, Everything You Need To Know About Unlocked iPhone 11 Pro</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-artists-toolkit-creating-collages/"><u>The Artist's Toolkit Creating Collages</u></a></li>
+</ul></div>
 

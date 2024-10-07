@@ -1,7 +1,7 @@
 ---
 title: Xbox Series S Review
-date: 2024-08-22T18:10:27.374Z
-updated: 2024-08-23T18:10:27.374Z
+date: 2024-10-02T21:21:16.325Z
+updated: 2024-10-06T19:59:58.328Z
 categories:
   - BestProducts
 description: This Article Describes Xbox Series S Review
@@ -77,18 +77,15 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/Eq0YCIdbj82yj3lOCWEdZS7jX6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-4-341174c3997543728bd2b024c6e2a309.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Plot: Open world horror sandbox**
 
  When you first begin gameplay, it takes about 20 seconds for it to boot up, and then you’re gasping, holding your bare hands out before you, drinking in the landscape of one of five biomes: snow, forest, desert, wasteland, and burnt.
@@ -103,11 +100,15 @@ No advertising on the website.
 
 ![7 Days to Die](https://www.lifewire.com/thmb/U2XChOqkiQvFhP69V0cQ5mYcYME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-3-d19d9b4d19734cffb022d6e0db90382e.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Gameplay: Could be better, but solid overall**
 
  7 Days to Die boasts two playable maps: Navezgane, which is a massive square map consisting of five biomes in which you can use the sandbox world to your advantage; and random map generation, which is a map that randomly spawns cities and biomes. The latter is for players who want a greater challenge, as no random map is the same. The former, however, has fun elements like a school, complete with charging football zombies, and a strip club. From these two kinds of maps alone, gameplay can last for hours (as we said, we’ve clocked in 500 hours at this point).
@@ -130,9 +131,6 @@ No advertising on the website.
 
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## **Graphics: Outdated, but detailed on optimal**
 
  For a game that was released in 2013 originally, the graphics could be a little better, even if you play on optimal settings. Back in the day, we played on lower settings rather than splurge on a fancy graphics card. If you play on the lower settings, it’s cringeworthy, though not as cringeworthy as the Witcher 3’s lowest settings.
@@ -142,8 +140,12 @@ No advertising on the website.
  Because the graphics are a rather mixed bag, the frames per second (fps) can vary dramatically. We experienced drops as low as 18 fps when playing. When surrounded by a horde, that can cost you your life.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Platform: It’s complicated**
 
  7 Days to Die runs on many platforms:[PC](https://www.lifewire.com/what-is-a-mac-4155662) ,[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) , and[Xbox 360](https://www.lifewire.com/xbox-360-buyers-guide-3562451) . We played 7 Days on PC, and at the time of writing, they released a teaser for the Alpha 18 update which would roll out to the PC version of the game.
@@ -151,8 +153,12 @@ No advertising on the website.
  Last time we checked, the company that owned all console rights, Telltale, went bust, and The Fun Pimps (the developer) were in legal limbo trying to reacquire their own rights. There’s a good chance that there will not be an update in the console versions of the game anytime soon as this issue makes its way through the courts. Therefore, we strongly recommend that you purchase the PC version if you decide this is a game you might like to try.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Average for an alpha game**
 
  At around $25, 7 Days isn’t the most expensive zombie game on the market. However, it is the most expensive alpha zombie game out there. Because you can purchase it on[Steam](https://www.lifewire.com/what-is-steam-4177380) or Humble Bumble, we recommend waiting for a Steam sale and getting it for a discount, especially since it’s still in progress. This way, if you decide you don’t like it in the future, you aren’t out the full price.
@@ -175,6 +181,19 @@ No advertising on the website.
 * [Days Gone](https://www.lifewire.com/days-gone-review-4778364)
 * [Dying Light](https://www.lifewire.com/dying-light-review-4778324)
 
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  7 Days to Die
@@ -187,14 +206,11 @@ No advertising on the website.
 * Graphics  1 GB Dedicated Memory
 * Game Updates  Alpha 17.4 out; Alpha 18 Announced
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -203,4 +219,26 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/updated-exploring-top-videography-apps-for-enhanced-win11-experience-for-2024/"><u>[Updated] Exploring Top Videography Apps for Enhanced Win11 Experience for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-the-quick-start-method-for-combining-obs-and-zoom/"><u>[Updated] The Quick-Start Method for Combining OBS & Zoom</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-iview-harmony-ios-and-macos-slideshow-tool/"><u>2024 Approved IView Harmony IOS & macOS Slideshow Tool</u></a></li>
+<li><a href="https://common-error.techidaily.com/arrow-key-issues-on-your-keyboard-fix-them-with-these-expert-methods/"><u>Arrow Key Issues on Your Keyboard? Fix Them With These Expert Methods!</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/chatgpts-impact-on-wearable-tech-the-6-most-game-changing-features/"><u>ChatGPT's Impact on Wearable Tech: The 6 Most Game-Changing Features</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>How to Change Location On Facebook Dating for your Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-motorola-edge-40-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Motorola Edge 40 Device SIM</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/insta360-unveiled-a-360-vr-camera-for-every-water-enthusiast/"><u>Insta360 Unveiled: A 360 VR Camera for Every Water Enthusiast</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/interactive-elements/"><u>Interactive Elements:</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-2024-innovations-the-ultimate-list-of-smart-fitness-wristbands/"><u>Leading 2024 Innovations: The Ultimate List of Smart Fitness Wristbands</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lg-stylo-6-craftsmens-guide-the-perfect-blend-of-style-and-functionality/"><u>LG Stylo 6 Craftsmen's Guide - The Perfect Blend of Style & Functionality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mini-meets-marvel-razer-book-13-evaluation-for-ultimate-gaming-prowess/"><u>Mini Meets Marvel: Razer Book 13 Evaluation for Ultimate Gaming Prowess</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/more-than-just-raw-power-a-comprehensive-look-at-the-playstation-5/"><u>More Than Just Raw Power: A Comprehensive Look at the PlayStation 5</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/pushing-boundaries-in-gaming-examining-the-4k-transformation-with-playstation-4-pro/"><u>Pushing Boundaries in Gaming: Examining the 4K Transformation with PlayStation 4 Pro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ranking-the-most-advanced-runners-gps-devices/"><u>Ranking the Most Advanced Runner's GPS Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revealing-review-barnes-and-nobles-latest-innovation-a-closer-look-at-the-enlarged-display-ebook-reader/"><u>Revealing Review: Barnes & Noble's Latest Innovation - A Closer Look at the Enlarged Display eBook Reader</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-locals-learn-romanian-fast/"><u>Speak Like Locals, Learn Romanian Fast</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/step-by-step-walkthrough-of-the-arlo-video-monitoring-setup/"><u>Step-by-Step Walkthrough of the Arlo Video Monitoring Setup</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-webcam-apps-compatible-with-camfrog-and-manycam-enhance-your-chats/"><u>Top Webcam Apps Compatible with CamFrog & ManyCam: Enhance Your Chats!</u></a></li>
+</ul></div>
 

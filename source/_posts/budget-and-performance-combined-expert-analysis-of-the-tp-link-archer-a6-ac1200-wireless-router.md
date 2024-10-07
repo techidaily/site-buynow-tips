@@ -1,7 +1,7 @@
 ---
 title: "Budget and Performance Combined: Expert Analysis of the TP-Link Archer A6 AC1200 Wireless Router"
-date: 2024-08-22T18:09:21.290Z
-updated: 2024-08-23T18:09:21.290Z
+date: 2024-09-29T22:29:48.941Z
+updated: 2024-10-06T22:24:06.218Z
 categories:
   - BestProducts
 description: "This Article Describes Budget and Performance Combined: Expert Analysis of the TP-Link Archer A6 AC1200 Wireless Router"
@@ -74,13 +74,20 @@ Lifewire / Erika Rawes
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/GZA_WscJ6ZMkjJEY-JNFoGWW54c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_05-f0a147fb3abe4825a663bc12ac51629e.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Connectivity: Dual Band AC1900**
 
  The Archer A9 is a[dual-band](https://www.lifewire.com/dual-band-wireless-networking-explained-818279) AC1900 router, so speeds max out at 1300 Mbps over the 5Ghz band and 600 Mbps over the 2.4 Ghz band. Setting up the networks was fast and easy, and I had my 5 Ghz and my 2.4 Ghz networks set up within five minutes using the companion app.
@@ -100,8 +107,12 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Network Performance: Not bad**
 
  I live in a suburb about 20 miles outside of Raleigh, NC, and I have Spectrum (a Charter company) as my internet service provider. Internet speeds in my home max out at 400 Mbps.
@@ -109,10 +120,12 @@ Lifewire / Erika Rawes
  In the same room as the router, speeds were excellent (naturally), getting up to 352 Mbps on the 5 Ghz band and 76 Mbps on the 2.4 Ghz band. I traveled upstairs, and speeds clocked in at a respectable 124 Mbps on the 5Ghz band and 36 Mbps over 2.4 Ghz. The signal remained strong almost everywhere in my two-level home, even in areas like closets, and many other places that could conceivably be Wi-Fi dead zones. However, I experienced a few slow zones in my garage, and in a guest room located on the opposite side of the home. I also experienced a spotty connection in the yard. The signal degraded significantly around the home’s exterior, so if you like to use your devices outside, you’ll want to invest in a[Wi-Fi extender](https://www.lifewire.com/best-wifi-extenders-4043312) , or go with a different router entirely.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Range: Around 2,000 square feet (give or take)**
 
  I didn’t see an exact range for the Archer A9 in the spec sheet, but I was able to get coverage in just about every area of my 3,000 square foot home. This is not to say the range is 3,000 square feet, as several factors like the type and number of devices you have, wall thickness, obstructions, your ISP, and other factors can all impact the signal quality and range. Generally speaking, it’s safe to say the A9 could probably cover at least a 2,000 square foot house.
@@ -121,9 +134,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ## **Software: Tether app**
 
  The TP-Link Tether app is one of my favorite router companion apps. It’s super easy to set up your networks, as well as create a guest network, which is nice for when guests visit, so you have a Wi-Fi network ready to go without compromising your network security.
@@ -134,6 +144,13 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  You can say things like, “Alexa, ask TP-Link to enable guest network” or “Alexa, ask TP-Link to prioritize gaming.”
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Under $100**
 
  The Archer A9 sells on Amazon for under $100\. For a router with its feature set, this is an exceptional value.
@@ -141,8 +158,12 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/OshgKkDe7GvQPFAb_AgVDAYTF_4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_04-65a3ae04454e40c3865f1d426bcb36db.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **TP-Link Archer A9 vs. Netgear AC2300 Nighthawk Smart Wi-Fi Router**
@@ -175,14 +196,11 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 * Range  Long range
 * Parental Controls  Yes
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -191,4 +209,19 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-simple-screen-recorder-for-windows-11/"><u>[New] 2024 Approved Simple Screen Recorder for Windows 11</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2023s-premier-game-lineup-for-your-steam-deck-adventure/"><u>2023'S Premier Game Lineup for Your Steam Deck Adventure</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-legal-tactics-to-skyrocket-your-videos-visibility/"><u>2024 Approved Legal Tactics to Skyrocket Your Video's Visibility</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-virtual-realms-explored-the-best-sci-fi-movies-for-immersion-enthusiasts/"><u>2024 Approved Virtual Realms Explored The Best Sci-Fi Movies for Immersion Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-critique-on-the-photo-capture-of-the-google-pixel-6-targeting-key-features/"><u>A Critique on the Photo Capture of the Google Pixel 6 – Targeting Key Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-watch-series-6-evaluation-subtle-improvements-yet-maintains-top-rank/"><u>Apple Watch Series 6 Evaluation: Subtle Improvements Yet Maintains Top Rank</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/asus-ax6000-rt-ax88u-top-smart-wi-fi-6-router-evaluated/"><u>Asus AX6000 RT-AX88U - Top Smart Wi-Fi 6 Router Evaluated</u></a></li>
+<li><a href="https://win-answers.techidaily.com/god-of-war-gameplay-optimization-fixes-for-available-memory-shortage-challenges/"><u>God of War Gameplay Optimization: Fixes for Available Memory Shortage Challenges</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-simple-process-for-preserving-tweets-imagesvideos/"><u>In 2024, Simple Process for Preserving Tweets' Images/Videos</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-essential-photographers-toolkit-polarr-edition/"><u>The Essential Photographer's Toolkit - Polarr Edition</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-the-ultimate-reaction-video-hack-streamline-your-process-with-filmora-for-2024/"><u>Updated The Ultimate Reaction Video Hack Streamline Your Process with Filmora for 2024</u></a></li>
+</ul></div>
 

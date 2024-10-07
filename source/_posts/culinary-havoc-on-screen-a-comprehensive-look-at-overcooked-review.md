@@ -1,7 +1,7 @@
 ---
 title: "Culinary Havoc on Screen: A Comprehensive Look at Overcooked! ² Review"
-date: 2024-08-27T12:10:03.312Z
-updated: 2024-08-28T12:10:03.312Z
+date: 2024-10-06T03:01:17.948Z
+updated: 2024-10-07T03:05:41.240Z
 categories:
   - BestProducts
 description: "This Article Describes Culinary Havoc on Screen: A Comprehensive Look at Overcooked! ² Review"
@@ -73,18 +73,12 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Emily Ramirez
 
 ## **Setup Process/Installation: Easy install, irritating setup**
@@ -97,11 +91,15 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Audio: Excellent sound**
 
  Once the EQ effects are turned off, the Sound Blaster ZxR provides beautiful sound. While it wasn’t quite as clean or crisp as an enthusiast audiophile amplifier, such as the OPPO HA-1, it was solid for a system that costs a quarter of the HA-1’s price. On the HD-800s, the bass came across slightly muddy, but the ZxR provides solid quality for consumer-grade headphones like the Sennheiser GSP300 or the Sony MDR-7506\. As our our[headphone buying guide](https://www.lifewire.com/headphones-buying-guide-4172763) suggests, most headphones under $250 will not be sensitive enough to meaningfully distinguish between the ZxR and the HA-1.
@@ -110,7 +108,21 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Lots of options with mixed utility**
 
@@ -120,14 +132,17 @@ Lifewire / Emily Ramirez
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## **Competition:** **Falls short of less expensive options**
 
  As we’ve already emphasized, it’s difficult to recommend the aging ZxR at its inflated $250 MSRP. You can find a number of sound cards for significantly less that provide competitive performance, though they generally don’t offer the same robust software package as the ZxR.
@@ -148,19 +163,18 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Sound Blaster ZxR
@@ -184,14 +198,11 @@ The powerful video editing program for your Windows PC</a>
 * Software  Sound Blaster Z-Series Software
 * What’s Included  Sound Blaster ZxR sound card, Sound Blaster DBpro card, Sound Blaster Audio Control Module, 1Optical Cable, 1x Stereo(3.5mm)-to-RCA cable, 1x DBpro cable, Quick Start Leaflet, Installation CD containing: Drivers for Windows 7 and Windows 8, Creative Software Suite, User's Guide
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -200,4 +211,26 @@ The powerful video editing program for your Windows PC</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-insta-gurus-guide-the-essential-hashtags-you-need-today/"><u>[New] Insta Gurus Guide The Essential Hashtags You Need Today</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-transform-your-canon-shots-access-to-unlimited-free-and-purchasable-luts/"><u>[New] Transform Your Canon Shots Access to Unlimited Free & Purchasable LUTs</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/audio-amplification-for-impressive-instagram-reels-for-2024/"><u>Audio Amplification for Impressive Instagram Reels for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/16-youtube-intro-makers-to-bring-you-more-views/"><u>Best 16 YouTube Intro Makers to Bring You More Views</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-nokia-c22-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/designing-your-unique-gpt-model-from-scratch/"><u>Designing Your Unique GPT Model From Scratch</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-do-you-remove-restricted-mode-on-apple-iphone-se-2020-by-drfone-ios/"><u>How Do You Remove Restricted Mode on Apple iPhone SE (2020)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-grab-and-store-the-quickest-tools-to-save-social-media-videos/"><u>In 2024, Grab & Store The Quickest Tools to Save Social Media Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagram-story-wizardry-secrets-revealed-for-2024/"><u>Instagram Story Wizardry Secrets Revealed for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723032693534-skyrim-on-nintendo-switch-the-ultimate-rpg-adventure-awaits/"><u>Skyrim on Nintendo Switch: The Ultimate RPG Adventure Awaits</u></a></li>
+<li><a href="https://driver-download.techidaily.com/step-by-step-installing-the-wacom-intuos-pro-drivers-for-optimal-performance-in-windows-11/"><u>Step-by-Step: Installing the Wacom Intuos Pro Drivers for Optimal Performance in Windows 11</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723088574330-transition-mechanisms-between-ipv4-and-ipv6-require-careful-consideration-of-their-increased-attack-surface-and-potential-exposure-risks/"><u>Transition Mechanisms Between IPv4 and IPv6 Require Careful Consideration of Their Increased Attack Surface and Potential Exposure Risks.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlocking-grand-escapades-within-yokus-island-express-a-captivating-review/"><u>Unlocking Grand Escapades Within Yoku's Island Express - A Captivating Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-craftsmanship-behind-michael-kors-gen-5e-accessories-a-detailed-product-analysis-and-reviews/"><u>Unveiling the Craftsmanship Behind Michael Kors Gen 5E Accessories: A Detailed Product Analysis and Reviews</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-features-the-easy-setup-and-sturdy-construction-of-the-acurite-pro-0103n-weather-monitor/"><u>Unveiling the Features: The Easy Setup & Sturdy Construction of the AcuRite Pro 0103N Weather Monitor</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-dynamics-in-tropico-6-a-paradise-under-authority/"><u>Unveiling the Power Dynamics in Tropico 6 - A Paradise Under Authority</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-strengths-of-the-nokia-72-stellar-performance-for-its-price-range/"><u>Unveiling the Strengths of the Nokia 7.2: Stellar Performance for Its Price Range</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-truth-behind-the-google-pixel-6-phenomenon-expert-review/"><u>Unveiling the Truth Behind the Google Pixel 6 Phenomenon - Expert Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/waterproof-nikon-unboxed-the-coolpix-w100-review/"><u>Waterproof Nikon Unboxed: The Coolpix W100 Review</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Untold Story Behind the Glitches: A Deep Dive Into Cyberpunk 2077'S Release Woes"
-date: 2024-08-22T18:11:33.272Z
-updated: 2024-08-23T18:11:33.272Z
+date: 2024-10-01T17:50:33.665Z
+updated: 2024-10-06T17:17:15.952Z
 categories:
   - BestProducts
 description: "This Article Describes The Untold Story Behind the Glitches: A Deep Dive Into Cyberpunk 2077'S Release Woes"
@@ -68,11 +68,22 @@ Lifewire / Jeremy Laukkonen
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/RdkUagNDw_OXvrfwGOGMOW0T13A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215_06-4afb73694c464ec8a21e45d7f8ad3327.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design: Big, bulky, and basic, with a filtered pass-through**
 
  Extollo won’t win any awards for the basic, blocky design of the LANSocket 1500 adapters. They’re big, plastic, white, and take up a lot of space. That’s somewhat mediated by the inclusion of a pass-through electrical socket, which is a really nice touch.
@@ -87,15 +98,8 @@ Lifewire / Jeremy Laukkonen
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/Ahhqweppp7LoE4s2gervkZuyOS8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-04-e086de486a5a4e16ac16cff8ae813b22.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Pain-free plug and play**
 
  Home networking is a complicated subject, but setting up a pair of LANSocket 1500 adapters is about as simple as it gets. The kit includes two adapters and two[Ethernet cables](https://www.lifewire.com/what-is-an-ethernet-cable-817548) , which is really all you need to set up your[powerline network](https://www.lifewire.com/powerline-home-networking-and-homeplug-817720) .
@@ -110,14 +114,18 @@ The ultimate burning program for all your needs!</a>
 
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Connectivity: MIMO with beamforming**
 
  The Extollo LANSocket 1500 powerline adapters use the HomePlug AV2 specification, which includes support for[multi-in, multi-out (MIMO)](https://www.lifewire.com/mimo-wifi-routers-818332) with beamforming, which increases both speed and the allowable distance between adapters. This is a significant improvement over the HomePlug AV specification, which is slower and requires you to place your adapters more closely together.
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/B7pek1jOL0gtn-sl7QsuHcO3_CU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-03-04f860db31f049e1a2ecb40196f7aaf7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -133,9 +141,6 @@ The ultimate burning program for all your needs!</a>
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/s7sBTQQEDT14u1i6nHyeA6O4hEw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-05-d60cab3cba9446c1b398076a39432b70.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Jeremy Laukkonen
 
 ## **Software: Runs on an embedded Linux distribution**
@@ -152,6 +157,13 @@ The ultimate burning program for all your needs!</a>
 
  The embedded Linux distro does open up some security concerns, but they can be mostly erased if you connect through a firewalled router. You can find cheaper options, but the bottom line is that you won’t find a cheaper alternative that provides the same high speed, low latency, video buffering, and pass-through socket that you get with the LANSocket 1500.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Decent price for such good performance**
 
  The Extollo LANSocket 1500 has an MSRP of $90 for a set of two. That places these adapters right in the same general price range as other similar devices. You can find HomePlug AV2 compatible adapters for a little less, but they typically don’t perform quite as well.
@@ -159,8 +171,12 @@ The ultimate burning program for all your needs!</a>
  Since the LANSocket 1500 adapters are so easy to use, and provide such a high level of performance, it’s our judgment that they’re worth the $10 or so premium you’ll typically pay compared to similar competitors.
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Competition: Wins on transfer speeds with some security concerns**
 
  The LANSocket 1500 adapters compare very favorably to the competition in terms of transfer speed and latency. They do come with the added concern over security, due to the fact that they run on embedded Linux, but that’s easy enough to deal with if you have a firewalled router.
@@ -198,14 +214,11 @@ The ultimate burning program for all your needs!</a>
 * Chipset  Broadcom BCM60500
 * Parental Controls  No
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -214,4 +227,22 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-luminous-filmmaking-transform-your-videos-with-pro-tips/"><u>[Updated] 2024 Approved Luminous Filmmaking Transform Your Videos with Pro Tips</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unveiling-the-top-10-video-editing-apps-for-instagram-magic/"><u>[Updated] Unveiling the Top 10 Video Editing Apps for Instagram Magic</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/are-you-getting-your-moneys-worth-a-comprehveiw-on-the-mophie-powerstation-ac-charger/"><u>Are You Getting Your Money's Worth? A Comprehveiw on the Mophie Powerstation AC Charger</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/asus-zephyrus-g14-uncovered-a-flawless-merge-of-productivity-and-high-end-gaming/"><u>Asus Zephyrus G14 Uncovered - A Flawless Merge of Productivity and High-End Gaming</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/expert-analysis-of-the-latest-video-show-app-24-release/"><u>Expert Analysis of the Latest Video Show App '24 Release</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/fix-hidden-youtube-comment-problems-comprehensive-troubleshooting-techniques/"><u>Fix Hidden YouTube Comment Problems - Comprehensive Troubleshooting Techniques</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-huawei-nova-y71-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Huawei Nova Y71 to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/quick-and-fun-make-a-meme-with-kinemaster/"><u>Quick & Fun Make a Meme with KineMaster</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/reviving-dull-images-the-most-effective-10-web-editing-aids/"><u>Reviving Dull Images The Most Effective 10 Web Editing Aids</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/tweaking-your-tweets-audience-engagement-techniques-for-2024/"><u>Tweaking Your Tweets Audience Engagement Techniques for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-issues-with-microsofts-duo-a-troublesome-costly-mobile-device-reviewed/"><u>Unveiling Issues with Microsoft's Duo: A Troublesome, Costly Mobile Device Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-huion-gt-191-sketching-masterpiece-a-top-review-for-digital-artists/"><u>Unveiling the Huion GT-191 Sketching Masterpiece - A Top Review for Digital Artists</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-king-of-slate-a-comprehensive-review-of-the-2018-apple-ipad-pro-11-inch-market-dominators/"><u>Unveiling the King of Slate: A Comprehensive Review of the 2018 Apple iPad Pro (11-Inch) - Market Dominators</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-performance-of-linksys-velop-a-top-tier-wireless-router-review/"><u>Unveiling the Performance of Linksys Velop - A Top-Tier Wireless Router Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-secrets-affordable-thrills-with-the-quick-and-nimble-propella-7s-electric-scooter/"><u>Unveiling the Secrets: Affordable Thrills with the Quick and Nimble Propella 7S Electric Scooter!</u></a></li>
+</ul></div>
 

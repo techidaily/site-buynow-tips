@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Guide to Lenovo X12 Detachable: Excelling as a 2-in-1 Device with an Exceptional Keyboard Design"
-date: 2024-09-22T16:59:09.635Z
-updated: 2024-09-26T18:10:51.499Z
+date: 2024-10-04T21:23:33.383Z
+updated: 2024-10-07T03:04:36.843Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Guide to Lenovo X12 Detachable: Excelling as a 2-in-1 Device with an Exceptional Keyboard Design"
@@ -42,10 +42,10 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -77,6 +77,13 @@ Lifewire / Erika Rawes
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup: Relatively easy**
 
  Setting up the antenna is pretty straightforward. You start by plugging one end of the coaxial cable into the antenna, and then the other end to the coaxial/antenna-in connector to your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) .
@@ -88,13 +95,6 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels (in a rural area)**
 
@@ -112,19 +112,6 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
@@ -132,6 +119,13 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
@@ -144,16 +138,10 @@ Lifewire / Erika Rawes
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
 
 <!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -187,19 +175,20 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-create-an-awesome-valorant-thumbnail-for-youtube-videos/"><u>[New] 2024 Approved How To Create an Awesome Valorant Thumbnail for YouTube Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-exposing-sham-numbers-the-danger-of-fabricated-youtube-views-for-2024/"><u>[Updated] Exposing Sham Numbers The Danger of Fabricated YouTube Views for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-advanced-dynamic-typographic-options/"><u>2024 Approved Advanced Dynamic Typographic Options</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/assemble-slide-decks-into-virtual-screenplays/"><u>Assemble Slide Decks Into Virtual Screenplays</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/comprehensive-guide-moving-your-information-to-a-new-iphone-xs-or-xr-android-and-older-iphones-included/"><u>Comprehensive Guide: Moving Your Information to a New iPhone XS or XR - Android and Older iPhones Included</u></a></li>
-<li><a href="https://solve-luxury.techidaily.com/experience-professional-blackberry-video-conversion-for-free-secure-with-trialpay-access-to-premium-tools/"><u>Experience Professional BlackBerry Video Conversion for FREE, Secure with TrialPay Access to Premium Tools!</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-superior-sound-recorders-for-scholarly-discussions/"><u>In 2024, Superior Sound Recorders for Scholarly Discussions</u></a></li>
-<li><a href="https://discover-best.techidaily.com/solution-guide-for-non-functional-audio-playback-on-iphones-ipads-ipods-and-android-phones/"><u>Solution Guide for Non-Functional Audio Playback on iPhones, iPads, iPods, and Android Phones</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-best-choice-for-gamers-and-techies-a-thorough-review-of-the-asus-rog-gt-ac5300-router/"><u>The Best Choice for Gamers & Techies: A Thorough Review of the Asus ROG GT-Ac5300 Router</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-old-school-champion-revisited-in-depth-look-at-the-nulaxy-km18-bluetooth-car-receiver/"><u>The Old School Champion Revisited: In-Depth Look at the Nulaxy KM18 Bluetooth Car Receiver</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-winning-formula-understanding-wii-us-remarkable-achievements-in-gaming/"><u>The Winning Formula: Understanding Wii U's Remarkable Achievements in Gaming</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-programming-classes-on-the-web/"><u>Top-Rated Programming Classes on the Web</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/topo-ergonomic-mat-assessment-the-key-to-combat-foot-discomfort-at-work/"><u>Topo Ergonomic Mat Assessment - The Key to Combat Foot Discomfort at Work</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/transfer-techniques-securely-moving-data-to-desktop/"><u>Transfer Techniques Securely Moving Data to Desktop</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/solved-ntkrnlmpexe-blue-screen-error/"><u>[SOLVED] ntkrnlmp.exe Blue Screen Error</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-security-discovering-the-remobell-reviews-and-features-for-less-than-100/"><u>Affordable Security: Discovering the RemoBell Reviews and Features for Less Than $100</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/conquering-the-skies-a-thorough-examination-of-the-blade-blh4100-rc-helicopter-your-ultimate-guide-to-ready-to-fly-fun/"><u>Conquering the Skies: A Thorough Examination of the Blade BLH4100 RC Helicopter - Your Ultimate Guide to Ready To Fly Fun</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultivating-global-understanding-pathways-to-successful-communication/"><u>Cultivating Global Understanding: Pathways to Successful Communication</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cutting-edge-charging-solutions-reviewed-the-omnicharge-omni-similar-problem-for-stories/"><u>Cutting Edge Charging Solutions Reviewed - The Omnicharge Omni # Similar Problem for Stories</u></a></li>
+<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-oppo-find-x7-ultra-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Oppo Find X7 Ultra in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-evaluation-of-the-netatmo-weather-station-the-ultimate-gadget-for-mobile-device-lovers/"><u>Expert Evaluation of the Netatmo Weather Station: The Ultimate Gadget For Mobile Device Lovers</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/gpt-5-launch-speculations-and-predicted-timeline-for-the-next-ai-leap/"><u>GPT-5 Launch Speculations and Predicted Timeline for the Next AI Leap</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/hp-stream-11-laptop-ultimate-portable-tech-essentials/"><u>HP Stream 11 Laptop: Ultimate Portable Tech Essentials</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-realme-v30t-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Realme V30T online without jailbreak</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-portable-storage-solutions-your-2024-essential-list/"><u>Leading Portable Storage Solutions: Your 2024 Essential List</u></a></li>
+<li><a href="https://techtrends.techidaily.com/online-mp4-ogg-video-format-transformation-zero-cost-with-movavi/"><u>Online MP4-OGG Video Format Transformation: Zero Cost with Movavi</u></a></li>
+<li><a href="https://article-posts.techidaily.com/professional-editors-guide-fcps-top-10-plugins-for-2024/"><u>Professional Editor’s Guide FCP's Top 10 Plugins for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reviewing-the-thermopro-tp67-strikes-a-balance-between-price-and-dependability/"><u>Reviewing the ThermoPro TP67: Strikes a Balance Between Price and Dependability</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/simple-techniques-for-building-a-stunning-iphone-collage-for-2024/"><u>Simple Techniques for Building a Stunning iPhone Collage for 2024</u></a></li>
 </ul></div>
 

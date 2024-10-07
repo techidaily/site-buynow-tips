@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Analysis of the APC Back-UPS Pro 1500VA: Exceptional Energy Capacity & Versatile Outlet Configuration"
-date: 2024-08-27T12:10:23.009Z
-updated: 2024-08-28T12:10:23.009Z
+date: 2024-10-01T04:25:21.571Z
+updated: 2024-10-06T22:03:53.480Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Analysis of the APC Back-UPS Pro 1500VA: Exceptional Energy Capacity & Versatile Outlet Configuration"
@@ -44,6 +44,13 @@ Lifewire / Jeremy Laukkonen
 
 ![Amazon Luna](https://www.lifewire.com/thmb/NT3lnZ3hOwaGUbS2tHARE7zRT1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_Hero_Square-cced3e5a3d3e4d24af1b85a59c76932d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
 [View On Amazon](https://www.amazon.com/luna/landing-page?tag=lifewire-onsite-prod-20&ascsubtag=5119523%7Cnc95ba131dcd04d8fadef0bfb2a313e6816%7C)
@@ -85,6 +92,13 @@ Lifewire / Jeremy Laukkonen
 
 ![Amazon Luna](https://www.lifewire.com/thmb/jNDwaMGOVuF5UIISPsmdb5uQdGU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_04-985a4419a93945d2879b09d61fafae5a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
  In addition to the offset analog sticks, the Luna controller also features a fairly standard array of buttons. A somewhat mushy directional pad sits below the left analog stick, and four familiar face buttons sit above the right stick. The triggers are fairly shallow but feel responsive, and shoulder buttons are easily accessed without moving your fingers off the triggers. In addition to the standard array, the Luna controller also includes a microphone button to access Alexa.
@@ -97,9 +111,6 @@ Lifewire / Jeremy Laukkonen
 
  Overall, the Luna controller has quickly become one of my favorite alternatives to the Xbox One or Xbox Series X/S controller; the only real issues being the mushy d-pad and the texture of the analog sticks. I ended up snapping on some performance thumb grips, which worked great.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## Setup Process: Quick and easy
 
  Luna is just about as easy to use as a gaming service can be. To use Luna, there’s zero setup involved. If you’re playing on Windows, macOS, iOS, or Android, you can just connect a compatible controller, navigate to the Luna website, and start playing. The Fire TV app is similarly easy to get up and running.
@@ -109,8 +120,12 @@ Lifewire / Jeremy Laukkonen
 ![Amazon Luna](https://www.lifewire.com/thmb/6427gP-MSnqe4st8hfuI-7yxlos=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_03-f12a92bc606e43caa77b445a2fdcf1c1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
  If you do opt to link your controller to your Amazon account when you buy it, and you already own other Amazon devices like[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) that are connected to your Wi-Fi connection, then you can take advantage of Amazon’s Wi-Fi simple setup that shaves some time off the setup process. Otherwise, you just use the Luna controller app on your Android or iPhone to hook the controller up to Wi-Fi.
@@ -118,8 +133,12 @@ Lifewire / Jeremy Laukkonen
  After the initial setup process, your Luna controller is ready to go regardless of platform. Power on the controller, launch the Luna app or website, and everything automatically connects without any additional work or input.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Performance: Impressive game streaming, but no 4K
 
  I tested Luna with the optional Wi-Fi Luna controller and a wired Xbox Series X/S controller on my Windows laptop and with the Luna controller on my Fire TV Cube,[M1 MacBook](https://www.lifewire.com/macbook-air-13-inch-m1-2020-review-5092793) , Pixel 3 phone, and Fire TV Edition Insignia television. Each of these devices was connected to a 1GB cable internet connection from Mediacom via my Eero mesh 5GHz Wi-Fi network.
@@ -140,9 +159,6 @@ Lifewire / Jeremy Laukkonen
 
  If you have a slow internet connection or suffer from poor connectivity, then it’s likely that the brief issues I experienced could be amplified to an unacceptable point. If you have a decent connection, live closer to a major metropolitan area than I do, and have more than 10Mbps of downstream bandwidth available, the service should work just fine.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Software: Dozens of games, but the library is a bit thin with a lot of holes
 
  Luna’s biggest issue, and its biggest question mark going forward, is its streaming library. Amazon is taking a page from Microsoft’s book in that they’re trying to function as a Netflix of game streaming, but Amazon just doesn’t have the same deep library as Microsoft.
@@ -154,6 +170,13 @@ Lifewire / Jeremy Laukkonen
  During the beta period, the basic Luna subscription gets you access to 70 games, with an additional two dozen games locked behind the Ubisoft+ subscription. The 70 games included with the basic subscription offer a ton of entertainment value, but most genres are woefully underrepresented, and others are missing altogether. For example, fans of fighting games won’t find anything to rally behind here.
 
 ![Amazon Luna](https://www.lifewire.com/thmb/NBB1N6qtwbtdjrUgwr1YaBaTuBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_02-37837bf860d244d3ab11ff01f37c609c-db472e204ada4ccca88e7510eacfae34.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -167,9 +190,6 @@ Lifewire / Jeremy Laukkonen
 
  The Luna controller has a heftier price tag of $50, but that’s actually pretty reasonable if you compare it to other wireless controllers. It’s cheaper than a lot of the other options, and you can use it via Wi-Fi with Luna, or via Bluetooth or USB-C to play non-Luna games on your PC. All in all, it’s a good controller that’s priced competitively.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Amazon Luna vs. Microsoft Game Pass Ultimate
 
  Microsoft Game Pass Ultimate, which includes the xCloud streaming service, is the closest analog to Luna. They’re both monthly subscription services, and they both use a Netflix model where you can stream whatever you want, however much you want, whenever you want, without needing to actually buy the games.
@@ -188,9 +208,6 @@ Lifewire / Jeremy Laukkonen
 
  Amazon Luna is an impressive game streaming service that works surprisingly well whether or not you buy the optional controller. It isn’t perfect, and you’re likely to experience hiccups here and there, but it’s an extremely affordable way to experience dozens of games, many of which would otherwise require an expensive gaming PC or console, without any kind of initial investment. The future of the service remains uncertain, and the precedent of locking Ubisoft games behind an expensive additional paywall isn’t a great sign, but Amazon has a chance to make a real splash in the gaming world with Luna.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Xbox Series X|S Controller](https://www.lifewire.com/xbox-series-x-or-s-controller-review-5113227)
@@ -212,14 +229,11 @@ Lifewire / Jeremy Laukkonen
 * Ports  USB-C, 3.5mm audio (controller)
 * Peripherals  Luna controller (Wi-Fi, Bluetooth) is optional
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -228,4 +242,26 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-epic-historical-combat-showdowns-the-top-7-games-for-2024/"><u>[New] Epic Historical Combat Showdowns – The Top 7 Games for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-secret-sonic-snatchers-6-in-the-shadows-voice-recording-apps/"><u>[New] Secret Sonic Snatchers 6 In-the-Shadows Voice Recording Apps</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-superior-nintendo-switch-brawlers-selection-max-156-for-2024/"><u>[New] Superior Nintendo Switch Brawlers Selection (Max 156) for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-iphone-image-editing-mastering-photo-cropping-tools/"><u>2024 Approved IPhone Image Editing Mastering Photo Cropping Tools</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/end-audio-blackout-vocalize-tweet-videos/"><u>End Audio Blackout Vocalize Tweet Videos</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-tecno-pova-6-pro-5g-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Tecno Pova 6 Pro 5G Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-pinnacle-story-planning-website/"><u>In 2024, Pinnacle Story Planning Website</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Oppo A38? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-it-time-to-upgrade-from-your-current-ipad-version/"><u>Is It Time to Upgrade From Your Current iPad Version?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lg-24lh4830-the-superior-choice-for-budget-conscious-consumers-seeking-quality-and-style/"><u>LG 24LH4830 - The Superior Choice for Budget-Conscious Consumers Seeking Quality and Style</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lumix-dc-fz80-multipurpose-powerhouse/"><u>Lumix DC-FZ80: Multipurpose Powerhouse</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/master-your-gameplay-with-phillipss-ergonomic-49-curved-monitor-an-oled-marvel/"><u>Master Your Gameplay with Phillips's Ergonomic 49 Curved Monitor - An OLED Marvel</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-the-roman-throne-a-review-of-the-strategy-game-imperator-rome/"><u>Mastering the Roman Throne - A Review of the Strategy Game Imperator: Rome</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/portable-moko-compact-bluetooth-keyboard-the-ultimate-folding-solution/"><u>Portable MoKo Compact Bluetooth Keyboard: The Ultimate Folding Solution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/prime-cyber-weekend-acer-discounts-how-to-save-big-in-octobernovember-2024/"><u>Prime Cyber Weekend Acer Discounts: How to Save Big in October/November 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/revealing-10-astounding-revelations-about-your-favorite-emojis/"><u>Revealing 10 Astounding Revelations About Your Favorite Emojis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionize-wireless-range-discover-the-strength-of-netgear-nighthawk-pro-extender/"><u>Revolutionize Wireless Range - Discover the Strength of Netgear Nighthawk Pro Extender</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-fit-assessment-ideal-gadget-for-fitness-enthusiasts/"><u>Samsung Galaxy Fit Assessment - Ideal Gadget for Fitness Enthusiasts</u></a></li>
+<li><a href="https://windows11.techidaily.com/winphone-users-decide-between-unison-and-phone-link-apps/"><u>WinPhone Users: Decide Between Unison and Phone Link Apps</u></a></li>
+</ul></div>
 

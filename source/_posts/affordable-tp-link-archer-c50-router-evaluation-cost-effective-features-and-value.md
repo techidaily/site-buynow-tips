@@ -1,7 +1,7 @@
 ---
 title: "Affordable TP-Link Archer C50 Router Evaluation: Cost-Effective Features and Value"
-date: 2024-08-27T12:07:07.904Z
-updated: 2024-08-28T12:07:07.904Z
+date: 2024-10-02T00:15:04.728Z
+updated: 2024-10-07T00:02:18.407Z
 categories:
   - BestProducts
 description: "This Article Describes Affordable TP-Link Archer C50 Router Evaluation: Cost-Effective Features and Value"
@@ -47,6 +47,13 @@ PHOTO: Amazon
 
 [$449 at Amazon](https://www.amazon.com/dp/B0CL5KNB9M?tag=lifewire-onsite-prod-20&ascsubtag=4154610%7Cn581a2dc3ff9d4e12aa7563f93e0778da14%7CB0CL5KNB9M) [$485 at Walmart](https://www.walmart.com/ip/Sony-PlayStation-5-PS5-Disc-Console-Slim/5113183756?slpfid=3) [$500 at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fsony-interactive-entertainment-playstation-5-slim-console-white%2F6566039.p%3FskuId%3D6566039)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Original
 
 [Sony PlayStation 5](https://www.amazon.com/dp/B0CL61F39H?tag=lifewire-onsite-prod-20&ascsubtag=4154610%7Cn581a2dc3ff9d4e12aa7563f93e0778da14%7CB0CL61F39H)
@@ -69,9 +76,6 @@ PHOTO: Target
 
 **TL;DR** : Sony's latest console sports some great exclusive games and extensive media capabilities and is pretty speedy, too. It's also slimmed down from the original.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Why We Recommend These
 
  The Sony PlayStation 5 is everything you could want from a games console. It’s simple to boot up and play games on with a straightforward menu system that won’t confuse you.
@@ -81,6 +85,13 @@ PHOTO: Target
  It takes moments to find the game you want or to switch to its extensive set of media options, which include all the streaming apps you can think of and the ability to play 4K Blu-rays.
 
 ![PS5 console.](https://www.lifewire.com/thmb/80aScf9GOpsaDFgCtwyW1NIE-P4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/PS5console-dfe325ecc3c84b12bdd852ff79734330.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jennifer Allen
 
@@ -93,6 +104,13 @@ Lifewire / Jennifer Allen
  I really enjoyed playing games with the PS5 DualSense controller.
 
 ![PS5 controller.](https://www.lifewire.com/thmb/AG7JE7IhgP9OyHKJb7-gYZsSc9w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/PS5controller-a37dda31e1f34f1e9867c9d21b3a239d.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jennifer Allen
 
@@ -109,8 +127,12 @@ Lifewire / Jennifer Allen
 [PS5 Slim vs. PS5](https://www.lifewire.com/ps5-slim-vs-ps5-8643357)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Easiest on the Budget
 
 [Nintendo Switch Lite](https://www.walmart.com/ip/Nintendo-Switch-Lite-Console-Turquoise/306029956)
@@ -134,9 +156,6 @@ PHOTO: Walmart
 
 **TL;DR** : Cute, colorful, and with plenty of games, the Nintendo Switch Lite is a great budget-friendly console.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Why We Recommend This
 
  The Nintendo Switch Lite is an incredibly cute-looking handheld console.
@@ -171,15 +190,8 @@ Lifewire / Jennifer Allen
 
 ![Nintendo Switch Lite gaming console.](https://www.lifewire.com/thmb/-TewO6N-lYMXj-K3swHO6-rKLQ4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NintendoSwitchLite2-f5ace5de5d674c3ba9edea76d30888d6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 Lifewire / Jennifer Allen
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How We Test
 
  I reviewed every game console based on the following attributes:
@@ -242,9 +254,6 @@ Lifewire / Jennifer Allen
 
  For more advice,[read our gaming console buying guide](https://www.lifewire.com/before-you-buy-gaming-console-8654423) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Other Consoles We Considered
 
 * The[Nintendo Switch OLED](https://www.amazon.com/Nintendo-Switch-OLED-Model-Mario-Red/dp/B09NCMZNJK?tag=lifewire-onsite-prod-20&ascsubtag=4154610%7Cn581a2dc3ff9d4e12aa7563f93e0778da14%7C) is the ultimate Nintendo Switch. It can be docked to your TV for big-screen entertainment with the family and played portably with a high-end OLED screen.
@@ -282,8 +291,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -291,4 +298,16 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-pros-insight-top-8-online-repositories-for-free-green-screen-scenery/"><u>[Updated] In 2024, Pros' Insight Top 8 Online Repositories for Free Green Screen Scenery</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/eliminating-the-needed-parts-not-found-error-in-win11/"><u>Eliminating the 'Needed Parts Not Found' Error in Win11</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/facebooks-videography-preference-which-orientation-in-2024/"><u>Facebook's Videography Preference Which Orientation, In 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/halo-3-pc-freezing-problems-heres-how-you-can-overcome-them/"><u>Halo 3 PC Freezing Problems? Here's How You Can Overcome Them!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sonys-acoustic-revolution-an-in-depth-study-of-wh-1000xm4/"><u>Sony's Acoustic Revolution: An In-Depth Study of WH-1000XM4</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/survival-sweepstakes-robust-jabra-audio-devices/"><u>Survival Sweepstakes: Robust Jabra Audio Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-perfect-blend-of-form-and-fitness-in-our-complete-review-of-the-fitbit-charge-4/"><u>The Perfect Blend of Form and Fitness in Our Complete Review of the Fitbit Charge 4</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-ereader-unboxing-and-testing-the-2019-kindle-oasis/"><u>The Ultimate Ereader: Unboxing and Testing the 2019 Kindle Oasis</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-proxy-perfection-top-video-editing-software-for-4k-creators-for-2024/"><u>Updated Proxy Perfection Top Video Editing Software for 4K Creators for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Creative Sound Blaster ZXR Review - A Comprehensive Look at the Top 2013 Gaming Audio Card.
-date: 2024-09-24T16:33:56.275Z
-updated: 2024-09-26T16:56:46.351Z
+date: 2024-10-03T22:38:42.046Z
+updated: 2024-10-06T19:26:18.041Z
 categories:
   - BestProducts
 description: This Article Describes Creative Sound Blaster ZXR Review - A Comprehensive Look at the Top 2013 Gaming Audio Card.
@@ -39,23 +39,9 @@ Lifewire / Emily Ramirez
 
 2.8
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -81,24 +67,24 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/U_vmwZDe5HbbungQ5L2hzf2LVto=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-4-b0d1cca56ec04a61b83e20d1cecf2aea.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Hardware: Some odd decisions**
@@ -106,6 +92,13 @@ Lifewire / Emily Ramirez
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -130,10 +123,10 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
@@ -175,6 +168,13 @@ Lifewire / Emily Ramirez
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Sound Blaster ZxR
@@ -213,18 +213,21 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-from-collection-to-showstopper-editing-techniques-for-hauls/"><u>[New] 2024 Approved From Collection to Showstopper Editing Techniques for Hauls</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-engage-entertain-enlighten-crafting-compelling-live-thumbnails/"><u>[New] Engage, Entertain, Enlighten Crafting Compelling Live Thumbnails</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-adding-flair-to-your-online-gatherings-an-in-depth-zoom-filter-guide/"><u>[Updated] Adding Flair to Your Online Gatherings An In-Depth Zoom Filter Guide</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-learn-iphone-techniques-for-quick-video-reduction/"><u>[Updated] Learn iPhone Techniques for Quick Video Reduction</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-remedy-for-hidden-shorts-video-thumbnails/"><u>[Updated] Remedy for Hidden Shorts Video Thumbnails</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-the-latest-samsung-galaxy-s21-model-less-is-more-approach-by-samsung/"><u>Evaluating the Latest Samsung Galaxy S21 Model: Less Is More Approach by Samsung</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-webex-insights-into-its-top-perks-and-pitfalls-for-effective-digital-teamwork/"><u>Evaluating Webex: Insights Into Its Top Perks and Pitfalls for Effective Digital Teamwork</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exclusive-samsung-galaxy-s20-fe-5g-analysis-the-ultimate-choice-for-enthusiastic-5g-users/"><u>Exclusive Samsung Galaxy S20 FE 5G Analysis - The Ultimate Choice for Enthusiastic 5G Users</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-brilliance-redefined-with-taotronics-latest-design-the-tt-dl16-lamp-reviewed/"><u>Experience Brilliance Redefined with TaoTronics' Latest Design - The TT-DL16 Lamp Reviewed!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-ultimate-power-with-chargetechs-27000mah-battery-pack-comprehensive-review/"><u>Experience Ultimate Power with ChargeTech's 27000mAh Battery Pack - Comprehensive Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-evaluation-of-zmi-powerpack-20000-your-ultimate-compact-energy-solution/"><u>Expert Evaluation of ZMI PowerPack 20000 - Your Ultimate Compact Energy Solution</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-your-asus-touchpad-up-and-running-in-no-time-with-the-right-windows-10-driver/"><u>Get Your ASUS Touchpad Up and Running in No Time with the Right Windows 10 Driver!</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-samsung-galaxy-s24-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Samsung Galaxy S24 Quickly? | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-prevent-unwanted-video-captures-in-qt-player-for-2024/"><u>[New] Prevent Unwanted Video Captures in QT Player for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-making-waves-in-popularity-how-to-earn-vimeo-writers-picks/"><u>[Updated] In 2024, Making Waves in Popularity How to Earn Vimeo' Writers’ Picks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-market-leading-6-platforms-enhancing-biz-interaction-for-2024/"><u>[Updated] Market-Leading 6 Platforms Enhancing Biz Interaction for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-rapid-visual-recorder-w-preloaded-auditory-narrations/"><u>[Updated] Rapid Visual Recorder W/ Preloaded Auditory Narrations</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-top-eight-video-recording-apps-reviewed/"><u>2024 Approved Top Eight Video Recording Apps Reviewed</u></a></li>
+<li><a href="https://win11.techidaily.com/assessing-windows-11s-limited-editions-feature-impact/"><u>Assessing Windows 11’S Limited Editions Feature Impact</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-anti-virus-programs-for-your-iphone-a-comprehensive-guide/"><u>Best Anti-Virus Programs for Your iPhone – A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-advantages-and-disadvantages-of-using-webex-for-virtual-conferences/"><u>Evaluating the Advantages & Disadvantages of Using Webex for Virtual Conferences</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-depths-of-innovation-in-ratchet-and-clanks-latest-adventure/"><u>Exploring the Depths of Innovation in Ratchet & Clank's Latest Adventure</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Vivo X100 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-asus-rog-zephyrus-g14-balancing-large-display-and-compromise/"><u>In-Depth Analysis of Asus ROG Zephyrus G14 - Balancing Large Display and Compromise</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-why-the-alienware-aurora-r11-dominates-s-best-gaming-desktops/"><u>In-Depth Evaluation: Why the Alienware Aurora R11 Dominates 'S Best Gaming Desktops</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/revolutionizing-presentation-creation-with-chatgpt-a-comprehensive-tutorial/"><u>Revolutionizing Presentation Creation with ChatGPT: A Comprehensive Tutorial</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/steer-clear-of-hazards-upgrade-your-lights-now/"><u>Steer Clear of Hazards: Upgrade Your Lights Now</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-notch-samsung-offers-unmissable-prime-day-savings/"><u>Top Notch Samsung Offers: Unmissable Prime Day Savings</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/worlds-best-5-streaming-videography-tools/"><u>World's Best 5 Streaming Videography Tools</u></a></li>
 </ul></div>
 
