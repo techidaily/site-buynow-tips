@@ -1,7 +1,7 @@
 ---
 title: "Expert Review: Why the Asus ROG GT-AC5300 Reigns Supreme Among Gamers & Techies"
-date: 2024-08-22T18:04:00.046Z
-updated: 2024-08-23T18:04:00.046Z
+date: 2024-10-09T21:23:39.979Z
+updated: 2024-10-12T21:44:44.324Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Review: Why the Asus ROG GT-AC5300 Reigns Supreme Among Gamers & Techies"
@@ -43,6 +43,13 @@ Lifewire / Erika Rawes
 
 ![Alienware Aurora R11 Review](https://www.lifewire.com/thmb/s3I5Cw7w0g8bE2MkogNY13CmpcM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Alienware-Aurora-R11-Desktop-PC-1-2d25241deb1445b5af4661451cda9988.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 [View On Amazon $3,998](https://www.amazon.com/dp/B08CRZ7H9Z/?tag=lifewire-onsite-prod-20&ascsubtag=5075589%7Cncc89a2f72d7a4507ae51c7212ef0150617%7CB08CRZ7H9Z) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Falienware-aurora-r11-desktop-intel-core-i7-10700f-16gb-memory-nvidia-geforce-rtx-2080-super-1tb-hdd-512gb-ssd-lunar-light%2F6427083.p%3FskuId%3D6427083) [View On Dell](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.dell.com%2Fen-us%2Fshop%2Fgaming-and-games%2Falienware-aurora-r11-gaming-desktop%2Fspd%2Falienware-aurora-r11-desktop)
@@ -69,9 +76,6 @@ Lifewire / Erika Rawes
 
  On paper, the Alienware Aurora R11 gaming PC looks like a winner. With a 10th generation[Intel](https://www.lifewire.com/amd-vs-intel-which-processor-is-best-for-you-4780276) processor and a multitude of configuration options, the R11 lets you choose an up-to-date PC that fits in your price range now, and then upgrade later on. The Dell subsidiary's latest beast comes in six main configurations, ranging from a base model (priced at $930) all the way up to a top tier model that includes two graphics cards (priced at $4,956). I tested the Alienware Aurora R11 for two weeks, evaluating its design, performance, gameplay, audio, network performance, software, upgradability, and cooling. Is the Alienware Aurora R11 a worthwhile investment? Here’s my full review.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## **Test model: 10th Gen Intel Core i7 10700F and NVIDIA GeForce RTX 2060**
 
  The Aurora R11 is extremely customizable, and you can choose exactly the components you want. You can select either a 10th Gen Core i5, i7, or i9 processor, and for graphics, you can get the NVIDIA GeForce GTX 1650 SUPER if you go for the base model, or go all the way up to two (yes, two!) NVIDIA GeForce RTX 2080 Ti cards in the highest tier model.
@@ -81,6 +85,13 @@ Lifewire / Erika Rawes
  I tested the second-tier model with the 10th Gen Intel Core i7 10700F, the NVIDIA GeForce RTX 2060 (6GB GDDR6), 16 GB of RAM, dual drives (256GB SSD + 1TB SATA), and the Dark Side of the Moon chassis with Low-Profile Smart Cooling CPU Heatsink and 550W Power Supply. The model I tested had air cooling, but you can get liquid cooling in this model for as little as $20 added to the base price.
 
 ![Alienware Aurora R11](https://www.lifewire.com/thmb/hRBDZ5clhMthsEMeqGYzOi7oIE8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Alienware-Aurora-R11-Desktop-PC-2-e6bece84be7c48a3af3db3806a85a31e.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -102,6 +113,13 @@ Lifewire / Erika Rawes
 
 ![Alienware Aurora R11](https://www.lifewire.com/thmb/JFFJbdkvNwhJ-T2_-B88xFQhCNQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Alienware-Aurora-R11-Desktop-PC-4-d7147c6bd520432285a9f2e58f788322.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Performance: An absolute powerhouse**
@@ -112,9 +130,6 @@ Lifewire / Erika Rawes
 
  Boot times are fast, and it jumps around different applications at lightning speed.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ## **Gaming: Played most games on the highest settings**
 
  Although the rig I tested is a lower level Alienware Aurora R11 model, this is by no means a lower level gaming desktop. I would say it’s an upper-to-mid range, as it deftly handled most games on the highest level settings. The first game I tested was[_Destiny 2_](https://www.liveabout.com/destiny-2-cheat-codes-4158004) , not the most graphically intensive game but no slouch either, and it can definitely lag on some machines during intense action sequences. With the vsync cap set at 60, I turned_Destiny 2_ up to its highest setting, and it ran at a solid 60 FPS throughout.
@@ -130,18 +145,26 @@ Lifewire / Erika Rawes
  The R11 handled Far Cry 5’s internal benchmark, and it maintained lag-free gaming on the ultra settings.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Productivity: Free optional keyboard and optical mouse**
 
  The Aurora R11 is designed as a gaming PC, but you could absolutely use it for work. Since this PC has ample processing power and gaming-grade graphics, you could also use it for photo or video editing. The R11 includes a free keyboard and optical mouse, but you have to specifically indicate that you want those free options. Otherwise, you’ll just get the tower and power cord.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Audio: 7.1 surround sound**
 
  The R11 has a number of options for audio sources, including ports for connecting a microphone, headphones, and[surround sound speakers](https://www.lifewire.com/what-is-surround-sound-1846802) . It even has an optical audio port. You should have no problem finding an audio solution that fits your needs. The R11 doesn’t include speakers in the box, but it does have integrated 7.1 channel audio (with SPDIF port).
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Network: Want Wi-Fi 5 or Wi-Fi 6?**
 
@@ -154,8 +177,12 @@ Lifewire / Erika Rawes
 ![Alienware Aurora R11](https://www.lifewire.com/thmb/sCKseoBNmM15udE4RMrggTlWuBs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Alienware-Aurora-R11-Desktop-PC-5-6b37b663752e4eada4c8832152dd9882.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Software: Alienware Command Center**
@@ -172,10 +199,14 @@ Lifewire / Erika Rawes
 
 ![Alienware Aurora R11](https://www.lifewire.com/thmb/UQDwEbTk5WBApmQhcAofsrxJmAs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Alienware-Aurora-R11-Desktop-PC-6-5d0cca33ca56479e8f9f7cbe8202ac1a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Upgradability: A latch system**
 
@@ -187,14 +218,8 @@ Lifewire / Erika Rawes
 
 ![Alienware Aurora R11](https://www.lifewire.com/thmb/jzGkH061o51TFghPHwP5n6bmE34=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Alienware-Aurora-R11-Desktop-PC-3-7a87edbb11b041818dbf44880e3c79fd.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ## **Price: Not bad**
 
  The price of your R11 is going to vary widely depending on how much you want to put into it. You can get an Aurora R11 for under a grand though. The R11 configuration I tested retails for $1410, but it was $30 less because the test model included the lower tier chassis (without RGB lighting in the word “Alienware” along the side). For the lower tier models, the prices are reasonable, and you can upgrade the PC later on.
@@ -211,9 +236,6 @@ Lifewire / Erika Rawes
 
  The Aurora R11 could replace its predecessor as the best gaming desktop of the year.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Aurora R11
@@ -239,8 +261,6 @@ Lifewire / Erika Rawes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -248,4 +268,24 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-hp-laptop-tutorial-easy-webcam-video-recording-steps/"><u>[New] In 2024, HP Laptop Tutorial Easy Webcam Video Recording Steps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-amplifying-your-youtube-presence-through-consistent-content-release/"><u>[Updated] In 2024, Amplifying Your YouTube Presence Through Consistent Content Release</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-proven-strategies-for-professional-green-screen-filming-for-2024/"><u>[Updated] Proven Strategies for Professional Green Screen Filming for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/essential-software-for-mastering-twitter-interactions/"><u>Essential Software for Mastering Twitter Interactions</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/expert-reviews-by-toms-hardware-hub/"><u>Expert Reviews by Tom's Hardware Hub</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-optimizing-viewing-experience-video-filters-for-all-screens/"><u>In 2024, Optimizing Viewing Experience Video Filters for All Screens</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/pursue-justice-in-digital-realms-experience-4-ai-mysteries/"><u>Pursue Justice in Digital Realms: Experience 4 AI Mysteries</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-the-updated-demons-souls-improved-aesthetics-and-unchanged-greatness/"><u>Review of the Updated Demon's Souls: Improved Aesthetics and Unchanged Greatness</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reviewing-samsungs-latest-wearable-tech-the-advanced-features-of-galaxy-watch-active-2/"><u>Reviewing Samsung's Latest Wearable Tech: The Advanced Features of Galaxy Watch Active 2</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-drive-with-lihans-lhfm1039-wireless-bluetooth-car-stereo-accessory-a-comprehensive-review/"><u>Revolutionize Your Drive with LIHAN's LHFM1039 Wireless Bluetooth Car Stereo Accessory - A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-television-experience-with-the-antolink-at-127-outstanding-free-broadcast-signal/"><u>Revolutionize Your Television Experience with the Antolink AT-127 - Outstanding Free Broadcast Signal</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/second-generation-google-nest-hub-a-comprehensive-review-missing-just-the-camera-feature/"><u>Second Generation Google Nest Hub: A Comprehensive Review - Missing Just the Camera Feature</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/select-your-perfect-portable-optical-drive-expert-picks-s-market/"><u>Select Your Perfect Portable Optical Drive - Expert Picks 'S Market</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/senior-savvy-phone-plans-your-ultimate-list-of-7-excellent-choices/"><u>Senior Savvy Phone Plans: Your Ultimate List of 7 Excellent Choices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/skys-the-limit-with-dji-mavic-3-an-in-depth-photo-and-video-drone-analysis/"><u>Sky's the Limit with DJI Mavic 3 - An In-Depth Photo and Video Drone Analysis</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/solving-iphone-xs-trust-issues-fixing-facial-detection-glitches-for-2024/"><u>Solving iPhone X's Trust Issues Fixing Facial Detection Glitches for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/struggling-with-an-unresponsive-contacts-app-on-ios-device-heres-how-to-resolve-it/"><u>Struggling with an Unresponsive Contacts App on iOS Device? Here's How to Resolve It</u></a></li>
+</ul></div>
 

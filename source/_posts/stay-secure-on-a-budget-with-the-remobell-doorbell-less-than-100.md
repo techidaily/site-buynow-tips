@@ -1,7 +1,7 @@
 ---
 title: Stay Secure on a Budget with the RemoBell Doorbell - Less Than $100!
-date: 2024-10-01T22:01:06.289Z
-updated: 2024-10-07T00:01:18.576Z
+date: 2024-10-07T20:34:32.643Z
+updated: 2024-10-12T17:29:34.584Z
 categories:
   - BestProducts
 description: This Article Describes Stay Secure on a Budget with the RemoBell Doorbell - Less Than $100!
@@ -41,6 +41,13 @@ Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/CWSAqFXf9klr-Fs5mU-YkCpwF9Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-5-1-668cca140a8e4c1ba59c13f4f2a8d8ec.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Bill Thomas
 
 [View On Amazon $25](https://www.amazon.com/dp/B00IF0JAYE/?tag=lifewire-onsite-prod-20&ascsubtag=4686094%7Cn04462eaac973429b8b417ec47f0b261514%7CB00IF0JAYE) [View On Walmart $76](https://www.walmart.com/ip/NETGEAR-N600-8x4-WiFi-Cable-Modem-Router-Combo-C3700-DOCSIS-3-0-Certified-for-XFINITY-by-Comcast-Spectrum-Cox-and-more-C3700-100NAS/36009477) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-dual-band-n600-router-with-8-x-4-docsis-3-0-cable-modem-black%2F3707003.p%3Fcmp%3DRMX%26skuId%3D3707003)
@@ -65,6 +72,13 @@ Lifewire / Bill Thomas
 
  We got our hands on the Netgear C3700 for testing and put it through the wringer to see whether or not it’s worth your cash, and what kind of performance you can expect.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Small and inconspicuous
 
  With a device that packs[both a cable modem and a wireless router](https://www.lifewire.com/best-cable-modem-router-combos-to-buy-4082541) , you might expect the Netgear C3700 to be a bulky device, but that’s not the case. It’s actually quite small, measuring just 7.6 inches high and weighing a scant 0.77 pounds. This, combined with the low-key black finish and lack of external antennas means that it won’t stick out, no matter where you put it.
@@ -72,19 +86,6 @@ Lifewire / Bill Thomas
  This definitely works in the Netgear C3700’s favor. The[wireless performance](https://www.lifewire.com/ways-to-boost-a-wifi-signal-818296) is already weak (which we’ll go into a bit later), so the fact that you can leave it out and unobscured is a benefit.
 
 ![Netgear C3700](https://www.lifewire.com/thmb/kBtdcSRxoIsQvqmnO6OVYnfZ9z8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-4-ad3408c39a524e14a6cebcce10d3be44.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
@@ -94,20 +95,14 @@ Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/zfaMhW3pqkYXVuVTQM9Swnx9cQk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-5-a204a239cbd549c9b5949b2536b49ff8.jpg)
 
- Lifewire / Bill Thomas
-
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Bill Thomas
 
 ## Setup: Nice and simple
 
@@ -118,13 +113,6 @@ Lifewire / Bill Thomas
  Once everything is set up, you can go through the online management portal to change wireless settings. This is an optional step since the wireless network works right out of the box using the information printed on the side of the modem.
 
  We weren’t impressed with the wireless performance, but the wired performance surprised us.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Connectivity: Everything a small home needs
 
@@ -156,18 +144,18 @@ Lifewire / Bill Thomas
 
  You can also download the Netgear Genie app on your phone, which allows you to manage your network from a more attractive interface. Much of the same functionality is here, but it might be a more approachable interface for those who don’t really know where to start with their router settings.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Price: It pays for itself
 
  The Netgear C3700 retails for $109.99, but you should be able to find it for less (as of the time of this writing, it’s on sale for about $95). At this price, the modem has a head start on paying for itself.
 
  For an 8x4 DOCSIS 3.0 cable modem with a lightweight router built in, this price is about par for the course. If you can find the Netgear C3700 for under $100, then it might be worth buying for the cable modem performance and pairing it with a solid wireless router.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Netgear C3700 vs. Arris Surfboard SBG6700-AC
 
@@ -178,17 +166,17 @@ Lifewire / Bill Thomas
  **A solid modem, but the poor wireless performance undermines its appeal as a combo device.**
  The cable modem’s performance is great, but the wireless performance is just not there. If all you want is the cheapest possible modem with built-in dual-band Wi-Fi, then the Netgear C3700 checks those boxes. But we think you’re better off spending more for better performance or just buying two standalone devices.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Motorola MG7700](https://www.lifewire.com/motorola-mg7700-review-4589346)
 * [Netgear Nighthawk C7000](https://www.lifewire.com/netgear-nighthawk-c7000-review-4686068)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -225,17 +213,22 @@ Lifewire / Bill Thomas
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-best-video-editor-for-recorded-webcam-videos/"><u>[Updated] Best Video Editor for Recorded Webcam Videos</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-pioneering-audio-enhancement-for-compelling-visual-stories/"><u>[Updated] Pioneering Audio Enhancement for Compelling Visual Stories</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/2024-approved-effortless-video-integration-into-instagram-feed/"><u>2024 Approved Effortless Video Integration Into Instagram Feed</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-oppo-reno-10-5g-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Oppo Reno 10 5G PC | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-journey-with-bouncie-liveview-a-comprehensive-app-for-secure-tracking-explored/"><u>Affordable Journey with Bouncie LiveView: A Comprehensive App for Secure Tracking Explored</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-12-mini-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 12 mini without Passcode or Face ID | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lenovo-tab-4-review/"><u>Lenovo Tab 4 Review</u></a></li>
-<li><a href="https://win-able.techidaily.com/rise-to-the-top-in-roller-champions-expert-advice-and-techniques-for-pc-players/"><u>Rise to the Top in Roller Champions: Expert Advice and Techniques for PC Players</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/stream-ready-strategies-for-crystal-clear-steam-recordings/"><u>Stream-Ready Strategies for Crystal Clear Steam Recordings</u></a></li>
-<li><a href="https://win-answers.techidaily.com/success-fixing-that-annoying-pixel-tear-up-problem-now/"><u>Success! Fixing That Annoying Pixel Tear-Up Problem Now</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-secret-ingredients-to-wii-us-remarkable-achievements-in-gaming/"><u>The Secret Ingredients to Wii U's Remarkable Achievements in Gaming</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-mini-usb-wi-fi-adapter-u631-unmatched-connectivity-and-reliable-design/"><u>The Ultimate Mini USB Wi-Fi Adapter (U631): Unmatched Connectivity & Reliable Design</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-screen-it-right-best-free-apps-for-mac-and-windows-recording/"><u>[New] 2024 Approved Screen It Right! Best Free Apps for Mac and Windows Recording</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-discover-10-spectacular-reactions-on-creative-youtube-videos/"><u>[New] Discover 10 Spectacular Reactions on Creative YouTube Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-top-8-windows-11-video-snatchers-unveiled/"><u>[New] In 2024, Top 8 Windows 11 Video Snatchers Unveiled</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-mastering-google-meets-grid-view-functionality-for-2024/"><u>[New] Mastering Google Meet's Grid View Functionality for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-essential-rotators-playbook-for-youtube-video-spinning/"><u>[New] The Essential Rotator's Playbook for YouTube Video Spinning</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-mastering-live-stream-capture-tv-show-recording-techniques/"><u>[Updated] Mastering Live Stream Capture TV Show Recording Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-organizing-your-iphones-picture-collection-from-sorting-to-icloud-backing-up/"><u>[Updated] Organizing Your iPhone's Picture Collection From Sorting to iCloud Backing Up</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-thrills-with-syma-s111g-rc-helicopter-an-in-depth-overview/"><u>Affordable Thrills with Syma S111G RC Helicopter - An In-Depth Overview</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/choosing-your-smartphone-iphone-vs-android-finding-the-perfect-match/"><u>Choosing Your Smartphone: IPhone Vs. Android - Finding the Perfect Match</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-samsungs-flagship-phones-a-detailed-review-of-the-galaxy-s10plus-vs-s20/"><u>Comparing Samsung's Flagship Phones: A Detailed Review of the Galaxy S10+ Vs. S20</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-samsung-galaxy-tab-s6-features-s-pen-and-dex-mode-unveiled/"><u>Comprehensive Evaluation of the Samsung Galaxy Tab S6 Features - S Pen & Dex Mode Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-amazons-fire-hd/"><u>Comprehensive Guide: Amazon's Fire HD</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-finding-your-perfect-match/"><u>Comprehensive Guide: Finding Your Perfect Match!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-overview-of-the-oneplus-nord-n1/"><u>Comprehensive Overview of the OnePlus Nord N1</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/step-by-step-guide-to-full-sphere-video-via-iphone-for-2024/"><u>Step-by-Step Guide to Full-Sphere Video via iPhone for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-complete-guide-fixing-the-temporary-server-overload-503-error-on-your-site/"><u>The Complete Guide: Fixing the 'Temporary Server Overload' (503) Error on Your Site</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/wi-fi-expectations-trashed-nikon-coolpix-b500-flop/"><u>Wi-Fi Expectations Trashed: Nikon COOLPIX B500 Flop</u></a></li>
 </ul></div>
 

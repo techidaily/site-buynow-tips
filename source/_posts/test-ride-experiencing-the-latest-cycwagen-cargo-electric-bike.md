@@ -1,7 +1,7 @@
 ---
 title: "Test Ride: Experiencing the Latest CycWagen Cargo Electric Bike"
-date: 2024-08-22T18:03:36.879Z
-updated: 2024-08-23T18:03:36.879Z
+date: 2024-10-07T20:55:38.372Z
+updated: 2024-10-12T21:10:46.515Z
 categories:
   - BestProducts
 description: "This Article Describes Test Ride: Experiencing the Latest CycWagen Cargo Electric Bike"
@@ -65,6 +65,13 @@ Lifewire / Yoona Wagener
 
  This latest iteration of the Access bundles first-rate perks like accepting or rejecting calls via Bluetooth calling, Google Pay, sleep and exercise logging, as well as several battery modes. While it lacks serious fitness tracking chops, the Access Gen 5E flourishes with luxe styling and everyday conveniences.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Luxe sensibility front and center
 
  If you’re interested in a feature-rich smartwatch that doubles as a statement fashion accessory, you won’t be disappointed by the Access Gen 5E. The 43-millimeter case sports an eye-catching pave pattern around the perimeter and sturdy aluminum construction. A substantial and responsive multipurpose button with the MK logo etched into it serves as a thoughtful accent. All of these details give this watch an elevated look from the very first glance.
@@ -89,9 +96,6 @@ Lifewire / Yoona Wagener
 
  This feature made clasping the band speedy, but I still experienced a slightly loose fit overall. During normal wear, while relaxing, sleeping, or working at a desk, this wasn’t an issue. While running, the case’s considerable weight—which comes in at a hefty 54.6 grams—felt a little too bulky for high-impact activity.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Performance: Good for the essentials
 
  The Access Gen 5E performs all of the usual smartwatch essentials with ease. Day-to-day connectivity features include Bluetooth-enabled calling, smartphone notifications, social media alerts, weather and calendar updates, and the convenience of Google Assistant.
@@ -115,13 +119,24 @@ Lifewire / Yoona Wagener
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/wOui4ekzG1ONLwrBgvw2GBdAZ3o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_05-cb3f4f64742c45c19c0dd82970916f73.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
  I found that the built-in media player worked well for controlling music I played via Spotify or a podcast app on my phone. It automatically recognized whatever I was playing and brought media controls to the display.
 
  Regardless of your operating system, you’ll need a Google account to get this watch paired and activated and to take advantage of contactless pay through Google Pay. And if you’re married to Google Fit for health insights, you’ll need that app too.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Battery: Potential for multi-day longevity
 
@@ -129,13 +144,17 @@ Lifewire / Yoona Wagener
 
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/BT4hOR8gRPGpDwIsxjK35ikzSeg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_02-503172a94cbc444389f491de49cf2646.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
  Regardless of the mode you choose, the watch will automatically enter a time-only mode once the battery hits 9 percent. This thoughtful touch allows this device to function as a straightforward watch as well. When you charge up, the handy magnetic USB charging cable is easy to attach to the device and provides quick charging: just a little over an hour, maximum.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Price: Luxury style at a friendlier entry point
 
  At about $250, the Access Gen 5E doesn’t require a premium buy-in like some of the latest, feature-loaded smartwatches from the Fossil and Michael Kors partnership. It’s also available from some retailers for less than $200, which adds even more value, given its solid smartwatch feature set.
@@ -146,9 +165,6 @@ Lifewire / Yoona Wagener
 
  When comparing this device to other fashion smartwatches, it’s challenging to find a competitor outside of the Michael Kors/Fossil sphere that differs in any notable way. If you’re looking for something comparably priced with more of a fitness bent, the Samsung Galaxy Watch Active2 is worth a look.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Michael Kors Access Gen 5E vs. Samsung Galaxy Watch Active2
 
  While it’s less glamorous than the Samsung Galaxy Watch Active2 (which also retails for around $250), the Active2 still offers some style with various silicone band colors and a sleek aluminum case. The display lacks a pave design but has the benefit of a touch bezel and a narrower and slightly thinner build that weighs just 26 grams—that’s about twice as light as the Access Gen 5E.
@@ -166,18 +182,18 @@ Lifewire / Yoona Wagener
  The Michael Kors Access Gen 5E MKGO is an upscale smartwatch with luxury looks and a slightly sporty sensibility. Its Wear OS and Fossil Gen 5E foundation provide a solid foundation for everyday ease with features like Bluetooth calling, Google Assistant, and battery modes. And while it offers some fitness tracking, this wearable dazzles primarily as a lifestyle accessory.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Apple Watch Series 6](https://www.lifewire.com/apple-watch-series-6-review-5087552)
 * [Garmin Venu](https://www.lifewire.com/garmin-venu-review-4843916)
 * [Mobvoi TicWatch Pro 4G LTE](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Access Gen 5E MKGO
@@ -201,8 +217,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -210,4 +224,22 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-sync-your-sound-instagrams-musical-world/"><u>2024 Approved Sync Your Sound Instagram's Musical World</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-1byone-digital-indoor-hdtv-antenna-top-rated-budget-option/"><u>Comprehensive Review of the 1Byone Digital Indoor HDTV Antenna – Top-Rated Budget Option</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-test-drive-of-the-gotrax-gxl-v2-your-ideal-city-e-scooter/"><u>Comprehensive Test Drive of the Gotrax GXL V2 - Your Ideal City E-Scooter</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cost-effective-camera-with-a-user-experience-catch-nikon-a10/"><u>Cost-Effective Camera With a User Experience Catch: Nikon A10</u></a></li>
+<li><a href="https://extra-information.techidaily.com/cutting-edge-cams-for-novices-in-24/"><u>Cutting-Edge Cams for Novices in '24</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/delivering-home-safety-without-subscriptions-the-eufy-t8200-video-doorbell-unveiled/"><u>Delivering Home Safety Without Subscriptions: The Eufy T8200 Video Doorbell Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dialogues-beyond-distance-turkey-and-korea/"><u>Dialogues Beyond Distance: Turkey & Korea</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-oodles-complimentary-community-marketplace/"><u>Discover Oodle's Complimentary Community Marketplace</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-creme-de-la-creme-a-ranking-of-8-leading-mobile-games/"><u>Discover The Crème De La Crème: A Ranking Of 8 Leading Mobile Games</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/get-your-naver-video-content-faster-a-comprehensive-tutorial-on-free-downloads/"><u>Get Your Naver Video Content Faster - A Comprehensive Tutorial on Free Downloads!</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-se-2022-to-android-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone SE (2022) To Android? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-changing-ringtones-on-an-iphone-a-user-friendly-approach/"><u>In 2024, Changing Ringtones on an iPhone A User-Friendly Approach</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-nokia-c12-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Nokia C12 Phone Network-Ready</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-samsung-galaxy-f34-5g-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Samsung Galaxy F34 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/streamline-your-workflow-easy-gopro-video-editing-on-macbook-with-quik/"><u>Streamline Your Workflow Easy GoPro Video Editing on MacBook with Quik</u></a></li>
+</ul></div>
 

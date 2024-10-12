@@ -1,7 +1,7 @@
 ---
 title: Top 8 Must-Play Titles Available on Google Play Pass
-date: 2024-08-22T18:06:36.885Z
-updated: 2024-08-23T18:06:36.885Z
+date: 2024-10-08T17:18:35.586Z
+updated: 2024-10-12T19:11:44.763Z
 categories:
   - BestProducts
 description: This Article Describes Top 8 Must-Play Titles Available on Google Play Pass
@@ -37,6 +37,13 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
@@ -64,8 +71,12 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -88,9 +99,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: T-minus one minute**
 
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
@@ -98,8 +106,12 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance: Reliable, accurate, quick and loud**
 
  When we tested the tire inflator, we took it on a road trip that took us to the states of Nevada, Utah, Idaho, and Wyoming. Along the way, we stopped at rural rest areas and gas stations. In order to use them in the circumstances, they were designed for. Throughout it all, the Kensun Portable Tire Inflator never failed to work when we needed it.
@@ -121,15 +133,16 @@ Lifewire / Jeffrey Daniel Chadwick
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: A decent buy considering its versatility**
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
  The Kensun Portable Tire Inflator is similar to the Jaco Digital Tire Inflator, they have similar cord and hose lengths, and can continually run for about half an hour. But the Kensun is more than twice the size of the Jaco, so it can deliver more power to fill your tires faster. Additionally, the Jaco lacks the ability to plug into an AC socket, so you can only use it in your car.
@@ -144,9 +157,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  AC/DC Portable Air Pump Tire Inflator
@@ -163,8 +173,6 @@ Lifewire / Jeffrey Daniel Chadwick
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -172,4 +180,24 @@ Lifewire / Jeffrey Daniel Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-connecting-players-and-friends-stream-xbox-to-fb-for-2024/"><u>[New] Connecting Players & Friends Stream Xbox to FB for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-from-zero-to-hero-accelerating-your-way-to-a-top-10000-followers-in-no-time-on-insta-for-2024/"><u>[New] From Zero to Hero Accelerating Your Way to a Top 10,000 Followers in No Time on Insta for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-cut-to-the-chase-8-simple-youtube-thumbnail-builders/"><u>[New] In 2024, Cut-to-the-Chase 8 Simple YouTube Thumbnail Builders</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-timing-duration-for-a-20mb-high-definition-video/"><u>[New] Timing Duration for a 20Mb High-Definition Video</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/get-more-bang-for-your-buck-with-these-5-tips-for-optimized-apple-music-use/"><u>Get More Bang for Your Buck with These 5 Tips for Optimized Apple Music Use</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/google-tv-ceases-sales-your-guide-to-where-you-can-now-stream-popular-tv-series/"><u>Google TV Ceases Sales: Your Guide to Where You Can Now Stream Popular TV Series</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/graphics-issue-dark-screens/"><u>Graphics Issue: Dark Screens</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/high-quality-collectibles-premium-packages-unlinked-to-gaming-products/"><u>High-Quality Collectibles: Premium Packages Unlinked to Gaming Products</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-xiaomi-14-pro-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Xiaomi 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-fujifilm-x100v-why-its-dominating-the-photography-market/"><u>In-Depth Analysis of Fujifilm X100V: Why It's Dominating the Photography Market</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lefties-unite-personalizing-your-pc-gaming-world-from-a-right-handed-perspective/"><u>Lefties Unite! Personalizing Your PC Gaming World From a Right-Handed Perspective</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-the-art-of-timing-secrets-to-purchasing-the-ideal-gaming-console/"><u>Mastering the Art of Timing: Secrets to Purchasing the Ideal Gaming Console</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximize-value-top-7-strategies-for-enjoying-the-full-benefits-of-disneyplus/"><u>Maximize Value: Top 7 Strategies for Enjoying the Full Benefits of Disney+</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/play-steam-titles-on-non-compatible-tvs-using-the-power-of-stream-remote-play/"><u>Play Steam Titles on Non-Compatible TVs Using the Power of Stream Remote Play</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/recover-lost-watch-visual-preview/"><u>Recover Lost Watch Visual Preview</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-essential-companion-for-advanced-win10-users-for-2024/"><u>The Essential Companion for Advanced Win10 Users for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-online-free-video-editing-hacks/"><u>Top Online Free Video Editing Hacks</u></a></li>
+</ul></div>
 

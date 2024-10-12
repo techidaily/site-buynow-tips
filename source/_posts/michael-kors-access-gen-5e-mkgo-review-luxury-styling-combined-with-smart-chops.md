@@ -1,7 +1,7 @@
 ---
 title: "Michael Kors Access Gen 5E MKGO Review: Luxury Styling Combined With Smart Chops"
-date: 2024-08-22T18:08:55.418Z
-updated: 2024-08-23T18:08:55.418Z
+date: 2024-10-09T16:51:46.970Z
+updated: 2024-10-12T19:42:04.535Z
 categories:
   - BestProducts
 description: "This Article Describes Michael Kors Access Gen 5E MKGO Review: Luxury Styling Combined With Smart Chops"
@@ -41,6 +41,13 @@ Lifewire / Yoona Wagener
 
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/4iXRVsuxT7GiqqU4k4vdl39TFNg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_HeroSquare-6cc84a98de3e43e1a252acfbcc81fbb3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
 [View On Best Buy $201](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6450037.p) [View On Macy's](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.macys.com%2Fshop%2Fproduct%2Fmichael-kors-access-gen-5e-mkgo-black-rubber-smartwatch-43mm%3FID%3D11867918%26pla%255Fcountry%3DUS%26CAGPSPN%3Dpla) [View On Michaelkors.com](https://www.michaelkors.com/michael-kors-access-gen-5e-mkgo-pink-tone-and-logo-rubber-smartwatch/%5F/R-US%5FMKT5116)
@@ -65,9 +72,6 @@ Lifewire / Yoona Wagener
 
  This latest iteration of the Access bundles first-rate perks like accepting or rejecting calls via Bluetooth calling, Google Pay, sleep and exercise logging, as well as several battery modes. While it lacks serious fitness tracking chops, the Access Gen 5E flourishes with luxe styling and everyday conveniences.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Design: Luxe sensibility front and center
 
  If you’re interested in a feature-rich smartwatch that doubles as a statement fashion accessory, you won’t be disappointed by the Access Gen 5E. The 43-millimeter case sports an eye-catching pave pattern around the perimeter and sturdy aluminum construction. A substantial and responsive multipurpose button with the MK logo etched into it serves as a thoughtful accent. All of these details give this watch an elevated look from the very first glance.
@@ -78,11 +82,31 @@ Lifewire / Yoona Wagener
 
  New Wear OS users will appreciate the guided instructions that appear after pairing the watch to walk you through the various menus and swiping navigations. Even without this guidance, most menus are intuitive to use. My favorite menu was the quick-access menu that appears with a swipe-down motion. It contains a handy collection of shortcuts for basics like adjusting battery mode settings. It’s also home to the Theater Mode option, which turns the display off with a tap—especially convenient for dimming the screen at bedtime.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Comfort: Best outside of exercise
 
  Though it’s a slight contrast to the high-end details of the face, the MKGO version of the Access Gen 5E comes with a comfortable and flexible Michael Kors branded rubber strap. This added touch offers practicality and comfort without taking away from the upscale design fit for fancier occasions, too.
 
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/Al5yHGgflExrdPzuv1O8nFyRL0M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_03-4a139c21df9b44ce8a0a5b5604859b26.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -91,6 +115,13 @@ Lifewire / Yoona Wagener
  In addition to a supple rubber material on the band, the Access Gen 5E MKGO offers a unique push-stud clamping mechanism. Two studs snap into place in one of the circular band notches, creating a neat and tidy look without excess band material flapping around.
 
  This feature made clasping the band speedy, but I still experienced a slightly loose fit overall. During normal wear, while relaxing, sleeping, or working at a desk, this wasn’t an issue. While running, the case’s considerable weight—which comes in at a hefty 54.6 grams—felt a little too bulky for high-impact activity.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Performance: Good for the essentials
 
@@ -114,32 +145,29 @@ Lifewire / Yoona Wagener
 
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/wOui4ekzG1ONLwrBgvw2GBdAZ3o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_05-cb3f4f64742c45c19c0dd82970916f73.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 Lifewire / Yoona Wagener
 
  I found that the built-in media player worked well for controlling music I played via Spotify or a podcast app on my phone. It automatically recognized whatever I was playing and brought media controls to the display.
 
  Regardless of your operating system, you’ll need a Google account to get this watch paired and activated and to take advantage of contactless pay through Google Pay. And if you’re married to Google Fit for health insights, you’ll need that app too.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## Battery: Potential for multi-day longevity
 
  The manufacturer suggests that this smartwatch battery should last up to 24 hours, depending on usage, and provides several battery modes to work with to help make the most of the battery. Daily mode lived up to its name and lasted about a whole day, while the multi-day Extended mode, which turns off most smart features, lasted only about a day and a half for me.
 
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/BT4hOR8gRPGpDwIsxjK35ikzSeg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_02-503172a94cbc444389f491de49cf2646.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
  Regardless of the mode you choose, the watch will automatically enter a time-only mode once the battery hits 9 percent. This thoughtful touch allows this device to function as a straightforward watch as well. When you charge up, the handy magnetic USB charging cable is easy to attach to the device and provides quick charging: just a little over an hour, maximum.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Price: Luxury style at a friendlier entry point
 
  At about $250, the Access Gen 5E doesn’t require a premium buy-in like some of the latest, feature-loaded smartwatches from the Fossil and Michael Kors partnership. It’s also available from some retailers for less than $200, which adds even more value, given its solid smartwatch feature set.
@@ -150,9 +178,6 @@ Lifewire / Yoona Wagener
 
  When comparing this device to other fashion smartwatches, it’s challenging to find a competitor outside of the Michael Kors/Fossil sphere that differs in any notable way. If you’re looking for something comparably priced with more of a fitness bent, the Samsung Galaxy Watch Active2 is worth a look.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Michael Kors Access Gen 5E vs. Samsung Galaxy Watch Active2
 
  While it’s less glamorous than the Samsung Galaxy Watch Active2 (which also retails for around $250), the Active2 still offers some style with various silicone band colors and a sleek aluminum case. The display lacks a pave design but has the benefit of a touch bezel and a narrower and slightly thinner build that weighs just 26 grams—that’s about twice as light as the Access Gen 5E.
@@ -175,9 +200,6 @@ Lifewire / Yoona Wagener
 * [Garmin Venu](https://www.lifewire.com/garmin-venu-review-4843916)
 * [Mobvoi TicWatch Pro 4G LTE](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Access Gen 5E MKGO
@@ -201,8 +223,6 @@ Lifewire / Yoona Wagener
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -210,4 +230,19 @@ Lifewire / Yoona Wagener
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-flip-page-film-narrative-guide/"><u>2024 Approved Flip Page Film Narrative Guide</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-tailored-treasure-troves-the-ultimate-list-of-online-box-sellers/"><u>2024 Approved Tailored Treasure Troves The Ultimate List of Online Box Sellers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/accurate-tilt-controls-high-end-phonecamera-mounts-for-2024/"><u>Accurate Tilt Controls High-End Phone/Camera Mounts for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expertly-crafted-2024-online-education-modules-on-linkedin-learning-platform/"><u>Expertly Crafted 2024 Online Education Modules on LinkedIn Learning Platform</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-factory-reset-a-dell-laptop/"><u>How To Factory Reset a Dell Laptop</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-resolve-dauntless-pc-gaming-issues-solutions-explored/"><u>How to Resolve Dauntless PC Gaming Issues - Solutions Explored</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/refreshing-tandc-for-improved-clarity/"><u>Refreshing T&C for Improved Clarity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-photography-with-darktable-advanced-raw-image-processing-on-mac-and-linux/"><u>Revolutionize Your Photography with Darktable: Advanced RAW Image Processing on Mac & Linux</u></a></li>
+<li><a href="https://driver-install.techidaily.com/snappy-driver-update-routine-windows-11817/"><u>Snappy Driver Update Routine (Windows 11/8.1/7)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-building-an-empire-in-offworld-trading-company-a-strategic-business-gameplay-analysis/"><u>The Ultimate Guide to Building an Empire in Offworld Trading Company - A Strategic Business Gameplay Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-benefits-of-nokias-newest-model-the-perfect-entry-device/"><u>Unveiling the Benefits of Nokia's Newest Model - The Perfect Entry Device</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-get-started-with-videoleap-on-your-macbook-today-for-2024/"><u>Updated Get Started with Videoleap on Your MacBook Today for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Review of Twelve South's Compact Traveler - A Masterclass in Portable Camping Gear
-date: 2024-10-03T16:14:24.874Z
-updated: 2024-10-07T01:37:57.300Z
+date: 2024-10-09T20:17:33.653Z
+updated: 2024-10-12T19:58:22.724Z
 categories:
   - BestProducts
 description: This Article Describes Review of Twelve South's Compact Traveler - A Masterclass in Portable Camping Gear
@@ -41,10 +41,10 @@ Lifewire / Rebecca Isaacs
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/cetpXlFoWgl601rjUieYjdXgVCA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_HeroSquare-97a9344411454147b8772f86cd75bca7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
@@ -69,31 +69,24 @@ Lifewire / Rebecca Isaacs
 
  A poor computer chair may lead to backaches, pains, and a whole mess of skeletal and muscular issues. When I began to have these symptoms, I decided it was time for a change to my chair, and got the Mavix M9 Gaming Chair for review. After over 20 hours of testing, it’s safe to say that I’ve found my favorite piece of gaming equipment.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: A gamer’s dream
 
  The M9 comes in four different color options, but to play it safe with my pets, I chose to get it in the sleek black option. In fact, those with pets will want to take note, as my first impression of the chair was that while most of it was black leather, the Dynamic Variable Lumbar support consisted of multilayered nylon, mesh material. It’s great for gamers’ backs—but can collect pet hair if your furry friends decide the M9 is a great place to snooze.
 
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/tSFIFAR8G-C5W7DBBLPJ5GiE3EM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_03-8842478b07bd4585ba7f1843afcd29dc.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
 
  Despite this mesh exterior, the M9 chair is incredibly sleek and modern and adds style to any modern gaming setup. This is not only because of the mesh support but the rest of the chair is upholstered in beautiful, smooth leather. The logo on the headrest stands out, but it’s not really a detriment to the overall design of the chair.
 
  At 56 x 26 x 22.75 inches (HWD), the chair has a wide seat for spreading out and comes with an optional headrest. Even the wheels are prepped for hours of gameplay and come with a locking feature to ensure stability.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Comfort: It’s all in the ergonomics
 
@@ -104,6 +97,13 @@ Lifewire / Rebecca Isaacs
  In fact, nearly everything can be adjusted from the seat depth to the headrest angle—the chair is easy to mold to your personal needs.
 
 ![Mavix M9 Gaming Chair headrest ](https://www.lifewire.com/thmb/dk-8es8V-f2VzVltDiUNw0nCs2o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_02-acc7e137bc7a4b25837fbbe065ac1416.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -133,7 +133,21 @@ Lifewire / Rebecca Isaacs
 
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/_eJYTViir2syGINJQq7Fxl1ofHQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_04-d42bbf02273f4d0aa7c25351b201dc2c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Mavix M9 vs. XChair X4 Chair
 
@@ -147,25 +161,11 @@ Lifewire / Rebecca Isaacs
 
  While it can’t really be customized outside of cosmetic options, the M9 gaming chair is a solid, easy way to enjoy any gaming hobby without worrying about backaches. The reclining technology and the locking wheels are especially nice bonuses. The price may seem a little high, but it’s a worthy investment for any gamer.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [FicMax Ergonomic Gaming Chair](https://www.lifewire.com/ficmax-ergonomic-gaming-chair-review-4771068)
 * [X Rocker 51396 Pro Series Pedestal 2.1 Gaming Chair](https://www.lifewire.com/x-rocker-51396-pro-series-pedestal-2-1-gaming-chair-review-4771021)
 * [Homall Executive Swivel Chair](https://www.lifewire.com/homall-executive-swivel-chair-review-4589356)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -194,15 +194,21 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-seamless-fb-to-mp4-conversion-service/"><u>2024 Approved Seamless FB to MP4 Conversion Service</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-unlocking-personalized-vocal-elements-on-instagram/"><u>2024 Approved Unlocking Personalized Vocal Elements on Instagram</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/2024s-premier-radio-systems-for-officers/"><u>2024'S Premier Radio Systems for Officers</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/appreciation-showcase-easy-access-to-otus-for-2024/"><u>Appreciation Showcase Easy Access to OTUs for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/battle-royale-showdown-diving-into-fortnites-latest-fun-filled-season/"><u>Battle Royale Showdown: Diving Into Fortnite's Latest Fun-Filled Season</u></a></li>
-<li><a href="https://win-forum.techidaily.com/comprehensive-method-for-protecting-text-files-through-password-encryption/"><u>Comprehensive Method for Protecting Text Files Through Password Encryption</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/icicle-illusions-winter-games-showcase-for-2024/"><u>Icicle Illusions Winter Games Showcase for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/maximizing-your-time-free-countdown-essentials-for-2024/"><u>Maximizing Your Time Free Countdown Essentials for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-capabilities-detailed-evaluation-of-the-tp-link-re505x-range-extender/"><u>Unveiling the Capabilities: Detailed Evaluation of the TP-Link RE505X Range Extender</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-why-the-huawei-p30-pro-remains-my-preferred-choice-detailed-review/"><u>Unveiling Why the Huawei P30 Pro Remains My Preferred Choice: Detailed Review</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-double-trouble-replaying-youtube-videos-on-your-set/"><u>[New] Double Trouble Replaying YouTube Videos on Your Set</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-ultimate-8-camera-showdown-excellence-in-broadcasting/"><u>[New] In 2024, Ultimate 8 Camera Showdown Excellence in Broadcasting</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-step-by-step-adding-snap-camera-to-teams-chats/"><u>[Updated] 2024 Approved Step-by-Step Adding Snap Camera to Teams Chats</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-inhabit-your-island-minimalistic-mc-house-plans-explained/"><u>[Updated] In 2024, Inhabit Your Island Minimalistic MC House Plans Explained</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-premium-top-5-storage-solutions-for-xbox/"><u>[Updated] In 2024, Premium Top 5 Storage Solutions for Xbox</u></a></li>
+<li><a href="https://facebook.techidaily.com/deconstructing-giants-the-role-of-governments-in-dismantling-tech-titans/"><u>Deconstructing Giants: The Role of Governments in Dismantling Tech Titans</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-leading-17-laptop-models-dominating-2024s-tech-scene/"><u>Discover the Leading 17 Laptop Models Dominating 2024'S Tech Scene</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-benefits-of-the-garmin-vivomove-hr-watch-where-elegance-meets-exercise/"><u>Discovering the Benefits of the Garmin Vivomove HR Watch - Where Elegance Meets Exercise</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-the-power-in-a-pocketbook-the-razer-book-13-reviewed/"><u>Experience the Power in a Pocketbook: The Razer Book 13 Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-netgear-nighthawk-ax8-the-ultimate-wi-fi-n-mesh-expander-for-modern-homes/"><u>Expert Analysis of the Netgear Nighthawk AX8: The Ultimate Wi-Fi N Mesh Expander for Modern Homes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-unbeatable-dji-mavic-2-the-ultimate-tool-for-professionals/"><u>Expert Analysis of the Unbeatable DJI Mavic 지킬 2 프로 - The Ultimate Tool for Professionals</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-winegard-fl5500a-flatwave-balancing-quality-with-high-cost/"><u>Expert Analysis: Winegard FL5500A FlatWave - Balancing Quality with High Cost</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-assessment-of-the-compact-aphaca-bt69-car-bluetooth-fm-transmitter-performance-review/"><u>Expert Assessment of the Compact Aphaca BT69 Car Bluetooth FM Transmitter Performance Review</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your ZTE Nubia Flip 5G | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-mastery-guide-securely-archiving-snapchat-media-on-devices/"><u>In 2024, Mastery Guide Securely Archiving Snapchat Media on Devices</u></a></li>
+<li><a href="https://win-dash.techidaily.com/resolving-common-bluetooth-drivers-glitches-in-windows-10-made-easy/"><u>Resolving Common Bluetooth Drivers Glitches in Windows 10 Made Easy</u></a></li>
 </ul></div>
 

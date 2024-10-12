@@ -1,7 +1,7 @@
 ---
 title: "Navigating the Stars with Offworld Trading Company: A Critical Guide to Dominating Intergalactic Commerce"
-date: 2024-09-30T02:02:50.860Z
-updated: 2024-10-06T21:19:38.727Z
+date: 2024-10-05T16:04:45.892Z
+updated: 2024-10-12T18:42:46.626Z
 categories:
   - BestProducts
 description: "This Article Describes Navigating the Stars with Offworld Trading Company: A Critical Guide to Dominating Intergalactic Commerce"
@@ -36,16 +36,16 @@ Lifewire / Kelsey Simon
 
 2.7
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -65,13 +65,6 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
@@ -79,10 +72,10 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -99,13 +92,6 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
  Beyond this, the other major gameplay mechanic is a system of effort and inspiration. Every action you take will prompt you to use effort. This effort allows for your character to work harder at the chosen action, and thus gives your character a better chance of accomplishing their goal.
@@ -120,6 +106,13 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -127,6 +120,13 @@ Lifewire / Kelsey Simon
  The one positive is the originality in the world the developers have created. The setting feels unique―a mix of strange alien tech within a fantasy city. A wide range of characters will fill the game, and they respond and react in creative ways. It’s also a fun experience to run around and talk to these various characters and explore the game’s world and the lore of Numenera.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -173,18 +173,22 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-harness-the-power-of-picture-in-picture-on-chrome-platforms/"><u>[New] Harness the Power of Picture In Picture on Chrome Platforms</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-photographers-manual-how-to-crop-images-seamlessly-online/"><u>[New] The Photographer's Manual How To Crop Images Seamlessly Online</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-expertise-at-a-click-the-ultimate-tutorial-on-high-quality-video-recordings-for-2024/"><u>[Updated] Expertise at a Click The Ultimate Tutorial on High-Quality Video Recordings for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/boosting-remote-meeting-effectiveness-through-optimized-zoom-recordings-for-2024/"><u>Boosting Remote Meeting Effectiveness Through Optimized Zoom Recordings for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/effective-solutions-for-fixing-code-41-errors-in-windows-device-manager/"><u>Effective Solutions for Fixing Code 41 Errors in Windows Device Manager</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-reset-itunes-backup-password-of-iphone-12-prevention-and-solution-by-drfone-ios/"><u>In 2024, Reset iTunes Backup Password Of iPhone 12 Prevention & Solution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-surviving-in-days-gone-motorcycle-adventures-amongst-the-dead/"><u>The Ultimate Guide to Surviving in 'Days Gone': Motorcycle Adventures Amongst the Dead</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-using-audews-functional-portable-air-compressor-review-and-insights/"><u>The Ultimate Guide to Using Audew's Functional Portable Air Compressor: Review and Insights</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-verdict-on-dji-mavic-2-pro-an-indisputable-champion-for-professionals/"><u>The Ultimate Verdict on DJI Mavic 2 Pro - An Indisputable Champion for Professionals</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-8-essential-factors-for-smart-purchase-decisions-on-tablets/"><u>Top 8 Essential Factors for Smart Purchase Decisions on Tablets</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/tracing-the-development-of-ios-platform-an-in-depth-look-from-version-10-to-180/"><u>Tracing the Development of iOS Platform: An In-Depth Look From Version 1.0 to 18.0</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unboxing-the-worthiness-of-apple-tv/"><u>Unboxing the Worthiness of Apple TV</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlocking-affordability-in-tech-with-alcatel-joy-tab-2-your-essential-lte-tablet-review/"><u>Unlocking Affordability in Tech with Alcatel Joy Tab 2: Your Essential LTE Tablet Review</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-epic-browser-recording-tools-for-the-ultimate-surfers-dream/"><u>[New] 2024 Approved Epic Browser Recording Tools for the Ultimate Surfer's Dream</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-prime-cloud-call-recorder-pros/"><u>[New] In 2024, Prime Cloud Call Recorder Pros</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-exhilarating-escapades-a-guide-to-the-greatest-action-adventure-games-top-10-for-2024/"><u>[Updated] Exhilarating Escapades A Guide to the Greatest Action-Adventure Games (Top 10) for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2023s-best-value-pruveeo-f5-full-hd-1080p-dash-cam-comprehensive-review-for-safe-journeys/"><u>2023'S Best Value Pruveeo F5 Full HD 1080P Dash Cam - Comprehensive Review for Safe Journeys</u></a></li>
+<li><a href="https://win-blog.techidaily.com/5-easy-fixes-when-you-cant-start-outriders-on-your-computer-2/"><u>5 Easy Fixes When You Can't Start Outriders on Your Computer (2</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-fresh-look-at-yokus-island-express-bold-adventures-in-unexpected-directions/"><u>A Fresh Look at Yoku’s Island Express: Bold Adventures in Unexpected Directions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/acer-xfa240-evaluation-prioritizing-performance-and-utility/"><u>Acer XFA240 Evaluation: Prioritizing Performance and Utility</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/advantages-and-disadvantages-a-comprehensive-review-of-the-webex-virtual-conferencing-platform/"><u>Advantages & Disadvantages: A Comprehensive Review of the Webex Virtual Conferencing Platform</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723043894464-affordable-and-fast-ev-charge-stations-why-experts-say-powerdrive-tops-every-list-for-cost-effective-solutions/"><u>Affordable and Fast EV Charge Stations - Why Experts Say PowerDrive Tops Every List for Cost-Effective Solutions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/analyzing-the-differences-a-side-by-side-galaxy-s10plus-and-samsung-s20-review/"><u>Analyzing the Differences: A Side-by-Side Galaxy S10+ and Samsung S20 Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/canon-rebel-t7-kit-next-level-photography-experience/"><u>Canon Rebel T7 Kit: Next-Level Photography Experience</u></a></li>
+<li><a href="https://article-posts.techidaily.com/elevate-your-podcasts-reach-with-advanced-seo-strategies-for-2024/"><u>Elevate Your Podcast's Reach with Advanced SEO Strategies for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/essential-considerations-for-choosing-the-right-projector/"><u>Essential Considerations for Choosing the Right Projector</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/gpt-meets-gearshifts-mercedes-voice-in-cars-revolution/"><u>GPT Meets Gearshifts: Mercedes' VOICE in Cars Revolution</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-enhancing-video-sounds-with-canvas-audio-tools/"><u>In 2024, Enhancing Video Sounds with Canva's Audio Tools</u></a></li>
+<li><a href="https://driver-install.techidaily.com/mend-software-hardware-gap/"><u>Mend Software-Hardware Gap</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-readers-are-raving-about-the-kobo-clara-colour-a-thorough-examination/"><u>Why Readers Are Raving About the Kobo Clara Colour: A Thorough Examination</u></a></li>
 </ul></div>
 

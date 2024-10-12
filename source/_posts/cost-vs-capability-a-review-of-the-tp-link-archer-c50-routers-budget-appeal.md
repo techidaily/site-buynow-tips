@@ -1,7 +1,7 @@
 ---
 title: "Cost Vs. Capability: A Review of the TP-Link Archer C50 Router's Budget Appeal"
-date: 2024-10-05T22:28:58.825Z
-updated: 2024-10-06T21:30:11.883Z
+date: 2024-10-10T20:31:13.510Z
+updated: 2024-10-12T19:32:53.488Z
 categories:
   - BestProducts
 description: "This Article Describes Cost Vs. Capability: A Review of the TP-Link Archer C50 Router's Budget Appeal"
@@ -40,16 +40,16 @@ Lifewire / Jeremy Laukkonen
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## TP-Link Archer A6 AC1200 Gigabit Smart Wi-Fi Router
 
 ![TP-Link Archer A6 AC1200 Router](https://www.lifewire.com/thmb/eB886Wl9r3D8YMg227kYv9GRkJs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_HeroSquare-3758788658a244148a04b7346643557b.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -75,13 +75,6 @@ Lifewire / Jeremy Laukkonen
 
  Specifications don’t always tell the whole story, so I recently spent about five days with a TP-Link Archer A6 plugged into my own network. I tested how well it holds up under daily use with a lot of data-hungry devices connected at once, tested top speeds and range on both bands, and more.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Improved over older designs**
 
  The Archer A6 doesn’t exactly stand out of the crowd, but it’s a definite improvement over the older C7 that I keep around for testing purposes. Instead of the flat or glossy black finish seen on most routers, the A6 has a two-tone crosshatched pattern that creates an interesting visual effect. The edges are rounded instead of angular, and the top actually curves gently downward when viewed head-on.
@@ -90,18 +83,18 @@ Lifewire / Jeremy Laukkonen
 
 ![TP-Link Archer A6 AC1200](https://www.lifewire.com/thmb/eeaRHW4APuNCYThw1t-TVwYpmSI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_04-4739ffd6705348959e05e41ab9da2292.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
  The ports and power button are all found on the back of the unit in a fairly standard array, and you’ll find the indicator LEDs on top near the front edge. The positioning is good for desktop use, and it also leaves the indicators clearly visible when wall mounted.
 
  The Archer A6 doesn’t exactly stand out of the crowd, but it’s a definite improvement over the older C7 that I keep around for testing purposes.
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Completely painless once you unwrap the antennas**
 
@@ -115,7 +108,21 @@ Lifewire / Jeremy Laukkonen
 
 ![TP-Link Archer A6 AC1200](https://www.lifewire.com/thmb/2zSHbpT2Rq4Ac-0-u73213g1rlk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_02-8fd53e1cd8284fd4a40091d7896fe8db.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity: Dual-band with MU-MIMO, but lacking in physical ports**
 
@@ -124,6 +131,13 @@ Lifewire / Jeremy Laukkonen
  On the physical side, the A6 comes with a bare minimum single WAN port and four LAN ports. There isn’t even a single USB port, so you can’t use this router to host a networked USB drive. That isn’t completely unexpected from a budget router, but it would have been nice if it included at least one USB port.
 
  On the physical side, the A6 comes with a bare minimum single WAN port and four LAN ports. There isn’t even a single USB port, so you can’t use this router to host a networked USB drive.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Network Performance: Decent performance for a budget router**
 
@@ -140,13 +154,6 @@ Lifewire / Jeremy Laukkonen
  For my final test, I headed down to my garage, putting about a hundred feet and a significant amount of obstructions in the way. My mobile device was only able to connect to the 2.4Ghz network at that range, and it notched a download speed of 13.4Mbps. That’s workable, but it’s also a sign that you may end up needing a Wi-Fi range extender with the Archer A6 even if your house isn’t that large.
 
  You may end up needing a Wi-Fi range extender with the Archer A6 even if your house isn’t that large.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: Basic and easy to use**
 
@@ -181,19 +188,6 @@ Lifewire / Jeremy Laukkonen
  **A great budget router that provides premium features.**
 
  The TP-Link Archer A6 is a great little budget-priced router that performs better than I expected it to. It’s important to stress that it’s an AC1200 router, and it’s only dual-band, so don’t expect it to do the job if you have dozens of data-hungry devices or an especially large house with a complicated internal setup. But if you just want an affordable router that performs well across about 1,400-1,600 square feet of space, this is a great option.
-
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -231,19 +225,18 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-the-ultimate-dji-phantom-upgrade-kit/"><u>[New] The Ultimate DJI Phantom Upgrade Kit</u></a></li>
-<li><a href="https://discover-guides.techidaily.com/best-free-windows-software-for-dvd-conversion-top-3-recommended-tools/"><u>Best Free Windows Software for DVD Conversion : Top 3 Recommended Tools</u></a></li>
-<li><a href="https://techtrends.techidaily.com/efficiently-pinpoint-locations-mastering-the-art-of-placing-multiples-points-in-google-map/"><u>Efficiently Pinpoint Locations: Mastering the Art of Placing Multiples Points in Google Map</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/how-to-monetize-your-youtube-shorts-simple-steps-for-2024/"><u>How to Monetize Your YouTube Shorts Simple Steps for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-show-wi-fi-password-on-poco-x6-by-drfone-android/"><u>How to Show Wi-Fi Password on Poco X6</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-tecno-spark-20-proplus-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Tecno Spark 20 Pro+ by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-xiaomi-civi-3-disney-100th-anniversary-edition-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Xiaomi Civi 3 Disney 100th Anniversary Edition to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-inviolable-tactic-to-eliminate-youtube-shorts/"><u>In 2024, Inviolable Tactic to Eliminate YouTube Shorts</u></a></li>
-<li><a href="https://fox-that.techidaily.com/overcoming-hurdles-solutions-for-a-non-functioning-iphone-guided-mode/"><u>Overcoming Hurdles: Solutions for a Non-Functioning iPhone Guided Mode</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-simplicity-and-power-combo-insights-from-the-clearstream-eclipse-antenna-critique/"><u>The Simplicity and Power Combo: Insights From the ClearStream Eclipse Antenna Critique</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-face-off-analyzing-the-features-of-apple-watch-s9-and-fitbit-charge-6/"><u>The Ultimate Face-Off: Analyzing the Features of Apple Watch S9 and Fitbit Charge 6</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-best-iphone-models-for-mobile-gaming/"><u>The Ultimate Guide to the Best iPhone Models for Mobile Gaming</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-test-of-strength-a-deep-dive-into-the-performance-of-the-beatit-bt-d11-jump-starter/"><u>The Ultimate Test of Strength: A Deep Dive Into the Performance of the Beatit BT-D11 Jump Starter</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-the-kensun-inflatable-tire-toolkit-robust-and-easy-to-carry/"><u>Ultimate Guide to the Kensun Inflatable Tire Toolkit – Robust and Easy-to-Carry</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-redux-of-graphics-amd-radeon-update-for-2024/"><u>[New] Redux of Graphics AMD Radeon Update for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-closer-look-at-the-microsoft-surface-go-balancing-cost-efficiency-with-a-confusing-identity/"><u>A Closer Look at the Microsoft Surface Go - Balancing Cost Efficiency with a Confusing Identity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/acer-xf2-40-desktop-prioritizing-performance-in-modern-design/"><u>Acer XF2-40 Desktop: Prioritizing Performance in Modern Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/alcatel-joy-tab-2-lte-tablet-evaluation-affordable-performance/"><u>Alcatel Joy Tab 2 LTE Tablet Evaluation - Affordable Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-watch-series-9-review/"><u>Apple Watch Series 9 Review</u></a></li>
+<li><a href="https://win11.techidaily.com/breathing-life-back-into-disconnected-adapters-a-six-step-guide-on-winos/"><u>Breathing Life Back Into Disconnected Adapters: A Six-Step Guide on WinOS</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-music-files-on-redmi-13c-5g-by-fonelab-android-recover-music/"><u>Complete guide for recovering music files on Redmi 13C 5G</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-steelseries-keyboard-upgraded-free-driver-software/"><u>Get Your SteelSeries Keyboard Upgraded - Free Driver Software</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-oppo-a2-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Oppo A2 FRP</u></a></li>
+<li><a href="https://win-dash.techidaily.com/lenovo-x1-carbon-software-and-drivers-seamless-installation-for-windows-10-and-7-users/"><u>Lenovo X1 Carbon Software and Drivers: Seamless Installation for Windows 10 and 7 Users</u></a></li>
+<li><a href="https://windows11.techidaily.com/preventing-systemsettings-errors-in-windows-11/"><u>Preventing SystemSettings Errors in Windows 11</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/step-into-the-world-of-high-quality-lenovo-screen-recordings-for-2024/"><u>Step Into the World of High-Quality Lenovo Screen Recordings for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-powerhouse-an-in-depth-look-at-the-asus-zephyrus-g14-gaming-laptop/"><u>Unveiling the Powerhouse: An In-Depth Look at the Asus Zephyrus G14 Gaming Laptop</u></a></li>
 </ul></div>
 

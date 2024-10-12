@@ -1,7 +1,7 @@
 ---
 title: Exploring the Exceptional Hardware Capabilities of the Minimalist Xbox Series S
-date: 2024-10-05T21:56:00.585Z
-updated: 2024-10-06T23:36:44.022Z
+date: 2024-10-10T16:24:24.064Z
+updated: 2024-10-12T16:18:24.014Z
 categories:
   - BestProducts
 description: This Article Describes Exploring the Exceptional Hardware Capabilities of the Minimalist Xbox Series S
@@ -38,28 +38,15 @@ Lifewire / Todd Braylor
 4.2
 
 <!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fitbit Versa Lite
 
 ![Fitbit Versa Lite](https://www.lifewire.com/thmb/O7QnNkdge4zffV7BYmgcQZadk2I=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4057119-HeroSquare-771afa6a985240f0ab5fe71246b3d502.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -88,20 +75,14 @@ Lifewire / Todd Braylor
 
 ![Fitbit Versa Lite](https://www.lifewire.com/thmb/A3jXmqXMfkFi3FKj8NYHxxYKi84=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4057119-03-849db13f6309480cb88c9d05e512f1a1.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Todd Braylor
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Customizable and instinctive**
 
@@ -126,6 +107,13 @@ Lifewire / Todd Braylor
  When you connect your watch to the app the first time, the touchscreen guides you through a series of “Quick Tips” to get you acquainted with the Versa Lite's layout. The whole process takes about 10 minutes and then you are ready to go.
 
 ![Fitbit Versa Lite](https://www.lifewire.com/thmb/BD_8kRJ7n6qQdf5LY9rLKiYigTQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4057119-05-fac178f5e6b240c29ff8d1e1e4fcb96f.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Todd Braylor
 
@@ -158,13 +146,26 @@ Lifewire / Todd Braylor
 ![Fitbit Versa Lite](https://www.lifewire.com/thmb/97XADSG__Ti-9y6W9YfT6A-sRLg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4057119-04-a5baf62c5de749cb93986be2eab3ad2d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Todd Braylor
+
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery Life: Days of activity**
 
@@ -174,21 +175,7 @@ Lifewire / Todd Braylor
 
 ![Fitbit Versa Lite](https://www.lifewire.com/thmb/NkHZ0M514IlrqowHF6M_QWHxgj8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4057119-06-be4c149f1dff4214acfe0fbc3a4d63e6-1-f6f110eb54e142c992dd3f613bdb9f28.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Todd Braylor
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Key Features: Fitbit basics plus apps for any activity**
 
@@ -203,6 +190,13 @@ Lifewire / Todd Braylor
  Retailing for $159.95 and occasionally selling for less on sale, the Versa Lite is a price-conscious but solid piece of tech that prioritizes exercise. It's a great introduction to the smartwatch lifestyle with all the notifications you need to be connected and without an overwhelming amount of distractions.
 
  The ability to train in-depth with the Fitbit app and various Versa Lite exercise apps makes this fitness tracker a pretty good deal for under $200\. Avid swimmers, on the other hand, may want to look elsewhere.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Fitbit Versa Lite Edition vs. Apple Watch Series 4**
 
@@ -260,22 +254,18 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-premiere-gear-optimal-panoramic-recorders/"><u>[New] 2024 Approved Premiere Gear Optimal Panoramic Recorders</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-unveiling-color-secrets-master-the-craft-with-our-tutorial-series/"><u>[Updated] 2024 Approved Unveiling Color Secrets - Master the Craft with Our Tutorial Series</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-effortless-mpeg-creation-from-youtube-content-for-2024/"><u>[Updated] Effortless MPEG Creation From YouTube Content for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-mastering-screen-recording-on-skype-innovative-uses-of-obs/"><u>[Updated] In 2024, Mastering Screen Recording on Skype Innovative Uses of OBS</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/bypass-mac-development-verification-failures-clear-instructions-for-users/"><u>Bypass Mac Development Verification Failures: Clear Instructions for Users</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/disabling-iphone-11-parental-restrictions-withwithout-password-by-drfone-ios/"><u>Disabling iPhone 11 Parental Restrictions With/Without Password</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Apple iPhone 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maximizing-value-the-lenovo-tab-m10-fhd-plus-review-highlights-its-large-and-vivid-screen-in-2020/"><u>Maximizing Value: The Lenovo Tab M10 FHD Plus Review Highlights Its Large and Vivid Screen in 2020</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/microsoft-fsx-gold-ed-exceptional-flight-experience-awaits/"><u>Microsoft FSX: Gold Ed - Exceptional Flight Experience Awaits</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/selecting-superior-speed-top-combo-of-cable-modems-with-routers-in-the-market-now/"><u>Selecting Superior Speed: Top Combo of Cable Modems with Routers in the Market Now</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/sony-xperia-5-teardown-compact-design-yet-costly/"><u>Sony Xperia 5 Teardown: Compact Design Yet Costly</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/tech-meets-tomorrow-with-starlink-top-4-motivations-for-switching/"><u>Tech Meets Tomorrow with Starlink: Top 4 Motivations for Switching</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-complete-guide-to-choosing-the-right-portable-charger-zmi-powerpack-2000amperes-rated/"><u>The Complete Guide to Choosing the Right Portable Charger: ZMI PowerPack 20,00Amperes Rated</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-definitive-verdict-on-samsung-galaxy-s2ebeam-and-is-used-to-create-a-beamforming-effect-which-can-help-improve-signal-quality-and-range/"><u>The Definitive Verdict on Samsung Galaxy S2ebeam and Is Used to Create a Beamforming Effect, Which Can Help Improve Signal Quality and Range.</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-fitbit-charge-4-combining-elegance-with-performance/"><u>The Ultimate Guide to the Fitbit Charge 4: Combining Elegance with Performance</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/ultimate-guide-video-cropping-techniques-using-windows-movie-maker-for-windows-10-users/"><u>Ultimate Guide: Video Cropping Techniques Using Windows Movie Maker for Windows 10 Users</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/windows-10-wont-turn-off-here-are-the-fixes-to-your-computer-issue-resolved/"><u>Windows 10 Won’t Turn Off? Here Are the Fixes to Your Computer Issue - RESOLVED</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2023-fix-reappear-disappeared-watch-video-icon-for-2024/"><u>[New] 2023 Fix Reappear Disappeared Watch Video Icon for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/est-youtube-video-converters-for-high-quality-webm-for-2024/"><u>[New] Best YouTube Video Converters for High-Quality WebM for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-bring-back-disappearing-video-icon-on-fb-watch/"><u>[Updated] Bring Back Disappearing Video Icon on FB Watch</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-xiaomi-civi-3-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Xiaomi Civi 3 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/assessing-value-for-money-a-deep-dive-into-the-microsoft-surface-studio-2-review/"><u>Assessing Value for Money: A Deep Dive Into the Microsoft Surface Studio 2 Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-electronics-discounts-on-2024s-exclusive-amazon-prime-day-event/"><u>Best Electronics Discounts on 2024'S Exclusive Amazon Prime Day Event</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-conscious-tech-lovers-guide-to-the-lenovo-chromebook-duet-the-dual-function-device-examined/"><u>Budget-Conscious Tech Lover's Guide to the Lenovo Chromebook Duet: The Dual-Function Device Examined</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/choosing-between-google-nest-audio-and-nest-mini-features-sound-quality-and-more/"><u>Choosing Between Google Nest Audio and Nest Mini: Features, Sound Quality, and More</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discover-urban-wonders-exploring-top-destinations-in-london-berlin-and-dubai/"><u>Discover Urban Wonders: Exploring Top Destinations in London, Berlin, and Dubai</u></a></li>
+<li><a href="https://fox-http.techidaily.com/from-blank-page-to-airwaves-writing-engaging-podcast-episodes/"><u>From Blank Page to Airwaves Writing Engaging Podcast Episodes</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-music-from-your-tecno-by-fonelab-android-recover-music/"><u>How to recover old music from your Tecno</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/navigating-apple-podcast-submission-process-for-2024/"><u>Navigating Apple Podcast Submission Process for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-ultimate-guide-to-chargetechs-impressive-27000mah-portable-power-station-features-performance-and-value/"><u>The Ultimate Guide to ChargeTech's Impressive 27000mAh Portable Power Station - Features, Performance & Value</u></a></li>
 </ul></div>
 

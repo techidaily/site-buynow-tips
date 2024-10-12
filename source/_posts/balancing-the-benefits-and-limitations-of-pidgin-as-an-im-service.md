@@ -1,7 +1,7 @@
 ---
 title: Balancing the Benefits and Limitations of Pidgin as an IM Service
-date: 2024-10-02T16:40:41.290Z
-updated: 2024-10-06T18:14:40.308Z
+date: 2024-10-09T20:10:36.839Z
+updated: 2024-10-12T21:17:52.035Z
 categories:
   - BestProducts
 description: This Article Describes Balancing the Benefits and Limitations of Pidgin as an IM Service
@@ -39,13 +39,6 @@ thumbnail: https://www.lifewire.com/thmb/-LFyWEQy0WO9AyyJAwELLw48mH4=/400x300/fi
 
 3.6
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/EEEMCdq2FsBPMcT8nPUgndDIw4A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
@@ -73,16 +66,10 @@ thumbnail: https://www.lifewire.com/thmb/-LFyWEQy0WO9AyyJAwELLw48mH4=/400x300/fi
  Though Sony panels are sometimes on the expensive end of the spectrum, there are some older Sony 4K TVs that can be had for a nice little discount. One such TV is Sony’s XBR65X850F from their X850F series. This specific model has now been replaced by the X850G, but that doesn’t mean you necessarily need to go with the most current model. In fact, snagging one of these earlier generation sets can save you some cash without forcing you to compromise too much.
 
 <!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Standard Sony**
@@ -106,10 +93,16 @@ thumbnail: https://www.lifewire.com/thmb/-LFyWEQy0WO9AyyJAwELLw48mH4=/400x300/fi
  On the front of the screen, the bezels are a little thicker than some of the 4K TVs we’ve reviewed, but they’re pretty thin and shouldn’t distract. There’s your standard anti-glare coating found on the screen here too.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Stick to the on-screen instructions**
@@ -119,16 +112,10 @@ thumbnail: https://www.lifewire.com/thmb/-LFyWEQy0WO9AyyJAwELLw48mH4=/400x300/fi
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vvIZMf3BNAr8JmiDAVdv4o3ceHg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-2-7eabd63fb6c0415ab75fd927d664a841.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -145,6 +132,13 @@ thumbnail: https://www.lifewire.com/thmb/-LFyWEQy0WO9AyyJAwELLw48mH4=/400x300/fi
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/r5reh9LkA7QvieX1JzBg5J8qNjY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-5-00a73edbf91c48c6aa2718ab211f2e5d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
  However, IPS panels are notoriously bad for black uniformity and backlight bleed, which can cause clouding around the edges. We found this to be the case on our XBR65X850F, and while not unusable, it’s probably not the best option for viewing in dark environments because of this. The TV does have solid gray uniformity however, with no dirty screen effect. This is a huge boon if you’re a big sports fan.
@@ -158,6 +152,13 @@ thumbnail: https://www.lifewire.com/thmb/-LFyWEQy0WO9AyyJAwELLw48mH4=/400x300/fi
  Lastly, let’s take a look at motion blur and response times for the XBR65X850F. This particular Sony does very well in this area thanks to the 120Hz refresh rate. While watching some fast-paced action scenes and playing games in 4K, we didn't notice any real ghosting or stutters. This means your content should be nice and buttery smooth. However, there isn’t an option for variable refresh tech like FreeSync here, so the TV won’t be the best for gaming (though it is perfectly fine for this, bolstered by that high refresh rate). Response time here is another strength, as the XBR65X850F is very fast in this department.
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -188,13 +189,6 @@ thumbnail: https://www.lifewire.com/thmb/-LFyWEQy0WO9AyyJAwELLw48mH4=/400x300/fi
  On Sony’s website, the 65-inch model we tested here is listed at $1,300, the 75 at $2,300, and the 85 at a whopping $4,000\. Now these prices aren’t exactly accurate, especially since these are an older series. Typically you can find the 65-inch for about $1,100 or so. The other models are also heavily discounted depending on where you look, so definitely shop around. It’s likely that you can snag them for even less during sales.
 
  But how do these prices stack up against comparable TVs from competitors like LG or Samsung? Taking a quick look around online, you can easily save a few hundred dollars by going with a comparable LG TV, while Samsung was pretty closely matched with Sony. In the end, the price for the X850F series isn’t the best bang for your buck, but it ain’t bad either.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Sony XBR65X850F vs. Samsung UN65RU8000**
 
@@ -243,24 +237,24 @@ thumbnail: https://www.lifewire.com/thmb/-LFyWEQy0WO9AyyJAwELLw48mH4=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-scrutinizing-magix-video-composer/"><u>[New] 2024 Approved Scrutinizing MAGIX Video Composer</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-professional-cameras-face-off-hero-5-vs-keymission/"><u>[New] In 2024, Professional Cameras Face Off Hero 5 VS Keymission</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-secrets-to-superior-sprouts-in-the-world-of-valheim/"><u>[Updated] In 2024, Secrets to Superior Sprouts in the World of Valheim</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-secure-and-quality-the-top-5-choice-of-recorders/"><u>2024 Approved Secure and Quality - The Top 5 Choice of Recorders</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-understanding-instagrams-video-restriction/"><u>2024 Approved Understanding Instagram's Video Restriction</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-motorola-razr-40-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Motorola Razr 40 Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-controlling-your-pets-diet-with-the-petsafe-automatic-feeder-reviewed-here/"><u>Expert Insights on Controlling Your Pet's Diet with the PetSafe Automatic Feeder Reviewed Here</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-impact-of-a-smaller-hero-in-the-vast-universe-of-spider-man-a-review-of-miles-morales/"><u>Exploring the Impact of a Smaller Hero in the Vast Universe of Spider-Man: A Review of Miles Morales</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/fitbit-charge-4-review/"><u>Fitbit Charge 4 Review</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-the-latest-steelseries-graphics-card-driver-for-windows-users/"><u>Get the Latest SteelSeries Graphics Card Driver for Windows Users</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Realme Narzo N55 | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-to-verify-and-edit-web-pages-pre-upload-a-comprehensive-guide/"><u>How to Verify and Edit Web Pages Pre-Upload: A Comprehensive Guide</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-honor-magic-vs-2-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Honor Magic Vs 2 FRP Locks</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/innovative-imaging-tripod-expedition-essential/"><u>Innovative Imaging Tripod: Expedition Essential</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/inside-the-google-nest-doorbell-battery-a-thorough-review-for-homeowners/"><u>Inside the Google Nest Doorbell (Battery): A Thorough Review for Homeowners</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ipad-pro-versus-surface-pro-a-comprehensive-guide-to-choose-your-perfect-device/"><u>IPad Pro Versus Surface Pro - A Comprehensive Guide to Choose Your Perfect Device</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/must-know-criteria-for-buying-virtual-reality-headsets/"><u>Must-Know Criteria for Buying Virtual Reality Headsets</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/navigate-to-weather-mastery-elite-domestic-forecasting-tools-of-2-cup-the-definitive-list/"><u>Navigate to Weather Mastery: Elite Domestic Forecasting Tools of 2 Cup: The Definitive List</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/top-5-free-online-gif-to-video-tools-no-downloads-needed-for-2024/"><u>Top 5 Free Online GIF-to-Video Tools (No Downloads Needed) for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-unraveling-the-complexity-of-youtube-analytics-analysis/"><u>[New] 2024 Approved Unraveling the Complexity of YouTube Analytics Analysis</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-audience-anticipation-crafting-captivating-video-content-on-social-media-for-2024/"><u>[New] Audience Anticipation Crafting Captivating Video Content on Social Media for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-art-of-steady-selfies-and-photos/"><u>[Updated] 2024 Approved The Art of Steady Selfies & Photos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-unveiling-the-secrets-how-to-clear-yt-background/"><u>[Updated] In 2024, Unveiling the Secrets How to Clear YT Background</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/capture-extreme-scenes-with-nikon-coolpix-p1000-superzoom-lens/"><u>Capture Extreme Scenes with Nikon COOLPIX P1000 Superzoom Lens</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-the-smartly-crafted-protection-of-twelve-souths-bookbook-v2-for-macbook-pros/"><u>Comprehensive Review: The Smartly Crafted Protection of Twelve South's BookBook V2 for MacBook Pros</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-samsung-galaxy-watch-active-examination-the-ultimate-fitness-companion/"><u>Comprehensive Samsung Galaxy Watch Active Examination – The Ultimate Fitness Companion</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/considering-macos-sonomas-latest-version/"><u>Considering MacOS Sonoma's Latest Version?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-best-websites-offering-quality-e-learning-courses/"><u>Discover the Best Websites Offering Quality E-Learning Courses</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-value-in-chatgpt-plus-find-out-with-these-compelling-5-points/"><u>Discovering Value in ChatGPT Plus - Find Out With These Compelling 5 Points!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elevate-your-exercise-experience-with-garmin-vivoactive-es-innovative-workout-plus-tune-in-feature/"><u>Elevate Your Exercise Experience with Garmin Vivoactive E's Innovative Workout + Tune-In Feature</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elite-gamers-choice-a-thorough-review-of-the-portable-dynamo-razer-blade-pro/"><u>Elite Gamer's Choice: A Thorough Review of the Portable Dynamo, Razer Blade Pro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ergonomic-folding-bluetooth-keyboard-by-moko-ideal-for-on-the-go-productivity/"><u>Ergonomic Folding Bluetooth Keyboard by MoKo - Ideal for On-the-Go Productivity</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/explore-the-best-free-drawing-software-for-mac-users/"><u>Explore the Best FREE Drawing Software for Mac Users</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/from-gpt-35-to-gpt-4-a-comprehensive-guide-to-their-five-main-variances/"><u>From GPT-3.5 to GPT-4: A Comprehensive Guide to Their Five Main Variances</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-realme-narzo-n55-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Realme Narzo N55 Users</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/navigating-the-installation-of-codegpt-into-vs-code/"><u>Navigating the Installation of CodeGPT Into VS Code</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ting-from-gaming-channels-for-2024/"><u>Profiting From Gaming Channels for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/revolutionize-your-viewing-with-tcls-latest-upgrade-19-additions-to-the-q-and-s-lineup/"><u>Revolutionize Your Viewing with TCL's Latest Upgrade: 19 Additions to the Q & S Lineup</u></a></li>
 </ul></div>
 

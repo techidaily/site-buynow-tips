@@ -1,7 +1,7 @@
 ---
 title: "The Netgear Nighthawk RAX80: A Revolutionary Wi-Fi 6 Router Examined for Efficiency and Elegance"
-date: 2024-08-22T18:08:23.693Z
-updated: 2024-08-23T18:08:23.693Z
+date: 2024-10-08T20:59:02.851Z
+updated: 2024-10-12T17:46:00.634Z
 categories:
   - BestProducts
 description: "This Article Describes The Netgear Nighthawk RAX80: A Revolutionary Wi-Fi 6 Router Examined for Efficiency and Elegance"
@@ -75,6 +75,13 @@ Jeremy Laukkonen / Lifewire
 
  Jeremy Laukkonen / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Same sleek aluminum chassis
 
  The big changes here are all under the hood, as Apple opted to leave the overall design of the Mac mini (M1, 2020) unchanged from the previous model. It’s still a block of milled aluminum with the same rounded corners, satin finish, and shiny Apple logo emblazoned on the top. The top is smooth and unmarked aside from the logo, and the front and sides of the case are completely featureless aside from a small LED on the front that lets you know when the system is powered on.
@@ -91,10 +98,14 @@ Jeremy Laukkonen / Lifewire
 
 ![Mac mini](https://www.lifewire.com/thmb/xpt3pmIvU6FTBUo0tBDpyp3BERE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mac-Mini-M1-2020-Computer-3-844f657110aa424db6f1e5bac1b19eda.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
  Jeremy Laukkonen / Lifewire
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Setup Process: Fast and painless, but you can’t use a Bluetooth keyboard or mouse
 
@@ -105,8 +116,12 @@ Jeremy Laukkonen / Lifewire
  For example, I was able to plug in the dongle from my Logitech K400+ Touch Keyboard, and the Mac mini recognized the peripheral immediately. That allowed me to complete the setup process without digging around for wired peripherals.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Performance: Unreal performance with some hiccups
 
  While the Mac mini (M1, 2020) remained mostly unchanged from a design perspective, the internals received a massive overhaul. This is Apple’s first desktop to receive its new M1 chip, and that’s a really big deal. Though one of the M1’s headline features, reduced power use, isn’t as big a deal here as it is in the MacBook Air, this chip is still massively more powerful than anything you’ve ever seen in a Mac before. In fact, the Mac mini has the exact same chip as the MacBook Pro, with one more GPU core than the MacBook Air.
@@ -125,9 +140,6 @@ Jeremy Laukkonen / Lifewire
 
 ![Mac mini](https://www.lifewire.com/thmb/H6vCqcN2s5HOQG5MJWawrPxairg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mac-Mini-M1-2020-Computer-6-cd1693bee2f4429fafd1a57ecffbce81.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
  Jeremy Laukkonen / Lifewire
 
 ## Gaming: Limited but promising
@@ -151,8 +163,12 @@ Jeremy Laukkonen / Lifewire
  Aside from lack of support from game developers, the only real drawback here in terms of gaming comes from the HDMI port itself. While the M1 Mac mini can pump out[4K graphics](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) , it’s limited to a 60Hz refresh rate. That’s fine for most casual gamers, but anyone who has fallen in love with their high refresh rate monitor will experience a bit of pain here.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Productivity: Ready for work
 
  The great thing about the Mac mini line is that it’s always been so flexible. You can use a Mac mini for work, but the size and relative affordability of the hardware means you aren’t locked into using it that way. If you do aim to use an M1 Mac mini for work though, it’s more than up to the task. Native apps and the operating system itself run fast and smooth as you could possibly hope, with none of the sitting around looking at spinning beach balls that you may have gotten used to with older hardware.
@@ -165,9 +181,6 @@ Jeremy Laukkonen / Lifewire
 
  Multitasking also works flawlessly, and I was able to juggle an impressive number of browser windows, intensive apps like Photoshop and Handbrake, voice and video chat over Discord, and more without running into any real problems.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ## Audio: It’s there if you need it
 
  The M1 Mac mini is great in almost every category, but audio isn’t one of them. There’s a speaker inside that sleek aluminum block, but it isn’t one you’ll care to listen to. It’s tinny and hollow, and absolutely a placeholder for more capable external speakers. You’ll want to hook up headphonesor some kind of speakers or soundbar shortly after setting the M1 Mac mini up, because the built-in speaker isn’t really even suitable for watching YouTube videos, let alone listening to music or streaming your favorite shows or movies.
@@ -179,8 +192,12 @@ Jeremy Laukkonen / Lifewire
  Jeremy Laukkonen / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Network: Solid Ethernet and Wi-Fi 6 connectivity
 
  The Mac mini includes a wired gigabit Ethernet jack, support for Bluetooth 5.0, and a[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) network card that’s also 801.11a/b/g/n/ac compatible. Performance from the wired and wireless networking options was uniformly strong, with fast download speeds and no issues streaming 4K video or video chatting.
@@ -208,13 +225,14 @@ Jeremy Laukkonen / Lifewire
 ![Mac mini](https://www.lifewire.com/thmb/G2V98ugnO-cdk-GaL11FUP0RWvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mac-Mini-M1-2020-Computer-7-c899b9f13f09448699fee766ab51a2bd.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Jeremy Laukkonen / Lifewire
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Mac Mini M1 vs. Mac Mini Intel
 
  This is a bit of an unfair fight, but the fact is that Apple still sells the Intel Mac mini, so it’s a natural comparison to make. The two mini desktops share an identical form factor, with the Intel version coming in Space Gray and the M1 version finished in Silver. The Intel Mac mini has a base price of $1,099 compared to $699 or $899 for the M1 Mac mini.
@@ -234,6 +252,13 @@ Jeremy Laukkonen / Lifewire
  **If all you need is a Mac, the M1 Mac mini is your destination.**
 
  The Apple Mac mini with M1 is a tremendously impressive piece of hardware, offering staggering performance at an affordable price. The only real catch here is that in leaving Intel behind, Apple may have left you in the lurch. If you currently can’t get by without running specific apps through Windows by way of Bootcamp, then the M1 Mac mini just isn’t what you’re looking for. If you can live and work in a world that’s entirely free of Windows, then the M1 Mac mini is ready to welcome you home.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -257,14 +282,11 @@ Jeremy Laukkonen / Lifewire
 * Connectivity  Wi-Fi 6, Ethernet
 * Software  macOS Big Sur
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -273,4 +295,26 @@ Jeremy Laukkonen / Lifewire
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-crafting-cinematic-content-with-precision-ratios/"><u>[New] Crafting Cinematic Content with Precision Ratios</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/astering-youtube-video-transformation-into-animated-gifs-no-save/"><u>[New] Mastering YouTube Video Transformation Into Animated GIFs (No Save)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-pinnacle-of-picture-perfection-top-10-screens/"><u>2024 Approved Pinnacle of Picture Perfection Top 10 Screens</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-tp-link-archer-c50-router-evaluation-cost-effective-features-and-value/"><u>Affordable TP-Link Archer C50 Router Evaluation: Cost-Effective Features and Value</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-how-roku-express-offers-great-value-for-money-with-a-massive-library-of-entertainment/"><u>Discover How Roku Express Offers Great Value for Money with a Massive Library of Entertainment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-assessment-and-insights-on-map-my-ride-features/"><u>Expert Assessment and Insights on Map My Ride Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-fun-filled-world-of-educational-toys-the-wonder-workshop-dash/"><u>Exploring the Fun-Filled World of Educational Toys: The Wonder Workshop Dash!</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Samsung Galaxy A14 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/novice-networking-necessities-affordable-monetized-platforms/"><u>Novice Networking Necessities Affordable Monetized Platforms</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-vivo-t2x-5g-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Vivo T2x 5G? 8 Solutions Inside | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sony-xbr65x850f-4k-television-stunning-visuals-at-an-unbelievable-price-point-review/"><u>Sony XBR65X850F 4K Television: Stunning Visuals at an Unbelievable Price Point Review!</u></a></li>
+<li><a href="https://win-able.techidaily.com/steps-for-fixing-the-problematic-game-launch-in-fortnite-ls-0013/"><u>Steps for Fixing the Problematic Game Launch in Fortnite (LS-0013)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-extollo-lansocket-1500-next-level-data-rates-reduced-latency-and-efficient-energy-transfer/"><u>The Ultimate Review of Extollo LANSocket 1500: Next-Level Data Rates, Reduced Latency, and Efficient Energy Transfer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-moto-g-stylus-exceptional-specs-with-long-lasting-power-and-convenient-scribing-feature/"><u>The Ultimate Review of Moto G Stylus - Exceptional Specs with Long-Lasting Power & Convenient Scribing Feature</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-the-moto-g-with-stylus-exceptional-functionality-and-adequate-power-reserves/"><u>The Ultimate Review of the Moto G with Stylus: Exceptional Functionality and Adequate Power Reserves</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-video-streaming-services/"><u>Top-Rated Video Streaming Services</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/ultimate-fixes-for-a-lagging-spotify-browser-app-updated-guide/"><u>Ultimate Fixes for a Lagging Spotify Browser App (Updated Guide )</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-why-the-microsoft-surface-laptop-4-reigns-supreme/"><u>Ultimate Guide: Why the Microsoft Surface Laptop 4 Reigns Supreme</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/vergeten-bestandsdocumenten-van-een-acer-laptop-herstellen-6-hulpbronnen-en-tips/"><u>Vergeten Bestandsdocumenten Van Een Acer Laptop Herstellen - 6 Hulpbronnen en Tips</u></a></li>
+</ul></div>
 

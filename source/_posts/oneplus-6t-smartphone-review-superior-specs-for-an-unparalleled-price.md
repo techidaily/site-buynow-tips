@@ -1,7 +1,7 @@
 ---
 title: "OnePlus 6T Smartphone Review: Superior Specs for an Unparalleled Price"
-date: 2024-09-29T22:27:29.086Z
-updated: 2024-10-07T00:53:29.172Z
+date: 2024-10-10T16:58:42.852Z
+updated: 2024-10-12T19:19:49.518Z
 categories:
   - BestProducts
 description: "This Article Describes OnePlus 6T Smartphone Review: Superior Specs for an Unparalleled Price"
@@ -37,29 +37,9 @@ Lifewire / Todd Braylor
 
 3.8
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -82,19 +62,6 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -106,10 +73,10 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easy installation**
@@ -132,11 +99,25 @@ Lifewire / Todd Braylor
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: You get what you pay for**
 
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
@@ -149,6 +130,13 @@ Lifewire / Todd Braylor
  **A basic radar detector that's ideal for beginners or anyone on a budget.**
 
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -179,18 +167,22 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-crafting-high-quality-igtv-footage-on-smartphonesdslrs/"><u>[New] 2024 Approved Crafting High-Quality IGTV Footage on Smartphones/DSLRs</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-mastering-color-correction-techniques/"><u>2024 Approved Mastering Color Correction Techniques</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-comprehensive-guide-to-the-sound-blaster-zxr-by-creative-gaming-headset-review-for-2ebytes/"><u>A Comprehensive Guide to the Sound Blaster ZxR by Creative - Gaming Headset Review for 2Ebytes</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-excellence-in-depth-tp-link-archer-a9-review-powerful-performance-at-less-than-100/"><u>Affordable Excellence: In-Depth TP-Link Archer A9 Review - Powerful Performance at Less than $100</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/alexa-and-ultra-hd-on-a-budget-insignia-ns-43df710na19-fire-tv-stick-review/"><u>Alexa & Ultra HD on a Budget - Insignia NS-43DF710NA19 Fire TV Stick Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/analyzing-the-pros-and-cons-of-the-criacr-compact-fm-transmitter-model-cp2n-is-it-worth-your-money/"><u>Analyzing the Pros & Cons of the Criacr Compact FM Transmitter, Model CP2n – Is It Worth Your Money?</u></a></li>
-<li><a href="https://extra-information.techidaily.com/beginners-guide-to-gopro-extras-for-2024/"><u>Beginner's Guide to GoPro Extras for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comparing-sound-quality-google-nest-audio-vs-nest-mini/"><u>Comparing Sound Quality: Google Nest Audio Vs. Nest Mini</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comparing-the-ps5-slim-and-original-ps5-features-performance-and-more/"><u>Comparing the PS5 Slim and Original PS5: Features, Performance & More</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-sony-xperia-1-v-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Sony Xperia 1 V</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/explore-tiktoks-wonders-the-ultimate-macbook-setup/"><u>Explore TikTok's Wonders The Ultimate MacBook Setup</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-create-a-digital-signature-online-for-dotm-file-document-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Create a Digital Signature Online for .dotm file document</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-fake-gps-without-root-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Fake GPS Without Root On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-step-by-step-christian-tunes-customization-and-downloading/"><u>[Updated] Step-by-Step Christian Tunes Customization & Downloading</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/detailed-examination-of-the-premium-byb-e430-led-lamps-with-swing-feature/"><u>Detailed Examination of the Premium BYB E430 LED Lamps with Swing Feature</u></a></li>
+<li><a href="https://os-tips.techidaily.com/easy-steps-to-enable-screen-time-restrictions-for-apps-on-apples-iphone-and-ipad/"><u>Easy Steps to Enable Screen Time Restrictions for Apps on Apple's iPhone & iPad</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elevate-exercise-habits-with-the-fitbit-versa-3-inbuilt-gps-technology-and-health-apps-for-continuous-drive/"><u>Elevate Exercise Habits with the Fitbit Versa 3 - Inbuilt GPS Technology & Health Apps for Continuous Drive</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elevating-visual-experience-to-a-new-level-explore-nixplays-x15d-digital-frames/"><u>Elevating Visual Experience to a New Level - Explore Nixplay’s X15D Digital Frames</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/escort-max-360-review/"><u>Escort Max 360 Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-apc-back-ups-pro-1500va-robust-energy-support-numerous-access-points-and-user-friendly-battery-swap-technology/"><u>Evaluating the APC Back-UPS Pro 1500VA: Robust Energy Support, Numerous Access Points, and User-Friendly Battery Swap Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-features-of-jackery-powerbar-charger-bag-the-added-advantage-of-an-integrated-ac-output-port/"><u>Evaluating the Features of Jackery PowerBar Charger Bag: The Added Advantage of an Integrated AC Output Port</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exclusive-prime-day-blowout-score-the-best-deals-on-roku-streaming-sticks-and-players/"><u>Exclusive Prime Day Blowout: Score the Best Deals on Roku Streaming Sticks & Players</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-the-perfect-blend-of-style-and-speed-with-our-swagtrn-swagger-e-scooter-review/"><u>Experience the Perfect Blend of Style & Speed with Our Swagtrn Swagger E-Scooter Review</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-lava-storm-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Lava Storm 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-y36-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Vivo Y36 Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ng-doors-to-collective-listening-on-youtube-for-2024/"><u>Opening Doors to Collective Listening on YouTube for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/reviewing-the-philips-hf3505-sunrise-simulation-timer-your-basic-yet-advanced-alarm-clock/"><u>Reviewing the Philips HF3505 Sunrise Simulation Timer – Your Basic yet Advanced Alarm Clock</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-techniques-to-activate-dolby-digital-hd-decoding-in-windows-operating-system/"><u>Troubleshooting Techniques to Activate Dolby Digital HD Decoding in Windows Operating System</u></a></li>
+<li><a href="https://techidaily.com/turn-off-screen-lock-vivo-g2-by-drfone-android-unlock-android-unlock/"><u>Turn Off Screen Lock - Vivo G2</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-fcp-audio-editing-for-beginners-get-started-today/"><u>Updated FCP Audio Editing for Beginners Get Started Today</u></a></li>
 </ul></div>
 

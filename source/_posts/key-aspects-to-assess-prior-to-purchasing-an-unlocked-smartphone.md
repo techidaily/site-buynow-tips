@@ -1,7 +1,7 @@
 ---
 title: Key Aspects to Assess Prior to Purchasing an Unlocked Smartphone
-date: 2024-08-22T18:08:56.591Z
-updated: 2024-08-23T18:08:56.591Z
+date: 2024-10-09T21:18:12.990Z
+updated: 2024-10-12T19:24:57.963Z
 categories:
   - BestProducts
 description: This Article Describes Key Aspects to Assess Prior to Purchasing an Unlocked Smartphone
@@ -43,6 +43,13 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/3Kfyp4XgBEtCuXPHAVw99RFqQs8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_HeroSquare-2e5c3941b8fe49afbd7464f382164976.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
 [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Famazon-halo-activity-and-sleep-tracker-medium-7-onyx%2F6445215.p)
@@ -69,6 +76,13 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/W0-czfRzA-7ixa5VS8Cb4sBcaqM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_02-b2292f1ee1b54f4e9990c92e582c5a4b.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
 ## Design: An accessory that blends in
@@ -79,9 +93,6 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/QHImxX0EsYwunnnS2aNtTX9j80s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_03-66da73beea854cd39f6c35c06975ef4e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 Lifewire / Yoona Wagener
 
 ## Comfort: Streamlined but not immune to typical fit issues
@@ -102,6 +113,13 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/FjdFyV6Y4mTXNsqccZ4aEBJNpV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_05-e671ee9f77cc4cee8e2580a2dba449d5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener.
 
  The Halo also offers around-the-clock heart rate monitoring and quite detailed sleep tracking analysis and explanations of data tracked. The sleep metrics surpass the high-level data I’ve experienced from devices such as the[Fitbit Sense](https://www.lifewire.com/fitbit-sense-review-5085832) or[Samsung Fit2](https://www.lifewire.com/samsung-galaxy-fit2-review-5094526) and helped me feel more attuned to how I was sleeping each night based on my sleep score, disturbances logged, and how long it took me to fall asleep.
@@ -112,9 +130,6 @@ Lifewire / Yoona Wagener
 
  The body fat scan is based on pictures uploaded to the app—and based on prompts from the app. While it felt invasive and isn’t a feature I’d seek out in a fitness tracker, it worked without issue. Amazon reports that this technology is twice as accurate as smart scales. For the right user who feels comfortable with this kind of data compilation, this feature also offers visualizations of how different body fat percentages would look on your frame and stores your scans for a look at trends over time. All voice data and images used for the body scan are deletable from the app, though you can also choose to back up body data in the[cloud](https://www.lifewire.com/what-is-cloud-computing-817770) , which Amazon assures is private and well secured.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Software: An essential and user-friendly mobile app
 
  Without a visual display to interact with, the accompanying Halo mobile app is absolutely essential to the user experience. It delivers helpful explanations and guidance that most users want. Compatible with[iOS](https://www.lifewire.com/what-is-ios-1994355) and[Android](https://www.lifewire.com/what-is-google-android-1616887) phones, the Halo app makes everything from the initial setup to body scanning and voice tracking straightforward. Sleep data is backed up by explanations as is the activity point tracking system. Automatically tracked workout data is also easily accessible and so is the option to manually upload workout activities (there are 38 to choose from, including an all-encompassing Other category).
@@ -126,8 +141,12 @@ Lifewire / Yoona Wagener
  The app makes everything from the initial setup to body scanning and voice tracking straightforward.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Battery: Enough juice to last nearly a week
 
  Amazon says that with tone tracking enabled, the band should last up to seven days on a single charge. There are two options for tracking tone: one for more accuracy and one to optimize battery life. I chose the latter and found that the band lasted for six days, which comes close to the manufacturer’s claims. I also noticed that by manually muting the mic, the battery drained far less quickly than when I left it on to listen at all times.
@@ -136,14 +155,15 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/fBsShcBruhAWkg-kTKPWkYUaImo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_04-ee532fbe8d2f4e8195e63ed9dd45611a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Price: A reasonable price for the feature set
 
  Retailing for just about $100, the Amazon Halo band certainly won’t break the bank for budget-minded shoppers. While the lack of display could be a deterrent, the solid mobile app provides convenient access to the detailed sleep, automatic activity tracking, and specialized tone of voice and body fat analysis the Halo provides.
@@ -160,9 +180,6 @@ Lifewire / Yoona Wagener
 
  The Amazon Halo isn’t for everyone with its lack of display and additional layers of data tracking to capture tone of voice and body fat percentage. But for the user that wants a little less hardware but more forward-thinking fitness/health tracking, this unique wearable offers a different approach to increasing activity and wellness awareness on a daily basis.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Apple Watch Series 5](https://www.lifewire.com/apple-watch-series-6-review-5087552)
@@ -191,8 +208,6 @@ Lifewire / Yoona Wagener
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -200,4 +215,24 @@ Lifewire / Yoona Wagener
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-expert-free-fb-image-creator-no-fee/"><u>[Updated] 2024 Approved Expert Free FB Image Creator (No Fee)</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-cadence-and-codes-a-mac-studio-journey/"><u>[Updated] In 2024, Cadence and Codes A Mac Studio Journey</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-smooth-and-quick-download-4-websites-for-tones-for-2024/"><u>[Updated] Smooth and Quick Download 4 Websites for Tones for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/androidiphone-to-windows-recording-connection-guide/"><u>Android/iPhone to Windows Recording Connection Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-ranking-top-performing-exterior-blu-ray-burners-of-2024/"><u>Comprehensive Ranking: Top-Performing Exterior Blu-Ray Burners of 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-lenovo-thinkpad-x1-titanium-yoga-why-its-a-must-have-for-traditional-thinkpad-lovers/"><u>Comprehensive Review of the Lenovo ThinkPad X1 Titanium Yoga: Why It's a Must-Have for Traditional ThinkPad Lovers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-hp-stream-11-power-efficient-portable-computing-solution/"><u>Discover the HP Stream 11 - Power Efficient, Portable Computing Solution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/docooler-12-megapixel-usb-cam-a-comprehensive-evaluation-and-truth-behind-performance-claims/"><u>Docooler 12 Megapixel USB Cam: A Comprehensive Evaluation & Truth Behind Performance Claims</u></a></li>
+<li><a href="https://techtrends.techidaily.com/easy-fixes-to-resolve-401-unauthorized-access-errors-online/"><u>Easy Fixes to Resolve 401 Unauthorized Access Errors Online</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/edit-and-enhance-photos-effortlessly-using-apples-preview-software/"><u>Edit and Enhance Photos Effortlessly Using Apple’s Preview Software</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-philips-hf3505-smart-led-clock-with-gentle-wake-up-light-feature/"><u>Evaluating the Philips HF3505 Smart LED Clock with Gentle Wake-Up Light Feature</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-get-the-perfect-slideshow-design-10-places-to-download-for-inspiration/"><u>In 2024, Get the Perfect Slideshow Design 10 Places to Download for Inspiration</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-samsung-galaxy-fit-the-go-to-gadget-for-workout-lovers/"><u>In-Depth Review of Samsung Galaxy Fit: The Go-To Gadget for Workout Lovers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/simple-steps-to-make-ipad-screen-captures-a-breeze-for-2024/"><u>Simple Steps to Make iPad Screen Captures a Breeze for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/step-by-step-guide-fixing-error-84-in-fortnite-for-uninterrupted-multiplayer/"><u>Step-by-Step Guide: Fixing Error 84 in Fortnite for Uninterrupted Multiplayer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-performance-review-exploring-linksys-wrt3200acm-a-leading-open-source-router-option/"><u>Top Performance Review: Exploring Linksys WRT3200ACM - A Leading Open-Source Router Option</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-choosing-the-ideal-long-range-router-of-2024/"><u>Ultimate Guide: Choosing the Ideal Long Range Router of 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "TP-Link Archer C9: The Ultimate Review of a Cost-Effective Wireless Router"
-date: 2024-10-04T18:36:41.028Z
-updated: 2024-10-06T16:58:35.500Z
+date: 2024-10-08T18:49:34.518Z
+updated: 2024-10-12T17:54:59.569Z
 categories:
   - BestProducts
 description: "This Article Describes TP-Link Archer C9: The Ultimate Review of a Cost-Effective Wireless Router"
@@ -71,6 +71,13 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/Ep4Dk2l5q44AgM0S3cs9My3AE3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_03-a367c45b39474785856cb986e82c88dc.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
  Overall, the C80 feels pretty sturdy. There are four antennas, and they don’t feel flimsy or easily breakable. The antennas are exceptionally long—disproportionately so when compared to the router’s body—but the length of the antennas is advantageous for performance. You can move the antennas 90 degrees up and down and roughly 180 degrees side to side, which lets you appropriately adjust them for placement on a wall or table. The Gigabit Ethernet ports (one WAN, four LAN) and power adapter port are located on the back of the device, which is ideal for placement on a flat surface, but not as great for mounting on a wall because the cables come out of the top of the router, and they’re difficult to hide or organize.
@@ -85,7 +92,21 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/tXeiVJNqjtwMg97as87xxtsMwhc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_04-375b5f92ce9d44f4af109c8f6bfada16.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Network Performance: Fast speeds, No USB port**
 
@@ -95,27 +116,7 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Range: Even better than advertised**
 
@@ -133,31 +134,17 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Around 100 bucks**
 
  The TP-Link Archer C80 sells for $100, which is a reasonable price for the unit considering it offers fast speeds, dual-band connectivity, and technologies like MU-MIMO to enhance performance.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **TP-Link Archer C80 vs. TP-Link Archer A9**
@@ -169,6 +156,13 @@ Lifewire / Erika Rawes
 **Fast speeds and an exceptionally long range.**
 
  Even though it lacks a USB port, the Archer C80 puts out impressive speeds over a long range in homes with light to medium networking capacity. For homes that have several people streaming, gaming, and working on cloud applications, they’ll want something more high octane.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -205,19 +199,19 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-discover-the-top-12-tycoon-games-for-captivating-players-for-2024/"><u>[New] Discover the Top 12 Tycoon Games for Captivating Players for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-comprehensive-insights-on-simplified-hdr-processing/"><u>[Updated] Comprehensive Insights on Simplified HDR Processing</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-the-ultimate-routine-for-placing-imovie-in-the-vimeo-spotlight/"><u>[Updated] In 2024, The Ultimate Routine for Placing iMovie in the Vimeo Spotlight</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/1-apples-latest-innovation-exploring-enhancements-in-the-new-3rd-gen-airpods-a-comprehensive-zdnet-review/"><u>1. Apple's Latest Innovation: Exploring Enhancements in the New 3Rd Gen AirPods - A Comprehensive ZDNet Review</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-speedy-view-of-vimeo-videos/"><u>2024 Approved Speedy View of Vimeo Videos</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/2024s-leading-cable-modem-models-for-optimal-internet-performance/"><u>2024'S Leading Cable Modem Models for Optimal Internet Performance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/2024s-premiere-selection-of-high-quality-external-blu-ray-drives/"><u>2024'S Premiere Selection of High-Quality External Blu-Ray Drives</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/advanced-techniques-in-apples-preview-app-for-professional-level-image-editing-on-mac/"><u>Advanced Techniques in Apple's Preview App for Professional-Level Image Editing on Mac</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/amazonbasics-ultimate-guide-to-affordable-hdtv-signal-with-the-free-over-the-air-antenna/"><u>AmazonBasics Ultimate Guide to Affordable HDTV Signal with the Free Over-the-Air Antenna</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apple-ipod-touch-7th-generation-review/"><u>Apple iPod Touch (7Th Generation) Review</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-nokia-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Nokia</u></a></li>
-<li><a href="https://facebook.techidaily.com/potential-shift-in-social-media-power-dynamics-as-fb-could-divest-gifpedia/"><u>Potential Shift in Social Media Power Dynamics as FB Could Divest Gifpedia</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/the-ultimate-shift-from-standard-definition-to-dynamic-range-brilliance-for-2024/"><u>The Ultimate Shift From Standard Definition to Dynamic Range Brilliance for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/top-business-cloud-data-warehouse-for-2024/"><u>Top Business Cloud Data Warehouse for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-discover-how-these-15-advanced-facebook-gadgets-boost-e-commerce-sale-traffic-for-2024/"><u>[New] Discover How These 15 Advanced Facebook Gadgets Boost E-Commerce Sale Traffic for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-effectively-reduce-your-youtube-video-lengths-for-2024/"><u>[Updated] How To Effectively Reduce Your YouTube Video Lengths for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-pushing-boundaries-with-dells-revolutionary-p2715q-monitor-review/"><u>[Updated] Pushing Boundaries with Dell's Revolutionary P2715Q Monitor Review</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/create-your-own-epic-saga-a-step-by-step-guide-to-building-a-text-based-rpg-using-chatgpt/"><u>Create Your Own Epic Saga: A Step-by-Step Guide to Building a Text-Based RPG Using ChatGPT</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/essential-technology-gadgets-for-students-top-9-picks/"><u>Essential Technology Gadgets for Students: Top 9 Picks</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-free-range-creativity-with-premium-ae-samples/"><u>In 2024, Free-Range Creativity with Premium AE Samples</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximize-shopping-with-walmartplus-4-significant-advantages-await/"><u>Maximize Shopping with Walmart+: 4 Significant Advantages Await</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/nintendo-faceoff-exploring-the-pros-and-cons-of-switch-lite-versus-oled/"><u>Nintendo Faceoff: Exploring the Pros & Cons of Switch Lite Versus OLED</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/powerful-and-user-friendly-the-ultimate-review-of-the-netgear-nighthawk-x6-ac3200-for-high-speed-stable-home-internet/"><u>Powerful & User-Friendly: The Ultimate Review of the Netgear Nighthawk X6 AC3200 for High-Speed, Stable Home Internet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/prime-day-exclusive-save-big-on-high-quality-tribit-audio-speakers-and-earphones/"><u>Prime Day Exclusive: Save Big on High-Quality Tribit Audio Speakers & Earphones</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revel-in-unmatched-acoustic-majesty-beoplay-h8i/"><u>Revel in Unmatched Acoustic Majesty - Beoplay H8i</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-pick-for-security-a-thorough-review-of-eufys-no-subscription-video-doorbell-model-t8200/"><u>Top Pick for Security: A Thorough Review of Eufy's No-Subscription Video Doorbell - Model T8200</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-2024-approved-facebook-live-shopping-a-comprehensive-guide/"><u>Updated 2024 Approved Facebook Live Shopping A Comprehensive Guide</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Oppo Find X6 Pro | Dr.fone</u></a></li>
 </ul></div>
 

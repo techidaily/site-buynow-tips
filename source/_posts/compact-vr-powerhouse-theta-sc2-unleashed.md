@@ -1,7 +1,7 @@
 ---
 title: "Compact VR Powerhouse: Theta SC2 Unleashed"
-date: 2024-08-22T18:05:34.144Z
-updated: 2024-08-23T18:05:34.144Z
+date: 2024-10-09T17:38:24.918Z
+updated: 2024-10-12T20:00:33.901Z
 categories:
   - BestProducts
 description: "This Article Describes Compact VR Powerhouse: Theta SC2 Unleashed"
@@ -67,8 +67,12 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design: A lot of power packed into a small frame**
 
  The Beatit Jump Starter D11’s main unit's effectively a small black brick with red accents. Roughly the size of a small paperback book, the unit's constructed out of durable plastic and features a flashlight at one end. Along one of the long sides there's a small display that shows battery status, the on/off switch, two USB power outputs, and the device’s charging port. On the opposing side a rubber flap covers the jumper cable port; a unique port that the jumper cable accessory plugs in to.
@@ -80,8 +84,12 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup Process: It can’t realistically be much simpler**
 
  Should you find yourself in a situation where you need to use the jump start functionality of the Beatit Jump Starter D11, you'll find it quite easy to use. On our Elantra test vehicle we simply had to pop the hood, bring the unit over, and plug the jumper cable accessory into its port. Once in place getting a proper connection is a simple matter of attaching the red clamp to the positive battery terminal and then the black clamp to the negative terminal. With a firm connection in place we simply had to set the unit down someplace where the vibration of the engine wouldn’t make it slide and then start the car. With the unit in place the car immediately started with zero hesitation, at which point we could disconnect the unit and get back on the road.
@@ -90,9 +98,6 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
 
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Performance: Plenty of power for all your needs**
 
  Time and again, the Beatit Jump Starter D11 was able to get a car with a very[depleted battery](https://www.lifewire.com/car-batteries-are-made-to-die-534765) started. Even after repeated testing the unit’s own battery only dropped down to 85% capacity.
@@ -100,6 +105,13 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
  Charging a phone with a jump starter seems like overkill, and the unit’s ability to charge at 1,200mAh confirms that impression. At such an elevated level of charging your phone or other device will likely get its battery topped off in very little time. With 18,000mAh of capacity you can fully charge a modern phone at least twice, and still leave the unit with the juice it needs in order to start a car.
 
  Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
@@ -110,17 +122,18 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: A ton of value for a tiny cost**
 
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
 
  At that price point, it packs a ton of value into its diminutive size.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
 **_DBPOWER 600A Peak 18000mAh Portable Car Jump Starter:_**  When it comes down to it these two units are surprisingly similar, down to the case and overall design of the unit. If you really want the ability to use your jump starter to also charge your laptop the DBPOWER is worth a look. Otherwise, save yourself around $10 and stick with the Beatit BT-D11.
@@ -137,10 +150,6 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
 
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  800A BT-D11 Car Jump Starter
@@ -163,8 +172,6 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -172,4 +179,23 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-cutest-drone-companions-for-little-ones/"><u>[Updated] 2024 Approved Cutest Drone Companions for Little Ones</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-dji-aerial-vr-headset-quality-assessment-for-2024/"><u>[Updated] DJI Aerial VR Headset Quality Assessment for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-breakdown-the-top-features-and-capabilities-of-the-dell-xps-13-convertible-laptop/"><u>Comprehensive Breakdown: The Top Features & Capabilities of the Dell XPS 13 Convertible Laptop</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-mirari-kids-alarm-clock-an-in-depth-product-review/"><u>Evaluating Mirari Kids' Alarm Clock - An In-Depth Product Review</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/get-help-with-file-explorer-in-windows-10-easily/"><u>Get Help with File Explorer in Windows 10, Easily</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/gpu-beschleunigte-h265-kodierung-wie-sie-schnelleres-streamen-gewahrleisten-konnen/"><u>GPU-Beschleunigte H.265 Kodierung: Wie Sie Schnelleres Streamen Gewährleisten Können</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/guia-completa-para-hacer-una-video-llamada-en-facebook-messenger-con-movavi/"><u>Guía Completa Para Hacer Una Video Llamada en Facebook Messenger Con Movavi</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-from-infinix-zero-30-5g-by-drfone-android/"><u>How to Bypass FRP from Infinix Zero 30 5G?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-through-the-tablet-wars-amazon-fire-vs-samsung-which-one-wins-for-you/"><u>Navigating Through the Tablet Wars: Amazon Fire Vs. Samsung, Which One Wins for You?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/romer-flashlight-assessment-exceptional-brightness-reusable-battery-feature-and-more/"><u>Romer Flashlight Assessment: Exceptional Brightness, Reusable Battery Feature & More</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-cost-free-cgi-mastery-via-4-youtube-experts-insights-for-2024/"><u>The Ultimate Guide to Cost-Free CGI Mastery via 4 YouTube Experts' Insights for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-understated-performer-exploring-the-capabilities-of-rexings-v1-dashcam/"><u>The Understated Performer: Exploring the Capabilities of Rexing's V1 DashCam</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Thinking About Changing Your Netflix Region Without a VPN On Apple iPhone 6s? | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/toms-tech-insights-the-ultimate-guide-to-computer-hardware/"><u>Tom's Tech Insights: The Ultimate Guide to Computer Hardware</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unpacking-a-zombified-fun-in-depth-review-of-7-days-to-die-one-day-at-a-time-solo-edition/"><u>Unpacking a Zombified Fun: In-Depth Review of '7 Days to Die,' One Day at a Time, Solo Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-potential-of-the-acer-chromebook-15-exceptional-usability-meets-vast-display-area/"><u>Unveiling the Potential of the Acer Chromebook 15: Exceptional Usability Meets Vast Display Area</u></a></li>
+</ul></div>
 

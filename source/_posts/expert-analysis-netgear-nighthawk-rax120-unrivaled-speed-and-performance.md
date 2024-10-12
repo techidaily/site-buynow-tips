@@ -1,7 +1,7 @@
 ---
 title: "Expert Analysis: Netgear Nighthawk RAX120 - Unrivaled Speed & Performance"
-date: 2024-08-22T18:06:21.320Z
-updated: 2024-08-23T18:06:21.320Z
+date: 2024-10-10T16:12:35.915Z
+updated: 2024-10-12T19:06:57.242Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Analysis: Netgear Nighthawk RAX120 - Unrivaled Speed & Performance"
@@ -78,9 +78,20 @@ Lifewire / Erika Rawes
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/fw0FJuD9bAOkQEHuAZ9OFq5toXk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_05-2a03227466354aad82fe55b884b76ac6-4d18f476974a44b081aafc943a8e56b1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup: Quick and easy**
 
@@ -88,9 +99,6 @@ Lifewire / Erika Rawes
 
  The app guides you through creating separate 2.4 and 5GHz networks, but you can also take advantage of a feature called smart connect, which combines your networks and designates your devices based on optimal performance. You can create a guest network, as well as manage and monitor your devices individually. The initial setup process took me about ten minutes in total.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ## **Connectivity: Superfast speeds**
 
  The RAX120 is a workhorse. It's classified as a[dual-band router](https://www.lifewire.com/dual-band-wireless-networking-explained-818279) , but there's also a[tri-band](https://www.lifewire.com/best-long-range-routers-4122554) version available (the RAX200). The RAX120 supports 802.11ax, which is also known as Wi-Fi 6\. Although Wi-Fi 6 is still relatively new, the addition of Wi-Fi 6 future-proofs the RAX120 to a certain degree. It allows for faster speeds, better battery life on your Wi-Fi 6 compatible and IoT devices, and less congestion on your network.
@@ -103,9 +111,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Network performance: Stellar**
 
  The Nighthawk RAX120 indicates top speeds of 1,200 Mbps on the 2.4Ghz band and 4,800 Mbps on the 5Ghz band. My Internet speed maxes out at 500 Mbps. I have about 50 connected devices, more than half of which are smart home devices like smart light switches, smart appliances, security cameras, and smart speakers and displays. The RAX120 had no problem managing my numerous smart devices, nor did I experience any lag or connectivity issues on streaming and gaming devices. I simultaneously ran a gaming computer, two playstations, and two FireTVs without the connection missing a beat.
@@ -130,9 +135,6 @@ Lifewire / Erika Rawes
 
  The router has two USB 3.0 storage ports on the back for connecting an external hard drive.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: Nighthawk App**
 
  In the Nighthawk app, you can change your router’s settings, create a guest network, control your router remotely, manage your devices individually, and you can test your network speeds. However, when testing my network speeds, they consistently clock much faster on the Nighthawk app than on other platforms like Ookla and VeeApps.
@@ -142,11 +144,22 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Expensive**
 
  The Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router will cost you a pretty penny—it sells for $400, which is $100 lower than its original retail price of $500\. But it’s still on the higher end of the price spectrum, especially considering it doesn’t include any sort of mesh points, and you only get the router, power supply, and an Ethernet cable.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Netgear Nighthawk RAX120 vs. TP-Link Archer AX6000**
 
@@ -159,8 +172,12 @@ Lifewire / Erika Rawes
  The Nighthawk RAX120 performs impressively, but it‘s costly and lacks some user-friendly features like strong parental controls and easy-to-manage antivirus, so it’ll be more desirable for those with heavier networking demands than the average user.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router
@@ -184,14 +201,11 @@ Lifewire / Erika Rawes
 * Processor  AX optimized powerful 64-bit Quad-core 2.2GHz processor
 * Range  3,500 square feet
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -200,4 +214,24 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-the-ultimate-voice-guided-powerpoint-handbook-for-2024/"><u>[New] The Ultimate Voice-Guided PowerPoint Handbook for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-guiding-you-through-youtubes-view-limitations/"><u>[Updated] 2024 Approved Guiding You Through YouTube's View Limitations</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-beginners-guide-top-10-youtube-editing-tricks-for-2024/"><u>[Updated] Beginner's Guide Top 10 YouTube Editing Tricks for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2023s-elite-picks-for-competitive-gaming-screens/"><u>2023'S Elite Picks for Competitive Gaming Screens</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-the-newest-generic-bluetooth-adapter-drivers-for-windows-systems/"><u>Download the Newest Generic Bluetooth Adapter Drivers for Windows Systems</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/expert-techniques-to-resolve-error-code-3-on-gl-drivers/"><u>Expert Techniques to Resolve Error Code 3 on GL Drivers</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-oppo-a2-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Oppo A2 to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-honor-magic-6-pro-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Honor Magic 6 Pro Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-examination-of-the-lg-gram-17-large-display-meets-ultraportability/"><u>In-Depth Examination of the LG Gram 17: Large Display Meets Ultraportability</u></a></li>
+<li><a href="https://win-great.techidaily.com/tips-and-tricks-keeping-your-desktop-files-safe-from-auto-deletion/"><u>Tips and Tricks: Keeping Your Desktop Files Safe From Auto-Deletion</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-choosing-a-high-quality-nintendo-switch-earpiece/"><u>Ultimate Guide to Choosing a High-Quality Nintendo Switch Earpiece</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-choosing-the-perfect-steam-deck-rigging-for-gamers/"><u>Ultimate Guide to Choosing the Perfect Steam Deck Rigging for Gamers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-choosing-the-perfect-sd-card-for-your-steam-deck/"><u>Ultimate Guide: Choosing the Perfect SD Card for Your Steam Deck</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-of-durable-samsung-galaxy-phone-cases-for-2e23-your-buying-checklist/"><u>Ultimate Selection of Durable Samsung Galaxy Phone Cases for 2E23 - Your Buying Checklist</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-durable-phone-cases-for-the-pixel-6-2023-edition/"><u>Ultimate Selection: Durable Phone Cases for the Pixel 지오림 6아이 2023 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-the-most-innovative-apple-airtag-add-ons/"><u>Ultimate Selection: The Most Innovative Apple AirTag Add-Ons</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unbeatable-pc-ventilation-systems-discover-the-premier-picks/"><u>Unbeatable PC Ventilation Systems: Discover the Premier Picks</u></a></li>
+</ul></div>
 

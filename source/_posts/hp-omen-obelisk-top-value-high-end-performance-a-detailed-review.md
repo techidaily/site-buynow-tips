@@ -1,7 +1,7 @@
 ---
 title: "HP OMEN Obelisk - Top Value High-End Performance: A Detailed Review"
-date: 2024-08-22T18:04:47.742Z
-updated: 2024-08-23T18:04:47.742Z
+date: 2024-10-11T17:40:01.264Z
+updated: 2024-10-12T19:40:09.058Z
 categories:
   - BestProducts
 description: "This Article Describes HP OMEN Obelisk - Top Value High-End Performance: A Detailed Review"
@@ -64,9 +64,6 @@ _We purchased the Kootek Laptop Cooling Pad_   _so our reviewer could put it to 
 
  Kootek’s Laptop Cooling Pad isn’t the cheapest option around, nor is it the most premium—but it’s effective and sells for a reasonable price, and is large enough to accommodate larger laptops with 17-inch displays. A clunky height adjustment system is the main drawback, but it doesn’t stop the Kootek pad from working as expected.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Design: Clunky, but it works
 
  The Kootek Laptop Cooling Pad is a larger unit, measuring nearly 15 inches wide, 11.8 inches tall, and about 1.4 inches thick, with a weight of 2.6 pounds. It’s heavier and bulkier than the lightweight TopMate C302 Cooling Pad, for example, and feels more durable as a result.
@@ -82,23 +79,44 @@ _We purchased the Kootek Laptop Cooling Pad_   _so our reviewer could put it to 
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/6Uuby879oWyaUH6_3WN7ZssAF-g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_04-73dc23f85de34fa087b21b21461f9f74.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
  There are two buttons at the back of the pad: One button controls the large, central fan (4.72 inches), while the other controls the four smaller fans (2.76 inches each). I’m not sure why you would choose to use only some fans at any given time, since they’re all quiet, but the option is there if you want it. You’ll also find two USB-A ports, meaning this cooling pad functions as a hub for plugging additional accessories into your laptop.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Setup Process: Very straightforward
 
  The Kootek Laptop Cooling Pad doesn’t require any software or its own power unit to function. Simply place it under your laptop, adjust the height as desired, and then plug the built-in USB cable into your laptop to power it on. As mentioned, you can control the fans using the buttons at the back of the pad, and the USB ports can be used for additional accessories.
 
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/A5iJ3c7mD8guT4DKXitqb3wlp6I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_03-9ec8e6afd494441f8ae20c38ae1fadbb.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Performance: Cool and quiet
 
@@ -115,15 +133,22 @@ Lifewire / Andrew Hayward
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/ppFnQ9kEpjbEV9cYbHzLRI5j-j8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_05-4a4d5ee065a94c3e984ae0c96f4916d8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
  All told, the Kootek Laptop Cooling Pad made a solid effort in lowering the temperature of the Razer Blade 15 while playing Dirt 5 and Fortnite, although the cheaper, dual-fan TopMate C302 cooling pad saw slightly better overall results. Your experience may vary depending on your laptop of choice, however. All the while, the Kootek pad stayed pretty quiet in stark contrast to the Razer Blade’s own very loud internal fans.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ## Price: Entirely reasonable
 
  At $26 from Amazon, the Kootek Laptop Cooling Pad is a reasonably-priced option with solid performance and the ability to accommodate larger laptops. There are cheaper options out there, as well as some with additional features such as temperature sensors and additional fan controls, but Kootek’s device delivers good functionality for the price.
@@ -132,9 +157,6 @@ Lifewire / Andrew Hayward
 
 Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Kootek Laptop Cooling Pad vs. TopMate C302
 
  As mentioned above, the TopMate C302 is a lighter, simpler cooling pad option. It’s designed for laptops up to 15 inches in size and isn’t quite as thick or heavy, but it gets the job done with effective cooling and straightforward design. Kootek’s pad offers an additional USB port for accessories, though, and allows for more height variance than the TopMate’s basic pop-out feet.
@@ -164,14 +186,11 @@ Lifewire / Andrew Hayward
 * Ports  USB-A x2
 * Waterproof  N/A
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -180,4 +199,23 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://common-error.techidaily.com/troubleshooting-when-your-mouse-cursor-goes-missing-in-windows-win-10-a-step-by-step-solution/"><u>[Troubleshooting] When Your Mouse Cursor Goes Missing in Windows (Win) [10]: A Step-by-Step Solution.</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-guide-to-boosting-views-on-tiktok-unboxings/"><u>[Updated] The Ultimate Guide to Boosting Views on TikTok Unboxings</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-streamline-techniques-for-live-sports-video-archiving/"><u>2024 Approved Streamline Techniques for Live Sports Video Archiving</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/capture-joy-best-twitter-gif-saving-toolkit-2024-edition/"><u>Capture Joy Best Twitter GIF Saving Toolkit - 2024 Edition</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/cursor-wont-stop-blinking-heres-how-to-fix-it-now/"><u>Cursor Won't Stop Blinking? Here’s How to Fix It Now</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/first-timers-roadmap-earning-money-from-periscope-chats/"><u>First-Timer's Roadmap Earning Money From Periscope Chats</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-honor-magic-v2-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Honor Magic V2 Is Unlocked</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-a-realme-v30-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Realme V30 Phone that is Locked?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/razer-blade-stealth-13-analysis-next-level-enhancements-in-sleek-laptop-design/"><u>Razer Blade Stealth 13 Analysis: Next-Level Enhancements in Sleek Laptop Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/seamless-home-internet-with-amplifi-hd-unraveling-the-secrets-in-our-wi-fi-system-review/"><u>Seamless Home Internet with Amplifi HD: Unraveling the Secrets in Our Wi-Fi System Review</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/spark-interest-engage-followers-maximizing-tiktok-unboxer-appeal-for-2024/"><u>Spark Interest, Engage Followers Maximizing TikTok Unboxer Appeal for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/striving-for-durability-jabra-headset-review/"><u>Striving for Durability - Jabra Headset Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-complete-user-manual-for-understanding-imo-instant-chat-pros-and-cons-reviewed/"><u>The Complete User Manual for Understanding Imo Instant Chat: Pros & Cons Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-tp-link-archer-c50-unveiled-achieving-quality-connectivity-on-a-budget/"><u>The TP-Link Archer C50 Unveiled: Achieving Quality Connectivity on a Budget</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-enhancing-connectivity-with-netgears-ex3700-ac750-range-extender-reviewed/"><u>The Ultimate Guide to Enhancing Connectivity with Netgear's EX3700 AC750 Range Extender Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-evaluating-the-fitbit-charge-3-features-and-performance/"><u>The Ultimate Guide to Evaluating the Fitbit Charge 3 Features and Performance</u></a></li>
+</ul></div>
 

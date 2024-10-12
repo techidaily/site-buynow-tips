@@ -1,7 +1,7 @@
 ---
 title: "Take to the Air without Breaking the Bank: Review of Holy Stone HS170's Predator Mini Drone"
-date: 2024-08-22T18:07:34.799Z
-updated: 2024-08-23T18:07:34.799Z
+date: 2024-10-09T16:38:54.893Z
+updated: 2024-10-12T16:48:07.868Z
 categories:
   - BestProducts
 description: "This Article Describes Take to the Air without Breaking the Bank: Review of Holy Stone HS170's Predator Mini Drone"
@@ -66,9 +66,6 @@ Lifewire / Claire Cohen
 
  We recently reviewed the MG7700 to examine just how well it would perform in an average home environment by evaluating the design, ease of setup, network speeds, and software features.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Design: Simple and functional
 
  The Motorola MG7700 is fairly compact at 9.1 x 2.6 x 2.6 inches with a gray finish and a black stand. On the front of the device, you’ll find several indicator lights that tell you if it’s powered up, whether any traffic is flowing through your network, and if people are connected to your wireless network. The light indicators are easy to see and understand — something you don’t typically find in a modem from your cable company.
@@ -77,9 +74,6 @@ Lifewire / Claire Cohen
 
 ![Motorola MG7700](https://www.lifewire.com/thmb/djrbmUe-WrBQ_Tx-xD6258JjBmU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-4-5c8faefcc9e77c0001a926be.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Claire Cohen
 
  Oddly, there’s a black area between the power port and the top LAN port that has nothing in it, as if there are LAN ports missing. With more devices like smart home hubs requiring you to plug in with Ethernet, it would have been nice to see a few more LAN ports on the back.
@@ -89,17 +83,18 @@ Lifewire / Claire Cohen
  The Best Cable Modems on the Market
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Setup Process: Location, location, location
 
  Since the Motorola MG7700 is a combined cable modem and router, you’ll need to plug it into[your ISP’s coaxial cable](https://www.lifewire.com/introduction-to-network-cables-817868) in order to pipe Internet into your home. This can limit your placement locations a bit since coax cables are often installed by your provider in less-than-ideal locations, especially if you live in an apartment building.
@@ -109,6 +104,19 @@ Lifewire / Claire Cohen
  If you do get the choice of where it’s installed, you usually want the coax cable to come in from an unobtrusive corner, not sprouting out from the middle of the living room in an unsightly fashion. Unfortunately, that’s bad for routers which work best in a central location of your house or apartment so the signal covers everywhere you need. If you can’t get find a good spot away from other wireless devices, metal, walls, and other barriers that can impede signal, you may want to invest in a coax cable extension.
 
 ![Motorola 7700](https://www.lifewire.com/thmb/RfuGGYo_UZvzWOQw8Rb7KZnMkhs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-1-5c8faf2dc9e77c00014a9db2.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
 
@@ -142,14 +150,18 @@ Lifewire / Claire Cohen
 
 ![Motorola MG7700](https://www.lifewire.com/thmb/pHbG256tJv_ubRtv-HdKUka66IA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-3-5c8fb059c9e77c0001a926bf.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Claire Cohen
 
  If you have a large home like us and need stronger, more reliable speeds for numerous devices, some routers come with tri-band instead of the dual-band technology you’ll find in the MG7700\. These routers have an extra 5GHz band which translates to faster speeds, more bandwidth, and the ability to connect more devices at the same time. You can also purchase a Wi-Fi extender, so your signal can extend and reach all the dead areas, but those are sometimes finicky to set up.
 
  Overall, if you live in a large apartment or a modestly-sized home, you won’t be disappointed by the performance of the MG7700.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Software: User-friendly options
 
@@ -162,6 +174,13 @@ Lifewire / Claire Cohen
  Overall, if you live in a large apartment or a modestly-sized home, you won’t be disappointed by the performance of the MG7700.
 
  Taking into account the fact that your service providers rental fees can run to $10 to $12 a month, the MG7700 could pay for itself in a little over the year. And the price isn’t unusual for the market, other bestselling modem and router units such as the $199.99 TP-Link Archer CR1900 will cost you about the same for a similar set of capabilities.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Motorola MG7700 vs. TP-Link Archer CR1900
 
@@ -177,26 +196,24 @@ Lifewire / Claire Cohen
 
  The Motorola MG 7700 boasts four gigabit-ready LAN ports, delivered blazing fast 100Mbps speeds over dual-band Wi-Fi in our testing, and has outstanding user controls that are easy for anyone to use. It does best in homes of 2,000 square feet and can handle a dozen devices or more. That said, if you’re someone with a larger home or higher bandwidth requirements for a large number of devices, you may be better served by a tri-band router.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Netgear Nighthawk C7000](https://www.lifewire.com/netgear-nighthawk-c7000-review-4686068)
 * [Netgear C3700 Cable Modem Router](https://www.lifewire.com/netgear-c3700-cable-modem-router-review-4686094)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  MG7700 Cable Modem and Router
@@ -224,8 +241,6 @@ Lifewire / Claire Cohen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -233,4 +248,26 @@ Lifewire / Claire Cohen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-cutting-edge-methods-for-inserting-vimeo-content-in-ppts-for-2024/"><u>[New] Cutting-Edge Methods for Inserting Vimeo Content in PPTs for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-enhancing-visuals-in-remote-collaborations-with-google-meet/"><u>[New] In 2024, Enhancing Visuals in Remote Collaborations with Google Meet</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-lensbisection-inspection-for-2024/"><u>[Updated] LensBisection Inspection for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1726030631911-and/"><u>動画のみで音声を記録するための全ての方法、紹介&比較</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehveiw-cost-effective-caixun-75-inch-4k-smart-tv-with-android-interface/"><u>Comprehveiw: Cost-Effective Caixun 75-Inch 4K Smart TV with Android Interface</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/dive-into-savvy-bargain-hunting-with-oodles-free-classified-network/"><u>Dive Into Savvy Bargain Hunting with Oodle's Free Classified Network</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-strengths-and-weaknesses-of-webex-as-an-online-meetings-platform/"><u>Evaluating the Strengths & Weaknesses of WebEx as an Online Meetings Platform</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/frontier-footage-finder-perfect-for-journeying-lensmen/"><u>Frontier Footage Finder: Perfect for Journeying Lensmen</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/get-your-logitech-mouse-working-on-windows-11-step-by-step-solutions/"><u>Get Your Logitech Mouse Working on Windows 11: Step-by-Step Solutions</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-resolve-huawei-p60-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Huawei P60 Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Motorola Edge 40 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-asus-rog-phone-7-ultimates-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Asus ROG Phone 7 Ultimates Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-the-cubefit-terramat-the-ultimate-solution-for-desk-bound-exercise-enthusiasts/"><u>Review of the CubeFit TerraMat: The Ultimate Solution for Desk-Bound Exercise Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723038940419-review-of-the-lg-gram-arware-power-laptop-unmatched-portability-and-high-performance-in-one-device/"><u>Review of the LG Gram ˈaɪrware POWER Laptop: Unmatched Portability and High Performance in One Device</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/silence-seekers-top-headphone-picks-24/"><u>Silence Seekers: Top Headphone Picks '24</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-mighty-razer-book-13-unleashed-an-in-depth-examination-and-appraisal/"><u>The Mighty Razer Book ^13 Unleashed: An In-Depth Examination and Appraisal</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-choosing-the-perfect-mesh-wi-fi-setup/"><u>The Ultimate Guide to Choosing the Perfect Mesh Wi-Fi Setup</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-ultimate-guide-to-effective-ai-prompting-essential-tactics-you-cant-ignore/"><u>The Ultimate Guide to Effective AI Prompting: Essential Tactics You Can't Ignore</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/visualize-freely-premium-no-cost-screen-capture-tools-for-2024/"><u>Visualize Freely Premium No-Cost Screen Capture Tools for 2024</u></a></li>
+</ul></div>
 

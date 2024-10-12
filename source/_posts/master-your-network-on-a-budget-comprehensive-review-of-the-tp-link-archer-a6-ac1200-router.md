@@ -1,7 +1,7 @@
 ---
 title: "Master Your Network On a Budget: Comprehensive Review of the TP-Link Archer A6 AC1200 Router"
-date: 2024-10-02T16:50:49.352Z
-updated: 2024-10-06T20:53:04.973Z
+date: 2024-10-07T19:09:22.712Z
+updated: 2024-10-12T17:50:46.590Z
 categories:
   - BestProducts
 description: "This Article Describes Master Your Network On a Budget: Comprehensive Review of the TP-Link Archer A6 AC1200 Router"
@@ -84,10 +84,10 @@ Lifewire / Claire Cohen
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/PS8-Iywv5MsnOo99Fir-jNOiPF8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-4-5c924206c9e77c0001ff0bb8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
@@ -100,13 +100,6 @@ Lifewire / Claire Cohen
 
  There is one important pain point, however, to keep in mind during setup. The extender's administrative password utilizes a default "admin/admin" login, so you'll want to change that to keep unauthorized users out. It can be changed via the TP-Link Tether app, which isn't clearly lined out in the instructions. It isn't required, but if you want to keep your network as secure as possible, it's an important part of setup.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Connectivity and Network Performance:** **Strong, multi-device connectivity**
 
  Several devices were connected to our wireless network, including a MacBook Pro,[iPhone X](https://www.lifewire.com/iphone-x-4150706) , iPad Pro,[Nintendo Switch](https://www.lifewire.com/what-is-the-nintendo-switch-4148184) , and[PlayStation 4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) . When testing the wireless extender's range, at 10 feet to around 70 or so feet away from the router in a 2,100 square foot home, its signal was quite strong, with full bars on an iPhone X and iPad Pro in most areas. One bathroom on the first floor did suffer from occasionally spotty connectivity at around 1,500 feet away from the router.
@@ -114,6 +107,13 @@ Lifewire / Claire Cohen
  Out in the yard, there were occasionally drops in connection, particularly when trying to load YouTube videos or play online games via mobile devices. Speeds didn't usually waver, however, though we didn't quite get the full 300mbps our wired connection typically summons. The product advertises 867Mbps on a 5GHz connection and 300 Mbps on a 2.4Ghz connection, so it did provide what was promised, albeit with some dropouts over the five-day testing period.
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/Lyz1QcuQDPYlUp5pPBJiL0YKSag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-2-5c9241dcc9e77c0001a92785.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
 
@@ -124,10 +124,10 @@ Lifewire / Claire Cohen
  It's a bit bereft of some functionality for veteran extender users who may want to fiddle with settings and skip the "easy mode" setup, but it does its job particularly well. It even includes a[QR code](https://www.lifewire.com/scan-qr-codes-on-smartphone-4154658) to scan for users to download the wireless management app straight from the setup page. It doesn't take any real doing to reach this website either, and can be accessed at any time from the network.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A deal at any price**
@@ -136,14 +136,14 @@ Lifewire / Claire Cohen
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/bG-oXoYxR83gVSUH4vzz37hfYxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-1-5c92424b46e0fb000172f127.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Claire Cohen
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: More of the same**
 
@@ -190,24 +190,20 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-top-earnings-achiever-in-the-streaming-world/"><u>[New] 2024 Approved Top Earnings Achiever in the Streaming World</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-mastering-social-media-creating-effective-fb-videos-for-2024/"><u>[New] Mastering Social Media Creating Effective FB Videos for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/artner-filmmaking-for-channel-expansion-and-engagement-for-2024/"><u>[New] Partner Filmmaking for Channel Expansion & Engagement for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-screenmasterreview-latest-editions-performance-insights/"><u>[New] ScreenMasterReview Latest Edition's Performance Insights</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-ultimate-scene-seizing-exploration/"><u>[Updated] 2024 Approved Ultimate Scene Seizing Exploration</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-balancing-consistency-and-quality-a-key-to-increasing-youtube-viewership/"><u>[Updated] In 2024, Balancing Consistency & Quality A Key to Increasing YouTube Viewership</u></a></li>
-<li><a href="https://win-able.techidaily.com/beat-the-lag-proven-methods-to-prevent-metro-exodus-from-freezing-or-crashing-on-pc-systems/"><u>Beat the Lag: Proven Methods to Prevent Metro Exodus From Freezing or Crashing on PC Systems</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/dismiss-incompatible-prerequisite-message-in-win11/"><u>Dismiss Incompatible Prerequisite Message in Win11</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-oneplus-11r-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your OnePlus 11R Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Honor V Purse? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-chameleon-of-tripods-a-study-on-patek-fly-12/"><u>The Chameleon of Tripods: A Study on Patek Fly 12</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-oculus-quest-2-reviewed-superior-virtual-reality-fun-at-an-extraordinary-price/"><u>The Oculus Quest 2 Reviewed: Superior Virtual Reality Fun at an Extraordinary Price</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-powerhouse-of-mesh-networks-unpacking-the-features-of-google-nest-wi-fi/"><u>The Powerhouse of Mesh Networks: Unpacking the Features of Google Nest Wi-Fi</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-how-fitbit-sense-outperforms-apple-watch-for-mindful-living/"><u>The Ultimate Guide: How Fitbit Sense Outperforms Apple Watch for Mindful Living</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-nintendo-switch-analysis-a-leader-in-on-the-go-gaming/"><u>Ultimate Nintendo Switch Analysis – A Leader in On-the-Go Gaming</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-ups-selection-top-performers-in-power-backup/"><u>Ultimate UPS Selection: Top Performers in Power Backup</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unbiased-expert-analysis-of-the-rexing-v1-dash-cam-sleek-design-meets-economy-and-trustworthiness/"><u>Unbiased Expert Analysis of the Rexing V1 Dash Cam: Sleek Design Meets Economy & Trustworthiness</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unboxing-the-potential-of-amazon-luna-a-deep-dive-into-its-streamlined-game-streaming-service/"><u>Unboxing the Potential of Amazon Luna – A Deep Dive Into Its Streamlined Game Streaming Service</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlocking-secure-and-economical-document-disposal-the-amazonbasics-section-1-understanding-bacterial-classification-based-on-sporulation/"><u>Unlocking Secure and Economical Document Disposal: The AmazonBasics # Section 1: Understanding Bacterial Classification Based on Sporulation</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-enhancing-campaign-performance-with-targeted-hash-tags-for-fb-ads/"><u>[New] In 2024, Enhancing Campaign Performance with Targeted Hash Tags for FB Ads</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-it-down-free-techniques-to-go-frame-by-frame-on-youtube-for-2024/"><u>Break It Down Free Techniques to Go Frame by Frame on YouTube for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-why-the-2018-apple-ipad-pro-11-inch-version-continues-to-lead-in-performance-and-quality/"><u>Experience Why the 2018 Apple iPad Pro (11-Inch Version) Continues to Lead in Performance and Quality!</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/expert-picks-8-superior-linux-snapshot-tools-for-2024/"><u>Expert Picks 8 Superior Linux Snapshot Tools for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-the-all-new-totobay-morning-sunrise-lamp-at-a-bargain-price/"><u>Expert Review: The All-New Totobay Morning Sunrise Lamp at a Bargain Price</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-the-leading-rechargeable-battery-charger-devices-of-2024/"><u>Expert Review: The Leading Rechargeable Battery Charger Devices of 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-reviews-on-orbi-total-connect-solutions-speedy-wi-fi-coverage-in-your-home-with-6-ghz-bandwidth/"><u>Expert Reviews on Orbi Total Connect Solutions: Speedy Wi-Fi Coverage in Your Home with 6 GHz Bandwidth</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fm-transmitter-criacrs-cp24-model-a-user-friendly-bluetooth-device-with-a-few-setbacks-to-consider/"><u>FM Transmitter Criacr's CP24 Model - A User-Friendly Bluetooth Device with a Few Setbacks to Consider</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/get-more-from-your-entertainment-budget-premium-roku-savings-at-prime-day-extravaganza/"><u>Get More From Your Entertainment Budget: Premium Roku Savings at Prime Day Extravaganza!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/head-to-head-comparison-roku-or-fire-tv-stick-for-your-home-entertainment/"><u>Head-to-Head Comparison: Roku or Fire TV Stick for Your Home Entertainment?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-vivo-y36-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Vivo Y36 to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/optimal-cinematography-best-lenses-for-immaculate-4k-output-for-2024/"><u>Optimal Cinematography Best Lenses for Immaculate 4K Output for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/play-nba-anytime-anywhere-with-these-15-livestream-tips/"><u>Play NBA Anytime, Anywhere with These 15 Livestream Tips</u></a></li>
+<li><a href="https://some-skills.techidaily.com/sleeksky-saver-the-frugal-file-nest-for-2024/"><u>SleekSky Saver - The Frugal File Nest for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>What is Fake GPS Location Pro and Is It Good On Apple iPhone 12? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Displacement Pumps Move a Fixed Volume of Fluid with Each Cycle, Providing a Consistent Flow Rate
-date: 2024-09-29T20:54:07.631Z
-updated: 2024-10-06T20:55:08.262Z
+date: 2024-10-08T18:54:54.862Z
+updated: 2024-10-12T18:00:16.040Z
 categories:
   - BestProducts
 description: This Article Describes Displacement Pumps Move a Fixed Volume of Fluid with Each Cycle, Providing a Consistent Flow Rate
@@ -40,19 +40,6 @@ Apple
 
 ![Apple Watch Series 9 (front).](https://www.lifewire.com/thmb/nPYphnTjSnL2fpeSHarRr-eDzuw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleWatchSeries9front-649521c98f4d421cad652d5c0d1230a4.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Apple
 
 [View On Amazon $457](https://www.amazon.com/Apple-Cellular-Smartwatch-Midnight-Aluminum/dp/B0CHXFH656?tag=lifewire-onsite-prod-20&ascsubtag=8415760%7Cne2a5ccc09be7443aa21b4e7b104026e418%7CB0CHXFH656) [View On Walmart $439](https://www.walmart.com/ip/Apple-Watch-Series-9-GPS-45mm-Pink-Aluminum-Case-with-Light-Pink-Sport-Band-S-M/5032289284) [View On Best Buy $429](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fapple-watch-series-9-gps-45mm-midnight-aluminum-case-with-midnight-sport-band-m-l-midnight%2F6340284.p%3FskuId%3D6340284)
@@ -73,6 +60,13 @@ Apple
 
 ![Apple Watch Series 9 on a wrist.](https://www.lifewire.com/thmb/-MmQLsH_4EYd8KhLmLkRZehkEQY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleWatch9_wrist-69497d2de4864606b425effeba1dca5c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire/Molly McLaughlin
 
  I haven't used many smartwatches, but I remember when a smartwatch wouldn't last through the day. Thankfully, that's not the case with the Series 9, which has yet to die on me (aside from when I unknowingly unplugged its charger right before bed).
@@ -89,19 +83,6 @@ Lifewire/Molly McLaughlin
 
 ![Apple Watch Series 9 on a desk next to its charger.](https://www.lifewire.com/thmb/fnvFdlUB4ml_QaA-kIP14u1pQsU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleWatch9_withcharger-11e49fb444df404b834b2127b3ebcab0.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire/Molly McLaughlin
 
  The display has double the brightness of the Series 8 and comes in a new pink color.
@@ -116,22 +97,29 @@ Lifewire/Molly McLaughlin
 
 [How to Ping Your iPhone From Your Apple Watch](https://www.lifewire.com/ping-iphone-from-apple-watch-7570320)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Theater Mode
 
  One of my favorite features is Theater Mode, which prevents the screen from lighting up when you glance at it or receive a notification. It's perfect for the movies and theater, of course, but it also came in handy when I was recently on jury duty during the trial and needed to keep distractions to a minimum.
 
 ![Apple Watch Theater Mode screen.](https://www.lifewire.com/thmb/q170D6_ERklcCxR3P_p6t13HV5E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleWatch9_theatermodeoffon-953887b5d6f547c1b334d7912aa139ac.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  It turns on silent mode and makes your Walkie-Talkie status unavailable, but you'll receive haptic notifications.  
 
 [Smart Watches & Wearables](https://www.lifewire.com/theater-mode-on-apple-watch-5115897)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fitness Tracking
 
@@ -154,16 +142,10 @@ Lifewire/Molly McLaughlin
 [Smart Watches & Wearables](https://www.lifewire.com/how-to-use-apple-watch-4584460)
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -189,22 +171,22 @@ Lifewire/Molly McLaughlin
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-expert-tips-for-instagram-green-screen-shoots/"><u>[New] 2024 Approved Expert Tips for Instagram Green Screen Shoots</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-pinnacle-ai-image-manipulation-suite-for-2024/"><u>[New] Pinnacle AI Image Manipulation Suite for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-endless-eradication-guide-bypassing-youtubes-snappy-content-for-2024/"><u>[Updated] Endless Eradication Guide Bypassing YouTube's Snappy Content for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-transform-every-moment-top-ideas-for-productive-podcast-sessions/"><u>[Updated] In 2024, Transform Every Moment Top Ideas for Productive Podcast Sessions</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-unbeatable-6-apps-for-crafting-perfect-reels-on-instagram/"><u>[Updated] In 2024, Unbeatable 6 Apps for Crafting Perfect Reels on Instagram</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/analyzing-the-safety-of-using-googles-credential-vault/"><u>Analyzing the Safety of Using Google's Credential Vault</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/clearstream-2v-indooroutdoor-hdtv-antenna-review-great-performance-in-an-unsightly-package/"><u>ClearStream 2V Indoor/Outdoor HDTV Antenna Review: Great Performance In An Unsightly Package</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-the-best-bang-for-your-buck-the-oneplus-nord-n1-100-unboxed-and-tested/"><u>Discover the Best Bang for Your Buck: The OnePlus Nord N1 100 Unboxed and Tested</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-the-value-in-large-screens-caixuns-75-4k-smart-tv-a-cost-efficient-choice/"><u>Discover the Value in Large Screens: Caixun's 75'' 4K Smart TV - A Cost-Efficient Choice</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/evaluating-the-lamicall-tablet-support-features-and-practical-insights/"><u>Evaluating the Lamicall Tablet Support - Features and Practical Insights</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-sb210-by-soundbot-stellar-sound-performance-with-a-few-fixable-issues/"><u>Exploring the SB210 by SoundBot - Stellar Sound Performance with a Few Fixable Issues</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/from-standard-home-to-elite-windows-pro-systems/"><u>From Standard Home to Elite Windows Pro Systems</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-building-blocks-of-virtual-experience-terminology/"><u>In 2024, Building Blocks of Virtual Experience Terminology</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-xiaomi-redmi-k70e-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Xiaomi Redmi K70E Phone Screen?</u></a></li>
-<li><a href="https://facebook.techidaily.com/initiate-your-love-quest-the-introduction-to-facebooks-matchmaking-service/"><u>Initiate Your Love Quest: The Introduction to Facebook's Matchmaking Service</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/making-a-smart-move-buying-the-right-smart-tv/"><u>Making a Smart Move: Buying the Right Smart TV</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-experience-and-price-breakdown-of-the-microsoft-sculpt-keyboard/"><u>Ultimate Guide: Experience & Price Breakdown of the Microsoft Sculpt Keyboard</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-6-ways-to-increase-audience-retention-on-youtube/"><u>[New] In 2024, 6 Ways To Increase Audience Retention on YouTube</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-youtubes-essential-view-total-to-secure-income/"><u>[New] YouTube's Essential View Total to Secure Income</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-proven-strategies-for-smooth-recording-in-google-meethangouts-platforms/"><u>[Updated] In 2024, Proven Strategies for Smooth Recording in Google Meet/Hangouts Platforms</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-revolutionize-your-audio-pazera-free-extractor-insights/"><u>[Updated] Revolutionize Your Audio Pazera Free Extractor Insights</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-lava-yuva-3-pro-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Lava Yuva 3 Pro to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experts-weigh-in-on-genius-widecam-f100s-image-clarity-issues-and-resounding-acoustic-challenges/"><u>Experts Weigh in on Genius WideCam F100's Image Clarity Issues and Resounding Acoustic Challenges</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/explore-the-best-alternative-productivity-tools-to-ms-office/"><u>Explore the Best Alternative Productivity Tools to MS Office</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/google-wifi-review/"><u>Google Wifi Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-effective-is-the-netgear-ex3700-as-an-ac750-wi-fi-range-amplifier-our-in-depth-review/"><u>How Effective Is the Netgear EX3700 as an AC750 Wi-Fi Range Amplifier? Our In-Depth Review</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/how-luts-refine-image-details-and-contrast-in-photos/"><u>How LUTs Refine Image Details and Contrast in Photos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-innovative-methods-blurring-the-line-between-work-and-distractions/"><u>In 2024, Innovative Methods Blurring the Line Between Work and Distractions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-samsungs-55-inch-qn55qf-a-premium-smart-tv-with-stunning-detail-and-colors/"><u>In-Depth Analysis of Samsung's 55-Inch QN55Q_F: A Premium Smart TV with Stunning Detail and Colors</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-asus-x441ba-pros-and-cons-of-a-large-display-portable-pc/"><u>In-Depth Analysis of the Asus X441BA: Pros and Cons of a Large Display Portable PC</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-google-maps-performance-and-features-on-iphones/"><u>In-Depth Analysis: Google Maps Performance and Features on iPhones</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-why-apples-latest-inexpensive-ipad-surpasses-expectations-in-performance-and-features/"><u>In-Depth Analysis: Why Apple's Latest Inexpensive iPad Surpasses Expectations in Performance and Features</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/seamless-subtitle-conversion-at-your-fingertips-top-8-software-for-windowsmacos-srt-transition-for-2024/"><u>Seamless Subtitle Conversion at Your Fingertips - Top 8 Software for Windows/MacOS SRT Transition for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-correcting-dogs-and-cats-gaze-in-photographs/"><u>Step-by-Step Guide: Correcting Dog's & Cat's Gaze in Photographs</u></a></li>
 </ul></div>
 

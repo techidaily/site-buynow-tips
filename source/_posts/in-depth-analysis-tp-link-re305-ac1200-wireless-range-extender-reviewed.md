@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis: TP-Link RE305 AC1200 Wireless Range Extender Reviewed"
-date: 2024-10-05T23:47:07.537Z
-updated: 2024-10-06T16:28:58.875Z
+date: 2024-10-11T21:20:16.159Z
+updated: 2024-10-12T19:46:07.218Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis: TP-Link RE305 AC1200 Wireless Range Extender Reviewed"
@@ -66,13 +66,6 @@ Lifewire / Erika Rawes
 
 [Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) routers, like the TP-Link Archer AX6000, continue to hit the market, promising faster speeds and better network performance. You may be hearing more about[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) —the next generation of Wi-Fi that can help improve data flow on crowded networks, and even promote improved battery efficiency on your connected devices. Most Wi-Fi 6 routers are still pretty expensive, with prices hovering in the $250 to $500 (plus) range. The TP-Link Archer AX600 is priced in the lower range, but it still has an impressive spec list, including smart home compatibility, multiple ports, powerful hardware, and some of the latest and greatest features. I tested the TP-Link Archer AX6000 to see how the[long range router](https://www.lifewire.com/best-long-range-routers-4122554) performs in the real world.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Multiple antennas**
 
  The TP-Link Archer isn’t exactly a showstopper, but it’s reasonably attractive. It’s all black, square-shaped, and it has a significant amount of venting along the top. The unit resembles an upside down spider when it’s antennas are in the up position. The router is on the larger side, but it doesn’t look too bulky or obtrusive. It’s a 10.3 inch by 10.3 inch square, and the antennas swing out from the sides. The antennas only adjust 90 degrees, from flat to upwards, and you can’t adjust them multi-directionally.
@@ -80,6 +73,13 @@ Lifewire / Erika Rawes
  TP-Link managed to pack a lot into the AX6000’s housing. The main indicator light sits on top, positioned smack dab in the middle of the router. On the back, there’s a power button, power supply port, eight[LAN](https://www.lifewire.com/what-is-ethernet-3426740) ports, a[WAN](https://www.lifewire.com/wide-area-network-816383) port, and the reset button. The remaining tiny button controls sit along the front face, and two additional ports (a USB-A and USB-C port) sit along the side perimeter.
 
 ![TP-Link Archer AX6000](https://www.lifewire.com/thmb/oZZbi3TrOFsKJpFR_Hq5AKVQoeI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAX600_04-e71302c6fd7a4ea89baeab29b1b7ea35.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -89,6 +89,13 @@ Lifewire / Erika Rawes
 
  I created a separate 2.4 and 5 GHz network, but there’s also a smart connect option where you can have the system assign a network band based on optimal performance.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Connectivity: 8 streams and Wi-Fi 6**
 
  The[dual-band](https://www.lifewire.com/dual-band-wireless-networking-explained-818279) TP-Link Archer AX6000 has a max speed of 4804 Mbps over 5 GHz and 1148 Mbps over 2.4 GHz. It’s unlikely you’ll actually see speeds this fast, as these speeds indicate what the router is capable of in the perfect environment with blazing fast provider speeds and maxed out equipment.
@@ -97,7 +104,21 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer AX6000](https://www.lifewire.com/thmb/8DZlAR36mentZG7mDAPFBkxPqJg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAX600_05-712af203ace84bff9fe872092f83607f.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Network performance: The fastest router I’ve tested**
 
@@ -109,6 +130,13 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer AX6000](https://www.lifewire.com/thmb/OTd5mhn2AJiGFS4wy6ji5VGG3RI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAX600_06-2e1fbc3e239449b8b604f1dbe46ba522.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Key features: TP-Link HomeCare**
@@ -119,13 +147,6 @@ Lifewire / Erika Rawes
 
  There's also a smart connect option where you can have the system assign a network band based on optimal performance.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software: TP-Link Tether app**
 
  You can manage your network remotely via the Tether app. You can manage devices—block specific devices, set priority, and set parental controls for individual devices or groups of devices. The app also includes HomeCare, a collection of features that promote a fast, stable, and safe network. You can set parental controls, turn on antivirus protection, and prioritize online activity for streaming, gaming, web surfing, and more. There’s a speed test feature powered by Ookla directly in the app, as well as other tools for managing your network.
@@ -134,19 +155,6 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer AX6000](https://www.lifewire.com/thmb/nvCBXy0UZFrdTurT8MquKGraCio=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAX600_03-8432bc3fbbbf492ba9889bf29a459435.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **Price: Not bad**
@@ -154,13 +162,6 @@ Lifewire / Erika Rawes
  The TP Link Archer AX6000 typically sells for $300\. While it's not a budget router by any means, the price is very reasonable considering the router’s features, hardware, software, and speed.
 
 This is the fastest router I’ve ever tested.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **TP-Link Archer AX6000 vs. Netgear Nighthawk AX12 AX6000**
 
@@ -173,13 +174,6 @@ This is the fastest router I’ve ever tested.
 **One of the fastest routers in its price range.**
 
  The TP-Link Archer AX6000 can handle pretty much anything you throw at it.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -214,18 +208,19 @@ This is the fastest router I’ve ever tested.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-unearth-17-methods-a-complete-guide-to-tracking-internet-radio/"><u>[New] Unearth 17 Methods A Complete Guide to Tracking Internet Radio</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-borrow-without-cost-images-from-leading-youtubers-archives-for-2024/"><u>[Updated] Borrow Without Cost Images From Leading YouTubers' Archives for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/achieving-perfection-mastering-sound-with-audacity/"><u>Achieving Perfection Mastering Sound with Audacity</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/amazon-halo-unveiled-an-innovative-intimate-approach-to-tracking-your-wellbeing/"><u>Amazon Halo Unveiled - An Innovative, Intimate Approach to Tracking Your Wellbeing</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/answer-spo0f-acts-as-a-phosphotransferase-that-conveys-a-phosphate-group-from-spo0b-to-spo0a-which-then-becomes-activated-and-initiates-the-expression-of-ge105/"><u>Answer: Spo0F Acts as a Phosphotransferase that Conveys a Phosphate Group From Spo0B to Spo0A, Which Then Becomes Activated and Initiates the Expression of Genes Necessary for the Initiation of Sporulation.</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/crafting-memorable-dialogues-a-screenwriters-guide-for-2024/"><u>Crafting Memorable Dialogues A Screenwriter's Guide for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Vivo Y02T | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-top-25-mobile-editors-for-dji-filmmaking/"><u>In 2024, The Top 25 Mobile Editors for DJi Filmmaking</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Honor X9a | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-catalina-leap-upgrading-to-newest-macos-version/"><u>The Catalina Leap: Upgrading to Newest MacOS Version</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlocking-pleasure-in-play-a-guide-to-pokemon-shining-pearl-adventures/"><u>Unlocking Pleasure in Play: A Guide to Pokemon Shining Pearl Adventures</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/updated-6-must-have-tools-for-successful-game-streaming-for-2024/"><u>Updated 6 Must-Have Tools for Successful Game Streaming for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/your-iphones-creative-edge-top-10-best-no-cost-collages-and-editing-tools/"><u>Your iPhone’s Creative Edge – Top 10 Best, No-Cost Collages & Editing Tools</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-full-insight-gecata-game-logging-system-reviewed/"><u>[Updated] In 2024, Full Insight Gecata Game Logging System Reviewed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-break-the-ice-how-to-make-a-hit-youtube-reaction-in-just-15-minutes-or-less/"><u>2024 Approved Break the Ice - How to Make a Hit YouTube Reaction in Just 15 Minutes or Less</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-enhancing-clarity-in-low-quality-facebook-streams/"><u>2024 Approved Enhancing Clarity in Low-Quality Facebook Streams</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/copycat-convenience-the-ultimate-guide-to-using-the-mirror-folder-feature-on-windows-11/"><u>Copycat Convenience: The Ultimate Guide to Using the Mirror Folder Feature on Windows 11</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/from-looks-to-wallet-impact-evaluating-the-motorola-one-as-an-economical-iphone-counterpart/"><u>From Looks to Wallet Impact - Evaluating the Motorola One as an Economical iPhone Counterpart</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-the-kobo-nia-holds-its-ground-against-amazons-kindle-expert-opinions-and-insights/"><u>How the Kobo Nia Holds Its Ground Against Amazon's Kindle - Expert Opinions & Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-to-master-tracking-your-stuff-expert-review-of-the-apple-airtag-for-iphone-users/"><u>How to Master Tracking Your Stuff: Expert Review of the Apple AirTag for iPhone Users</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-rectify-unmovable-scrolling-in-excel-windows/"><u>How to Rectify Unmovable Scrolling in Excel (Windows)</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-restore-audio-functionality-in-windows/"><u>How to Restore Audio Functionality in Windows</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-your-nubia-red-magic-8s-proplus-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Nubia Red Magic 8S Pro+ Lock Screen Password</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-tailoring-textual-terminals/"><u>In 2024, Tailoring Textual Terminals</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-and-review-of-netgears-ac1200-wireless-range-expander-ex6200/"><u>In-Depth Analysis and Review of Netgear's AC1200 Wireless Range Expander EX6200</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-guide-to-microsoft-surface-ergonomic-keyboard-unpacking-its-superior-quality/"><u>In-Depth Guide to Microsoft Surface Ergonomic Keyboard – Unpacking Its Superior Quality</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/tutorial-recuperation-des-sauvegardes-de-serveur-windows-server-dans-un-environnement-virtuel/"><u>Tutorial : Récupération Des Sauvegardes De Serveur Windows Server Dans Un Environnement Virtuel</u></a></li>
 </ul></div>
 

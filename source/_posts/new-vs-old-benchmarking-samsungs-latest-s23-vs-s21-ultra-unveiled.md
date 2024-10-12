@@ -1,7 +1,7 @@
 ---
 title: "New vs Old: Benchmarking Samsung's Latest - S23 vs S21 Ultra Unveiled"
-date: 2024-10-02T17:13:07.244Z
-updated: 2024-10-07T01:53:22.606Z
+date: 2024-10-10T21:54:40.760Z
+updated: 2024-10-12T21:00:55.498Z
 categories:
   - BestProducts
 description: "This Article Describes New vs Old: Benchmarking Samsung's Latest - S23 vs S21 Ultra Unveiled"
@@ -39,16 +39,16 @@ Lifewire / Andy Zahn
 
 3.9
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Garmin Vivoactive 3 Music
 
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/FeCJ-wziP0Qoo9-pmifuFx9oZ7E=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Garmin-Vivoactive-3-Music-Smart-Watch-1-a182a2ce6d214080bd38bdb1c85e49a1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
-  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -81,26 +81,19 @@ Lifewire / Andy Zahn
 
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/M4iaS5RgiaubncJH8F-ZLVQQ8Po=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivoactive-3-Music-Smart-Watch-2-a0cd2c48cc0d423d85a3dc1f7e677160.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Comfort: On the small side**
@@ -125,6 +118,13 @@ Lifewire / Andy Zahn
 
 The touchscreen interface is responsive, though a bit laggy.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Battery: Variable duration**
 
  How long the battery in the Vivoactive 3 Music lasts depends entirely on how it’s used. If you only use its smartwatch capabilities occasionally then it’s good for a week at a time. However, when I made use of GPS, music, and other power-intensive features, it would run out in less than a full day of use.
@@ -132,10 +132,10 @@ The touchscreen interface is responsive, though a bit laggy.
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/NdBt6UHu7uQUfRZfJN5BzwIEad8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivoactive-3-Music-Smart-Watch-3-18b432ab56ac4ef284ba74ffd1ec7f82.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
@@ -171,10 +171,10 @@ The touchscreen interface is responsive, though a bit laggy.
  There’s a lot to like about the Garmin Vivoactive 3 Music, It’s attractive, packed with features, and provides a deep level of fitness tracking. However, I could never fully enjoy using it due to its less than the optimal interface and laggy operation. This might be a good option if you are already invested in Garmin’s products, but for me it’s hard to ignore the flaws.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -207,16 +207,19 @@ The touchscreen interface is responsive, though a bit laggy.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-9-command-center-of-live-gaming-streams/"><u>[New] In 2024, 9 Command Center of Live Gaming Streams</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-easytech-snapshot-quick-rundown/"><u>[Updated] EasyTech Snapshot Quick Rundown</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-immersive-home-theater-choosing-the-best-3d-players/"><u>[Updated] Immersive Home Theater Choosing the Best 3D Players</u></a></li>
-<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-htc-u23-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On HTC U23 | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-samsung-galaxy-fit-assessment-perfect-gadget-for-health-conscious-individuals/"><u>Comprehensive Samsung Galaxy Fit Assessment: Perfect Gadget for Health-Conscious Individuals</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-testing-of-netgear-nighthawk-x6-ac3200-speedy-and-secure-home-network-solution/"><u>Comprehensive Testing of Netgear Nighthawk X6 AC3200 - Speedy & Secure Home Network Solution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/conquer-new-worlds-with-stellaris-the-ultimate-intergalactic-empire-guide/"><u>Conquer New Worlds with Stellaris - The Ultimate Intergalactic Empire Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/drive-intelligently-with-escort-ix-radar-detector-the-ai-powered-companion-that-enhances-over-time/"><u>Drive Intelligently with Escort iX Radar Detector – The AI-Powered Companion That Enhances Over Time</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/elevate-your-experience-choosing-between-apples-ipad-air-4-and-samsungs-galaxy-tab-s7plus/"><u>Elevate Your Experience: Choosing Between Apple's iPad Air 4 and Samsung's Galaxy Tab S7+</u></a></li>
-<li><a href="https://win11.techidaily.com/methodologies-for-correcting-error-0x800700e1-on-windows-11/"><u>Methodologies for Correcting Error 0X800700E1 on Windows 11</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-effortless-soloist-extraction-devices-catering-to-every-skill-tier/"><u>Updated Effortless Soloist Extraction Devices Catering to Every Skill Tier</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-new-wave-for-sonys-s6700-blu-ray-player/"><u>[New] New Wave for Sony's S6700 Blu-Ray Player</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-simplified-approach-to-broadcasting-recorded-vids-on-social-media/"><u>[New] Simplified Approach to Broadcasting Recorded Vids on Social Media</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>How to Stop Life360 from Tracking You On Apple iPhone 12 mini? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-audio-endings-how-to-decrease-volume-gradually-in-pp/"><u>In 2024, Audio Endings How to Decrease Volume Gradually in PP</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-macs-secret-shortcuts-to-instantaneous-screen-recording/"><u>In 2024, Mac's Secret Shortcuts to Instantaneous Screen Recording</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-rhythm-and-reel-incorporating-tunes-on-instagram/"><u>In 2024, Rhythm & Reel Incorporating Tunes on Instagram</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-is-nvidia-shield-tv-pro-the-perfect-streaming-console-for-hardcore-players/"><u>Review: Is Nvidia Shield TV Pro the Perfect Streaming Console for Hardcore Players?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-un65nu8000fxza-analysis-is-this-premium-smart-tv-worth-the-cost/"><u>Samsung UN65NU8000FXZA Analysis: Is This Premium Smart TV Worth the Cost?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sealock-coastal-55-4k-ultra-hd-smart-outdoor-television-comprehensive-review/"><u>Sealock Coastal 55 4K Ultra HD Smart Outdoor Television - Comprehensive Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/status-bt-inspection-affordable-yet-marred-by-faults/"><u>Status BT Inspection: Affordable, Yet Marred by Faults</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tested-and-reviewed-how-the-asus-rog-gt-ac5300-exceeds-gaming-and-technology-enthusiasts-expectations/"><u>Tested and Reviewed: How the Asus ROG GT-AC5300 Exceeds Gaming & Technology Enthusiast's Expectations</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-definitive-list-leading-smartwatches-to-watch/"><u>The Definitive List: Leading Smartwatches to Watch</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-and-repairing-a-nonworking-laptop-mic-completed/"><u>Troubleshooting and Repairing a Nonworking Laptop Mic [COMPLETED]</u></a></li>
 </ul></div>
 

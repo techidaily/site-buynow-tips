@@ -1,7 +1,7 @@
 ---
 title: "Microsoft Surface Duo Examined: An Overpriced Device Plagued with Glitches"
-date: 2024-08-22T18:03:43.884Z
-updated: 2024-08-23T18:03:43.884Z
+date: 2024-10-09T20:33:14.628Z
+updated: 2024-10-12T21:48:40.832Z
 categories:
   - BestProducts
 description: "This Article Describes Microsoft Surface Duo Examined: An Overpriced Device Plagued with Glitches"
@@ -74,9 +74,6 @@ Lifewire / Yoona Wagener
 
  Another benefit of the manageable weight is access to the ports on the back of the display, which are similar to the options you’ll find on more traditionally sized desktops—including an[HDMI](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) out port to extend your display. Two[USB 3.0](https://www.lifewire.com/what-is-usb-3-0-2626038) ports and two USB 2.0 Type-A ports should cover your peripherals, though one of them will be taken by the nano-USB required to operate the wireless mouse that comes with the machine. And the provided cord organizer that snaps easily onto the arm of the monitor helps tame all of your extras. If you don’t have a great deal of free space or access behind the computer, moving the machine to reveal the ports takes little effort.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Display: Ample visibility and easy to tilt**
 
  One of the most exceptional aspects of the Acer Aspire C27 is the 1920x1080 Full HD[IPS display](https://www.lifewire.com/definition-of-ips-lcd-578662) . It’s easy on the eyes, thanks to a matte design and[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) backlighting, and while it measures 27 inches on the diagonal, it appears even more generous, thanks to a low-profile .14-inch bezel. The manufacturer claims that this distribution of bezel to display means users enjoy 92% more screen across a range of viewing angles.
@@ -88,8 +85,12 @@ Lifewire / Yoona Wagener
 ![Acer Aspire C27](https://www.lifewire.com/thmb/Uz7vMuH09GTPbuzGQD_1VWglDoI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Aspire-C27-Desktop-PC-3-667c0e2c6ea14626adb5811a5bf80dfd.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
 ## **Performance: Good at all the PC basics**
@@ -110,9 +111,6 @@ Lifewire / Yoona Wagener
 
 ![Acer Aspire C27](https://www.lifewire.com/thmb/eYza3ruWnKMueY9-zQYC-77j_kc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Aspire-C27-Desktop-PC-2-e114799eed6f4957a4aae15f991d16c9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Yoona Wagener
 
 ## **Audio: Muffled and best with headphones**
@@ -122,26 +120,45 @@ Lifewire / Yoona Wagener
  Regardless of what I listened to, whether it was a podcast, hip hop, game audio, or a show on Netflix or Hulu, everything sounded slightly muted and obstructed. The best general audio experience was with headphones and the definitively better choice for listening to any kind of music.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Network: Speedy connections all around**
 
  The Acer Aspire C27 is capable of [Gigabit Ethernet](https://www.lifewire.com/definition-of-gigabit-ethernet-816338) performance and uses the 802.11ac wireless standard. Ookla Speedtest results consistently delivered at the high end of my 200Mbps ISP download speed capacity. Over Wi-Fi, I saw an average of 107Mbps and Ethernet speeds floated around 200Mbps.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Camera: Adequate for conference calls**
 
  Whether you telecommute on a full-time basis or on occasion, a decent built-in camera is becoming something of a must-have on modern laptops and the[best desktop PCs](https://www.lifewire.com/best-desktop-pcs-4045927) . Unfortunately, the Aspire C27 720-pixel HD webcam is lackluster. Video conferencing delivers just clear-enough video quality and the audio is just okay. It’s grainy and washed out and on the darker side of the spectrum. If you spend a lot of time chatting over Zoom or Hangouts or other platforms, this won’t provide the best-looking chatting experience.
 
 ![Acer Aspire C27](https://www.lifewire.com/thmb/v420GvXY0BlSatYrv2si6-9pSD8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Aspire-C27-Desktop-PC-4-e9102f94165248629d57a39fad401493.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Software: Heavy focus on Microsoft Cloud Integrations**
 
 [Windows 10](https://www.lifewire.com/windows-10-2626217) Home offers a desirable mix of standard protective, productivity, and creative features. Microsoft emphasizes improved overall security with this OS, and you’ll see that in built-in virus, network, and firewall protection and parental controls too. It also supports creative endeavors with a Microsoft 365 subscription and an updated camera app for taking photos and editing them too. The Paint 3D app is a compelling upgrade over the basic Paint application. There’s also a new screen capture tool and smartphone (both Android and iOS) integration and[Cortana voice assistance](https://www.lifewire.com/microsoft-cortana-4147978) .
@@ -153,6 +170,13 @@ Lifewire / Yoona Wagener
 ## **Price: Inexpensive for the quality and wireless peripherals**
 
  The Acer Aspire C27 retails for about $900\. This price point makes this AIO a more affordable option for a range of shoppers, especially those who want to cut down on the amount of desk clutter or like the idea of portability—whether that’s required by a move or a desire for a change of scenery. There are less expensive[all-in-one desktops](https://www.lifewire.com/best-all-in-one-pcs-831942) on the market, at or even below $500, but it’s challenging to find an equivalent that offers the same slim and lightweight form factor and screen and overall quality.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Acer Aspire C27 vs. HP All-in-One 27-dp0170z**
 
@@ -166,9 +190,6 @@ Lifewire / Yoona Wagener
 
  The Acer Aspire C27 all-in-one is so slim at first glance you might mistake it for a mere computer monitor. Its unimposing and flexible form factor betrays its hidden ability as a desktop PC that can handle most computing demands with ease and perform a few extra demanding tasks as well.
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Aspire C27 AIO
@@ -187,14 +208,11 @@ Lifewire / Yoona Wagener
 * Software  Windows 10 Home
 * Warranty  1 year
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -203,4 +221,21 @@ Lifewire / Yoona Wagener
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-communicating-with-authority-power-words-in-marketing/"><u>[New] 2024 Approved Communicating with Authority Power Words in Marketing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-vg245h-the-gamers-dream-perfect-screen-for-immersive-console-experiences/"><u>Asus VG245H: The Gamer's Dream – Perfect Screen for Immersive Console Experiences</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-motorola-edge-2023-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Motorola Edge 2023 Users</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-realme-11-pro-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Realme 11 Pro Phones</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-imac-with-apples-m1-chip-graphics-update-and-improved-performance/"><u>In-Depth Analysis of iMac with Apple's M1 Chip: Graphics Update & Improved Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-microsofts-premium-ergonomic-keyboard-top-quality-insights/"><u>In-Depth Analysis of Microsoft's Premium Ergonomic Keyboard – Top Quality Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-critique-of-the-apple-imac-215-display-a-blend-of-elegance-and-performance/"><u>In-Depth Critique of the Apple iMac 21.5 Display - A Blend of Elegance and Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/intuitive-and-economical-a-deep-dive-into-the-z-edge-z3plus-dashcam/"><u>Intuitive & Economical: A Deep Dive Into the Z-Edge Z3+ Dashcam</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/iphone-13-assessment-comprehensive-analysis-and-verdict/"><u>IPhone 13 Assessment: Comprehensive Analysis and Verdict</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-edge-uninterruptible-power-supply-systems-expert-picks/"><u>Leading Edge Uninterruptible Power Supply Systems - Expert Picks</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/prime-6-economical-choices-for-ultra-hd-viewing-for-2024/"><u>Prime 6 Economical Choices for Ultra HD Viewing for 2024</u></a></li>
+<li><a href="https://techidaily.com/reset-pattern-lock-tutorial-for-honor-play-8t-by-drfone-android-unlock-android-unlock/"><u>Reset pattern lock Tutorial for Honor Play 8T</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/selecting-peak-performance-lipo-cells-for-drones/"><u>Selecting Peak Performance LiPo Cells for Drones</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-era-of-twitscams-ends-with-new-signatures/"><u>The Era of TwitScams Ends with New Signatures</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Understated Performer: Exploring the Capabilities of Rexing's V1 DashCam"
-date: 2024-09-30T21:09:23.981Z
-updated: 2024-10-07T02:54:32.500Z
+date: 2024-10-08T19:45:19.731Z
+updated: 2024-10-12T16:46:03.984Z
 categories:
   - BestProducts
 description: "This Article Describes The Understated Performer: Exploring the Capabilities of Rexing's V1 DashCam"
@@ -39,9 +39,23 @@ Lifewire / Emily Ramirez
 
 2.8
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -67,38 +81,24 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/U_vmwZDe5HbbungQ5L2hzf2LVto=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-4-b0d1cca56ec04a61b83e20d1cecf2aea.jpg)
 
- Lifewire / Emily Ramirez
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Emily Ramirez
 
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -112,14 +112,14 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
 
@@ -130,10 +130,10 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
@@ -213,24 +213,20 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-enhanced-window-recording-made-simple-with-spring/"><u>[New] In 2024, Enhanced Window Recording Made Simple with Spring</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-final-flourishes-crafting-memorable-video-closures/"><u>[Updated] Final Flourishes Crafting Memorable Video Closures</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-unlock-youtube-numbers-for-enhanced-performance/"><u>[Updated] Unlock YouTube Numbers for Enhanced Performance</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-upgrading-to-high-def-facebook-broadcasts/"><u>[Updated] Upgrading to High-Def Facebook Broadcasts</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-creating-high-impact-short-waterway-previews/"><u>2024 Approved Creating High-Impact Short Waterway Previews</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-step-closer-to-perfection-unraveling-the-upgrades-in-dji-phantom-4-pro-v2-thorough-review/"><u>A Step Closer to Perfection? Unraveling the Upgrades in DJI Phantom 4 Pro V2 - Thorough Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-thrills-in-the-sky-holy-stone-hs1/"><u>Affordable Thrills in the Sky: Holy Stone HS1</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/amazfit-gts-where-trendiness-meets-training-comprehensive-review/"><u>Amazfit GTS: Where Trendiness Meets Training - Comprehensive Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/amazons-2018-kindle-paperwhite-a-comprehensive-bookworm-review-and-ranking/"><u>Amazon's 2018 Kindle Paperwhite - A Comprehensive Bookworm Review & Ranking</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/analyzing-jabra-talk-45s-superior-audio-quality-and-battery-life-extension/"><u>Analyzing Jabra Talk 45'S Superior Audio Quality & Battery Life Extension</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/assessing-ergodriven-topo-mats-how-they-transform-your-desk-into-a-comfort-zone-against-tiredness/"><u>Assessing Ergodriven Topo Mats: How They Transform Your Desk Into a Comfort Zone Against Tiredness</u></a></li>
-<li><a href="https://program-issues.techidaily.com/guide-to-repairing-errors-in-msi-dragon-center-functionality/"><u>Guide to Repairing Errors in MSI Dragon Center Functionality</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-classic-stop-motion-animations-ranking-the-best-15/"><u>In 2024, Classic Stop-Motion Animations Ranking the Best 15</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-realme-11-pro-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Realme 11 Pro IMEI without Root A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/revolutionary-romer-chargeable-spotlight-analysis-a-high-powered-and-eco-friendly-illuminator-for-adventures/"><u>Revolutionary Romer Chargeable Spotlight Analysis: A High-Powered & Eco-Friendly Illuminator for Adventures</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/time-lapse-magic-a-samsung-photo-guide-for-2024/"><u>Time-Lapse Magic A Samsung Photo Guide for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-razer-portal-best-wi-fi-experience-tailored-for-gamers/"><u>Unveiling the Razer Portal - Best Wi-Fi Experience Tailored for Gamers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/vital-tips-making-an-informed-pre-owned-tech-decision/"><u>Vital Tips: Making an Informed Pre-Owned Tech Decision</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/which-is-better-a-review-of-google-nest-audio-against-the-apple-homepod/"><u>Which Is Better? A Review of Google Nest Audio Against the Apple HomePod</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-swift-shadowing-in-1-minute/"><u>[Updated] 2024 Approved Swift Shadowing in 1 Minute</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-illuminate-your-content-creation/"><u>[Updated] Illuminate Your Content Creation</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-in-depth-look-at-tomtom-bandit-camera-series/"><u>2024 Approved In-Depth Look at TomTom Bandit Camera Series</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-unsung-heroes-of-canvas-open-source-paintings/"><u>2024 Approved The Unsung Heroes of Canvas Open-Source Paintings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/bose-qc30-exceptional-sound-yet-imperfect/"><u>Bose QC30: Exceptional Sound, Yet Imperfect</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/clearstreams-eclipse-antenna-review-stellar-performance-meets-simplicity/"><u>ClearStream's Eclipse Antenna Review: Stellar Performance Meets Simplicity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-samsung-galaxy-s24-ultra-and-s23-ultra-which-one-is-the-best/"><u>Comparing Samsung Galaxy S24 Ultra and S23 Ultra: Which One Is the Best?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-apple-ipad-air-201n-review-unleashing-a-new-era-of-multimedia-performance/"><u>Comprehensive Apple iPad Air (201N Review): Unleashing a New Era of Multimedia Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-samsung-galaxy-tab-s5e-premium-android-experience/"><u>Comprehensive Evaluation of the Samsung Galaxy Tab S5e - Premium Android Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/creative-sound-blaster-zxr-expert-analysis-of-the-2013-top-of-the-line-audio-card/"><u>Creative Sound Blaster ZXR - Expert Analysis of the 2013 Top-of-the-Line Audio Card</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/effective-solutions-to-get-your-steelseries-arctis-n-microphone-working-again/"><u>Effective Solutions to Get Your SteelSeries Arctis N Microphone Working Again</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elevating-your-gameplay-with-the-alienware-aurora-r9-a-deep-dive-into-dells-advanced-gaming-pc/"><u>Elevating Your Gameplay with the Alienware Aurora R9 - A Deep Dive Into Dell's Advanced Gaming PC</u></a></li>
+<li><a href="https://win-hot.techidaily.com/how-to-restore-accidentally-deleted-mlv-file-formats-on-your-device/"><u>How to Restore Accidentally Deleted MLV File Formats on Your Device</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-pro-tips-to-perfect-minecraft-pixelation/"><u>In 2024, Pro Tips to Perfect Minecraft Pixelation</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/public-audio-for-deep-thoughts/"><u>Public Audio for Deep Thoughts</u></a></li>
 </ul></div>
 

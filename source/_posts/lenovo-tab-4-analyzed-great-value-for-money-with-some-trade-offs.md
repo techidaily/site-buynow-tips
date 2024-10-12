@@ -1,7 +1,7 @@
 ---
 title: "Lenovo Tab 4 Analyzed: Great Value for Money with Some Trade-Offs"
-date: 2024-10-05T21:28:07.432Z
-updated: 2024-10-06T20:57:46.324Z
+date: 2024-10-11T17:59:39.598Z
+updated: 2024-10-12T21:43:02.333Z
 categories:
   - BestProducts
 description: "This Article Describes Lenovo Tab 4 Analyzed: Great Value for Money with Some Trade-Offs"
@@ -40,22 +40,21 @@ Lifewire / Andy Zahn
 4.3
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -101,16 +100,22 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Battery life: No worries**
 
@@ -127,10 +132,16 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Autofocus: Blazing fast**
@@ -156,6 +167,13 @@ Lifewire / Andy Zahn
  RAW files are rich and detailed, and[JPEG images](https://www.lifewire.com/jpeg-myths-and-facts-1701548) are well-rendered, though JPEG images do show the compression artifacts typical of point-and-shoot cameras. The built-in flash raises and lowers manually and is functional if unexceptional.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Modes: Plenty to choose from (and only some are useful)**
 
@@ -218,10 +236,10 @@ Lifewire / Andy Zahn
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -264,24 +282,15 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-the-foodies-framebook-stepwise-filming/"><u>[Updated] The Foodie's Framebook Stepwise Filming</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/decoding-windows-past-a-step-by-step-to-inspect-and-clean-activities/"><u>Decoding Windows' Past: A Step-by-Step to Inspect and Clean Activities</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/disable-screen-lock-on-poco-x6-pro-by-drfone-android-unlock-android-unlock/"><u>Disable screen lock on Poco X6 Pro</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-the-performance-of-tp-link-archer-c80-budget-friendly-sub-100-speeds/"><u>Evaluating the Performance of TP-Link Archer C80: Budget-Friendly Sub-$100 Speeds</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-dell-xps-13-9310-laptop-ultra-thin-design-meets-powerful-performance/"><u>Exploring the Dell XPS 13 (9310) Laptop: Ultra-Thin Design Meets Powerful Performance</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Huawei Nova Y91? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Samsung Galaxy S24 | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-joy-journeys-a-curated-list-of-the-best-humor-vids-online/"><u>In 2024, Joy Journeys A Curated List of the Best Humor Vids Online</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-oppo-a18-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Oppo A18 | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/in-depth-look-at-the-pros-and-cons-of-the-cooler-master-ion-360-aio-water-cooler-for-gaming-rigs/"><u>In-Depth Look at the Pros and Cons of the Cooler Master ION 360 AIO Water Cooler for Gaming Rigs</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/live-streaming-guide-facebook-via-androidios-devices/"><u>Live Streaming Guide Facebook via Android/iOS Devices</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/navigating-through-stars-and-empires-an-in-depth-review-of-stellaris-your-gateway-to-galactic-glory/"><u>Navigating Through Stars and Empires: An In-Depth Review of Stellaris, Your Gateway to Galactic Glory</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/redefining-office-chic-with-functionality-insightful-review-of-the-stylish-flexispot-theodore-standing-desk-solution/"><u>Redefining Office Chic with Functionality: Insightful Review of the Stylish Flexispot Theodore Standing Desk Solution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revamped-and-ready-to-battle-a-critical-look-at-fortnites-new-exciting-chapter/"><u>Revamped and Ready to Battle: A Critical Look at Fortnite's New Exciting Chapter!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/star-wars-squadrons-gameplay-assessment-an-enthusiasts-guide-to-luminous-conflicts/"><u>Star Wars: Squadrons Gameplay Assessment - An Enthusiast's Guide to Luminous Conflicts</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/sunbrites-invincible-55-outdoor-tv-a-blend-of-sturdy-design-and-crisp-4k-hdr-imagery-perfect-for-patios/"><u>SunBrite's Invincible 55” Outdoor TV – A Blend of Sturdy Design & Crisp 4K HDR Imagery Perfect for Patios.</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-near-perfect-dji-phantom-4-pro-v-20-an-in-depth-review/"><u>The Near-Perfect DJI Phantom 4 Pro V. 2.0 - An In-Depth Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-pros-and-cons-of-the-lg-k51-gorgeous-appearance-with-a-dragging-processor-pace/"><u>The Pros and Cons of the LG K51: Gorgeous Appearance with a Dragging Processor Pace</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/why-watch-hd-switch-to-av1-codec-on-youtube-for-2024/"><u>Why Watch HD? - Switch to AV1 Codec on YouTube for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-farmers-fields-the-essential-10-agriculture-titles-for-playmates-for-2024/"><u>[New] Farmers' Fields The Essential 10 Agriculture Titles for Playmates for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-evaluation-of-the-new-apple-watch-series-9-a-comprehensive-guide/"><u>Expert Evaluation of the New Apple Watch Series 9: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-roundup-leading-the-pack-a-critical-look-at-2024s-most-impressive-17-notebook-computers/"><u>Expert Roundup: Leading the Pack - A Critical Look at 2024'S Most Impressive 17 Notebook Computers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/final-act-of-hitman-series-examined-stellar-finish/"><u>Final Act of Hitman Series Examined: Stellar Finish</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/hero9-review-superb-imaging-at-a-steep-price/"><u>HERO9 Review - Superb Imaging at a Steep Price</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-phone-number-from-your-apple-id-from-your-iphone-15-plus-by-drfone-ios/"><u>How To Remove Phone Number From Your Apple ID from Your iPhone 15 Plus?</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/the-ultimate-verdict-on-asus-rog-zephyrus-g16-does-it-deliver-for-avid-gamers/"><u>The Ultimate Verdict on Asus ROG Zephyrus G16: Does It Deliver for Avid Gamers?</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/ultimate-resource-guide-mastering-flip-image-techniques-with-flipimagepro/"><u>Ultimate Resource Guide - Mastering Flip Image Techniques with FlipImagePro</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-slovak-speech-one-quick-session-at-a-time/"><u>Unlock Slovak Speech, One Quick Session at a Time!</u></a></li>
 </ul></div>
 

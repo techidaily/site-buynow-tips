@@ -1,7 +1,7 @@
 ---
 title: "Holy Stone HS170 Predator Mini RC Helicopter Drone Review: A Drone on a Budget"
-date: 2024-10-05T02:54:40.701Z
-updated: 2024-10-06T18:57:31.194Z
+date: 2024-10-06T18:49:04.792Z
+updated: 2024-10-12T19:12:00.992Z
 categories:
   - BestProducts
 description: "This Article Describes Holy Stone HS170 Predator Mini RC Helicopter Drone Review: A Drone on a Budget"
@@ -37,13 +37,6 @@ Lifewire / Bill Thomas
 
 3
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Netgear C3000 Cable Modem Router
 
 ![Netgear C3000](https://www.lifewire.com/thmb/Ga2OrNlpcgoBAByp_iB08VrN5h0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-4_1-3b77a598c3cd4836b8b632578b3b437e.jpg)
@@ -74,6 +67,13 @@ Lifewire / Bill Thomas
 
 [The Best Cable Modem/Router Combos of 2024](https://www.lifewire.com/best-cable-modem-router-combos-to-buy-4082541)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Compact
 
  The Netgear C3000 is cable modem with an 8x4 DOCSIS 3.0 rating and a slow N300 wireless speed—there isn’t much hardware to pack in here. So it’s a pretty small device, not much larger than a few Blu-Ray cases stacked on top of each other. It measures just under eight inches tall and weighs 0.78 pounds. Combined with the black plastic build, it’s a modem that won’t attract too much attention, which is honestly what we look for. You don’t want something you’ll feel encouraged to hide.
@@ -83,49 +83,43 @@ Lifewire / Bill Thomas
 ![Netgear C3000](https://www.lifewire.com/thmb/vcoYESWM5JJLo3l3KiPZd0A4uEU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_4-b3293ad0ed2b4bffb51f8e5f71f1914d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/_9ERrc4mSXFjpZAVMAwwqbfpLwM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_3-2f5e1e38512d41019430d063e63b7f9b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/8U-jHJ6otxXt5vRq8FVLubPNOpI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_2-a6aa93cceeaf4d9ca6bb0d989200b2ea.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/7eGgp_5LZf8d-PMDe578GB4_hEI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_5-7c5c666203504b9ab932de0b70f14522.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
 ## Setup Process: Exceptionally easy
 
  Setting up a cable modem can be a complicated and time consuming process. Not so with the Netgear C3000—when we set it up it was almost plug-and-play. It could be because this modem isn’t the most complex piece of hardware, but it was ready for activation_seconds_ after we plugged it in. We connected via ethernet, launched a browser and within minutes we activated our 250 Mbps Xfinity service. We’re not sure if our experience was a fluke, but we were pleasantly surprised.
-
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Connectivity: Pretty limited
 
@@ -135,7 +129,21 @@ Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/vmrfrWyvGROwVpR7Y2UQmaZOPEU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_6-e34bd6e4000f49c3b6a0d1653d23f6ff.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Bill Thomas
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Network Performance: Keep your expectations low
 
@@ -153,13 +161,6 @@ Lifewire / Bill Thomas
 
  There’s also a Netgear Genie mobile app on both Google Play and the App Store. The app gives you the same controls as the management portal, but with a much more user-friendly interface. This is what we’d recommend most people use to[manage their network](https://www.lifewire.com/how-to-set-up-your-home-wi-fi-network-2378223) .
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Price: Expensive for what it is
 
  The Netgear C3000 cable modem will set you back a whopping $94.99 at retail. Considering that you can get a 8x4 DOCSIS 3.0 cable modem for around $50 and an N300 wireless router for less than $20, it’s not exactly the best deal out there.
@@ -167,19 +168,6 @@ Lifewire / Bill Thomas
  If you can find it refurbished—and you’re comfortable buying a refurbished modem—that might bring it down to a better price point. At the time of this writing, we were able to find refurbished models for around $49, which puts it in the same ballpark as a comparable standalone modem.
 
  Unless you’re dead-set on buying an all-in-one device, buying a separate modem and router is going to be the more economical option.
-
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Netgear C3000 vs. TP-Link TC-W7960S
 
@@ -230,19 +218,22 @@ Lifewire / Bill Thomas
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-an-exhaustive-feature-analysis-of-du-recorder-for-2024/"><u>[New] An Exhaustive Feature Analysis of Du Recorder for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-drone-fundamentals-an-overview-of-their-workings-for-2024/"><u>[Updated] Drone Fundamentals An Overview of Their Workings for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-the-broadcasters-blueprint-step-by-step-windows-pc-guide-to-live-capture-for-2024/"><u>[Updated] The Broadcaster's Blueprint Step-by-Step Windows PC Guide to Live Capture for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-squared-up-strategies-boosting-video-popularity-on-the-platform/"><u>2024 Approved Squared Up Strategies Boosting Video Popularity on the Platform</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/generative-ai-explained-for-families/"><u>Generative AI Explained for Families</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-unlocking-the-potential-in-your-podcasts-xml-structure/"><u>In 2024, Unlocking the Potential in Your Podcast's XML Structure</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-an-ai-presentation-maker/"><u>New In 2024, What Is an AI Presentation Maker?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/on-the-go-literature-lovers-rejoice-with-the-kobo-clara-hd-insight/"><u>On-the-Go Literature Lovers Rejoice with the Kobo Clara HD Insight</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/oodle-free-local-classifieds/"><u>Oodle: Free Local Classifieds</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/rayman-legends-game-reviewed-discover-the-intricacies-of-an-outstandingly-crafted-two-dimensional-platformer/"><u>Rayman Legends Game Reviewed: Discover the Intricacies of an Outstandingly Crafted Two-Dimensional Platformer</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-of-the-formidable-xbox-series-x-next-gen-4k-entertainment-at-your-fingertips/"><u>Review of the Formidable Xbox Series X: Next-Gen 4K Entertainment at Your Fingertips</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-tab-s6-review/"><u>Samsung Galaxy Tab S6 Review</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/the-sound-of-silence-expert-advice-on-noise-reduction-in-final-cut-pro-x-for-2024/"><u>The Sound of Silence Expert Advice on Noise Reduction in Final Cut Pro X for 2024</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-from-beginner-to-pro-top-vlog-video-editing-software-for-every-level-for-2024/"><u>Updated From Beginner to Pro Top Vlog Video Editing Software for Every Level for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-voice-assignment-verification/"><u>[New] 2024 Approved Voice Assignment Verification</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-craft-your-own-podcast-success-with-writing-tips-and-sample-templates/"><u>[New] Craft Your Own Podcast Success with Writing Tips and Sample Templates</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-mastering-iphone-capturing-time-stretched-movies-for-2024/"><u>[New] Mastering iPhone Capturing Time-Stretched Movies for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-facebook-hack-get-your-account-back/"><u>[Updated] 2024 Approved Facebook Hack? Get Your Account Back</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/crafting-narratives-in-blockland-evaluating-the-campfire-tales-skins-pack-for-minecraft-adventurers/"><u>Crafting Narratives in Blockland: Evaluating the Campfire Tales Skins Pack for Minecraft Adventurers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/deciding-on-ai-companionship-alexa-versus-google-assistant/"><u>Deciding on AI Companionship: Alexa versus Google Assistant</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-miniature-giant-the-g7x-mark-ii-camera-reviewed/"><u>Discovering the Miniature Giant – The G7X Mark II Camera Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elevate-your-workplace-with-style-insightful-reviews-of-the-modern-and-sophisticated-flexisport-theodore-standing-desk/"><u>Elevate Your Workplace with Style: Insightful Reviews of the Modern and Sophisticated Flexisport Theodore Standing Desk</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/email-address-contactcalmskiescentrecom/"><u>Email Address: contact@calmskiescentre.com</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-trouble-free-feeding-routines-with-arf-pets-automatic-pet-dispenser-the-ultimate-care-compan-1/"><u>Experience Trouble-Free Feeding Routines with Arf Pets Automatic Pet Dispenser: The Ultimate Care Compan 1</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-evaluation-of-kootek-laptop-fan-stand-reliable-performance-across-the-board/"><u>Expert Evaluation of Kootek Laptop Fan Stand: Reliable Performance Across the Board</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-amazfit-gtss-balance-of-chic-design-and-exercise-capability-reviews-and-findings/"><u>Exploring the Amazfit GTS's Balance of Chic Design and Exercise Capability - Reviews & Findings</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-gaming-for-everyone-accessible-channels/"><u>In 2024, Gaming for Everyone Accessible Channels</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-second-screen-craftsman/"><u>In 2024, Second-Screen Craftsman</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-art-of-crafting-a-youtube-video-with-100kplus-reach/"><u>In 2024, The Art of Crafting a YouTube Video with 100K+ Reach</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigating-through-the-world-of-ai-the-comparison-of-public-vs-private-vs-personal-systems/"><u>Navigating Through the World of AI: The Comparison of Public Vs. Private Vs. Personal Systems</u></a></li>
+<li><a href="https://extra-information.techidaily.com/seamless-webp-to-jpg-conversion-techniques/"><u>Seamless WebP to JPG Conversion Techniques</u></a></li>
 </ul></div>
 

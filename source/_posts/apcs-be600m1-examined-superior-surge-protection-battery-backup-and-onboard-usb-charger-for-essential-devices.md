@@ -1,7 +1,7 @@
 ---
 title: "APC's BE600M1 Examined: Superior Surge Protection, Battery Backup & Onboard USB Charger for Essential Devices"
-date: 2024-08-22T18:07:23.282Z
-updated: 2024-08-23T18:07:23.282Z
+date: 2024-10-06T16:32:03.948Z
+updated: 2024-10-12T17:25:16.628Z
 categories:
   - BestProducts
 description: "This Article Describes APC's BE600M1 Examined: Superior Surge Protection, Battery Backup & Onboard USB Charger for Essential Devices"
@@ -63,9 +63,6 @@ Lifewire / Gannon Burgett
 
  To see just how well it works and whether or not it lives up to its hype—and price tag—we put the ChargeTech through the wringer to see just how well it performs.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Sleek and slim**
 
  The ChargeTech 27000mAh battery pack looks as unassuming as you'd expect. It's effectively a beefed-up smartphone battery pack that happens to sneak a full-sized AC outlet into it. The rectangular device features tapered sides, which helps add to its slim profile, as well as a satin matte black finish, which we'll elaborate on more in a minute.
@@ -73,8 +70,12 @@ Lifewire / Gannon Burgett
 ![Charge Tech](https://www.lifewire.com/thmb/BCvqF82o5dvxOJ6Sb59FZYjknuk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_7Web-5c900332c9e77c0001eb1ca0.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
 
  On the top of the ChargeTech 27000mAh is a single power button that serves dual-purpose as the battery life indicator thanks to four LED lights (each of which represents a 25% charge). The various plugins on the device are all located on one edge, save for the input cable, which sits alone on an adjacent side.
@@ -91,9 +92,6 @@ Lifewire / Gannon Burgett
 
 ![Charge Tech](https://www.lifewire.com/thmb/pMX2VbLRSNxwb3iQ2XKJW_wDvKg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_8Web-5c9003a546e0fb000187a367.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Gannon Burgett
 
  When it arrived, the battery pack was roughly 50% charged according to the onboard battery life indicator. So, as we do with all battery packs we test, we drained it completely and charged it.
@@ -118,13 +116,24 @@ Lifewire / Gannon Burgett
 
  Something to keep in mind is charge times will vary greatly depending on how many devices are plugged in, the temperature, and whether or not you're using devices while they're charging.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: A little bit up there**
 
  The ChargeTech 27000mAh battery pack retails for $199\. Considering its capacity and included AC plugin, that's a reasonable price. Not to mention it was nice to know we had a full laptop charge on the go, because carrying around the large power adapter isn't exactly convenient.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Competition: Just that little bit extra**
 
  The ChargeTech's competition can be narrowed down to two main devices, the[Jackery PowerBar 77](https://www.lifewire.com/jackery-powerbar-battery-pack-review-4589480) and the Omars battery pack. All three devices include an integrated AC plugin and all three devices are within 5,000mAh of battery capacity.
@@ -141,9 +150,6 @@ Lifewire / Gannon Burgett
 
  In summary, if capacity is your priority in a charger that also has an integrated AC plugin, the ChargeTech 27,000 will get the job done. But it won't do it fast and it won't impress you along the way. In our testing, it kind of just hummed along, charging at an adequate pace with a standard feature set. The additional power adapter was a pain and something well worth considering if portability is a concern of yours.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [MaxOak 185Wh/50000mAh Battery Pack](https://www.lifewire.com/maxoak-185wh-50000mah-battery-pack-review-4589398)
@@ -151,8 +157,12 @@ Lifewire / Gannon Burgett
 * [JETSUN 16750mAh Solar Power Bank](https://www.lifewire.com/jetsun-16750mah-solar-power-bank-review-4690521)
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  27000mAh Portable AC Battery Pack
@@ -168,14 +178,11 @@ Lifewire / Gannon Burgett
 * Warranty  One year
 * Compatibility  Android, iOS, Windows, macOS, Linux
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -184,4 +191,26 @@ Lifewire / Gannon Burgett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-master-the-art-of-uploading-vimeo-to-instagram/"><u>[Updated] In 2024, Master the Art of Uploading Vimeo to Instagram</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-poco-m6-pro-5g-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Poco M6 Pro 5G by Name | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-premium-sound-with-beehive-earbuds/"><u>Affordable, Premium Sound with BeeHive Earbuds</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apex-review-the-dji-mavic-2-pro-unmatched-royalty-of-professional-drone-flight/"><u>Apex Review: The DJI Mavic 2 Pro - Unmatched Royalty of Professional Drone Flight</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-feed-how-to-make-it-yours/"><u>Decoding Facebook's Feed: How to Make It Yours</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decoding-pixel-slate-woes-a-deep-dive-into-chromeos-fiasco/"><u>Decoding Pixel Slate Woes: A Deep Dive Into ChromeOS Fiasco</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-latest-epson-l3110-printer-drivers-for-windows-11-10-and-7-download-now/"><u>Get the Latest Epson L3110 Printer Drivers for Windows 11, 10 & 7 – Download Now!</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-fix-oem-unlock-missing-on-lenovo-thinkphone-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Lenovo ThinkPhone?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-sony-xperia-5-v-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Sony Xperia 5 V Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Lava Yuva 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-acer-chromebook-r-11-fashionable-and-featherlight-tech/"><u>In-Depth Analysis of the Acer Chromebook R 11 - Fashionable & Featherlight Tech</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-of-the-mobvoi-ticwatch-pro-3-advanced-gps-tracking-and-extended-life-from-dual-display-technology/"><u>In-Depth Evaluation of the Mobvoi TicWatch Pro 3: Advanced GPS Tracking and Extended Life From Dual Display Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-the-charge-a-guide-to-the-most-outstanding-game-systems-of-2econd-quarter-century/"><u>Leading the Charge: A Guide to the Most Outstanding Game Systems of 2Econd Quarter-Century</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/master-builders-rejoice-in-depth-analysis-of-the-captivating-city-planner-game/"><u>Master Builders Rejoice: In-Depth Analysis of the Captivating City Planner Game</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/optimize-windows-11-easy-wi-fi-deletion-guide/"><u>Optimize Windows 11: Easy Wi-Fi Deletion Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/pioneering-photo-printing-websites-top-10-to-watch/"><u>Pioneering Photo Printing Websites: Top 10 to Watch</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-next-big-thing-in-gaming-playstation-portable-release-schedule-cost-estimates-device-details-and-where-to-shop/"><u>The Next Big Thing in Gaming: PlayStation Portable - Release Schedule, Cost Estimates, Device Details & Where to Shop</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-truth-an-experts-take-on-viber-out/"><u>Unveiling the Truth: An Expert's Take on Viber Out</u></a></li>
+<li><a href="https://discover-help.techidaily.com/1726029479306-swfmov/"><u>シンプルな手順でSWFを動画形式Movにアップコンバートする方法</u></a></li>
+</ul></div>
 

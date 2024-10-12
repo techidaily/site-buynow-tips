@@ -1,7 +1,7 @@
 ---
 title: "Razer's Mighty Compact: The Ultimate Review of the Razer Book 13"
-date: 2024-10-01T16:50:24.357Z
-updated: 2024-10-07T01:36:57.604Z
+date: 2024-10-08T21:15:58.699Z
+updated: 2024-10-12T21:09:45.782Z
 categories:
   - BestProducts
 description: "This Article Describes Razer's Mighty Compact: The Ultimate Review of the Razer Book 13"
@@ -40,9 +40,23 @@ Lifewire / Andrew Hayward
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## LG Gram 15.6-inch (2018)
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/R_aYhYLFGT6--hIRDTNUJTlIVn8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_hero-Square-f2b4744360d644a1b93b7541af7eb182.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -97,13 +111,6 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/1qu1WvdEgTzjUQ8QH_Lssx79xF0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Trackpad_05-f0d9dc63b03e4650a92e30747090889a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 ## **Setup Process: Just follow the directions**
@@ -119,6 +126,13 @@ Lifewire / Andrew Hayward
  The downside is that this 1920x1080 IPS LCS panel isn't nearly as high-resolution as some of its rivals, such as the MacBook Air (2560x1600) and Surface Laptop 2 (2256x1504)—both of which also benefit from squeezing their pixels into smaller respective frames. The LG Gram just doesn't have the pin-sharp allure of those screens, plus it looks dimmer and doesn't come across as vibrant as a result. It's solid, and 1080p can certainly get the job done, but there are much better-looking screens in this category.
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/TFbt9G36hk5JyrBL8cIdIuYQ66E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Keyboard_03-fd7e355ac5944f12a8107746d0afbf24.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -146,20 +160,19 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/AhDZOG33ttJ8LfKQnzvHO7K-S8I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Closed_02-d40445064b4945729278aeae3d8ae1c0.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Battery: Seriously amazing**
@@ -170,18 +183,24 @@ Lifewire / Andrew Hayward
 
  With our typical workflow of browsing the web, chatting on Slack, typing up documents, and streaming a little bit of media, we typically saw 8-9 hours of uptime at 100% brightness.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software: Hello, Windows (but no Windows Hello)**
 
  The LG Gram 15.6-inch comes with Windows 10 Home preinstalled, and if you've used Windows over the years, then you should be pretty comfortable here. Windows 10 has lightly evolved the PC operating system with feature enhancements and tweaks without losing the classic, familiar DNA within, and it's the OS of choice for computer gaming and apps of all shapes and sizes. It's easy to use and understand, and runs well with the Intel Core i5 and an SSD onboard.
 
  Unfortunately, this entry-level model of the LG Gram 15.6-inch isn't able to take advantage of Windows Hello biometric security, as the camera above the display doesn't have the needed sensors for scanning your face. We missed the near-instantaneous facial recognition of the Surface Laptop 2, and having to type in a PIN number each time we opened up the lid. Pricier models of the laptop offer a fingerprint scanner, however.
+
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Solidly priced, considering its strengths**
 
@@ -194,16 +213,10 @@ Lifewire / Andrew Hayward
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **LG Gram 15.6-inch (2018) vs. Microsoft Surface Laptop 2: Better than Microsoft's own?**
@@ -219,13 +232,6 @@ Lifewire / Andrew Hayward
 **Well-built for productivity.**
 
  There are better all-around ultraportable laptops in this price range, and we had some issues with the feeling of the build, the keyboard layout, and the merely good display quality. However, if you're in the market for an incredibly light laptop with a big screen and a battery that lasts and lasts, it's hard to ignore the LG Gram 15.6-inch (2018). You get a very capable computer for the price, and it's a notebook that can legitimately last through a full workday even at max brightness.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -259,21 +265,18 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-which-is-superior-for-screen-recording-obs-studio-or-fraps-for-2024/"><u>[New] Which Is Superior for Screen Recording – OBS Studio or Fraps for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-best-methods-to-try-for-changing-playback-speed-in-spotify/"><u>[Updated] Best Methods to Try for Changing Playback Speed in Spotify</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-transform-your-hdr-images-into-professional-grade-time-lapses-with-gopro-studio-for-2024/"><u>[Updated] Transform Your HDR Images Into Professional-Grade Time Lapses with GoPro Studio for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-auditory-storytelling-in-cinematic-openings/"><u>2024 Approved Auditory Storytelling in Cinematic Openings</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-top-10-accelerating-yt-channels-for-intellectual-enlightenment/"><u>2024 Approved Top 10 Accelerating YT Channels for Intellectual Enlightenment</u></a></li>
-<li><a href="https://win11.techidaily.com/elevate-w11s-notepad-through-intelligent-assistance/"><u>Elevate W11's Notepad Through Intelligent Assistance</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-how-to-reverse-youtube-video-in-creative-ways/"><u>In 2024, How to Reverse YouTube Video in Creative Ways</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-tech-triumphs-cutting-edge-vr-devices-reviewed/"><u>In 2024, Tech Triumphs Cutting-Edge VR Devices Reviewed</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/no-internet-connection-despite-wi-fi-signal-top-10-solutions-for-windows-11-users/"><u>No Internet Connection Despite Wi-Fi Signal: Top 10 Solutions for Windows 11 Users</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-portable-powerhouse-uncovering-the-hidden-value-of-sandisks-player/"><u>The Portable Powerhouse: Uncovering the Hidden Value of SanDisk's Player</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-aukey-usb-30-hub-a-blend-of-style-and-speed-reviewed/"><u>The Ultimate Guide to the Aukey USB 3.0 Hub – A Blend of Style & Speed Reviewed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-review-for-chargetechs-long-lasting-27000mah-battery-solution/"><u>Top Review for ChargeTech's Long-Lasting 27000mAh Battery Solution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-havit-5-pc-desktop-tower-with-rgb-lighting-expert-analysis-and-performance-insights/"><u>Ultimate HAVIT #5 PC Desktop Tower with RGB Lighting - Expert Analysis and Performance Insights</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unbeatable-prime-day-offers-on-benq-monitors-and-projector-technology/"><u>Unbeatable Prime Day Offers on BenQ Monitors and Projector Technology</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unleash-the-power-of-nature-on-your-screen-the-durable-55-inch-veranda-tv-by-sunbrite/"><u>Unleash the Power of Nature on Your Screen - The Durable 55-Inch Veranda TV by SunBrite</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-potential-of-the-aeious-ny-portable-solar-generator-your-reliable-pure-sine-wave-inverter-partner-in-healthcare-environments/"><u>Unveiling the Potential of the Aeious Ny Portable Solar Generator - Your Reliable Pure Sine Wave Inverter Partner in Healthcare Environments</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-adopting-hdri-for-superior-visual-storytelling-in-video-arts/"><u>[New] 2024 Approved Adopting HDRI for Superior Visual Storytelling in Video Arts</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-stream-vs-record-deciding-on-obs-studio-or-bandicam-for-2024/"><u>[New] Stream vs Record Deciding on OBS Studio or Bandicam for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-roadmap-to-building-stellar-podcast-rss-feeds/"><u>[New] The Roadmap to Building Stellar Podcast RSS Feeds</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-avoiding-fakes-instagram-selfie-wisdom/"><u>[Updated] Avoiding Fakes Instagram Selfie Wisdom</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-amass-a-thousand-tactics-for-monthly-instagram-following/"><u>[Updated] In 2024, Amass a Thousand Tactics for Monthly Instagram Following</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/beyond-the-norm-logitech-g533-reverberates-in-wireless-tech/"><u>Beyond the Norm: Logitech G533 Reverberates in Wireless Tech</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/breaking-down-the-features-of-the-top-tier-new-phone-an-apple-iphone-12-review/"><u>Breaking Down the Features of the Top-Tier New Phone: An Apple iPhone 12 Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-apeman-c450-dash-cam-comprehensive-review-and-ratings/"><u>Budget-Friendly Apeman C450 Dash Cam - Comprehensive Review and Ratings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-hp-stream-14-in-focus-navigating-the-tradeoffs-of-an-affordable-windows-machine/"><u>Budget-Friendly HP Stream 14 in Focus - Navigating the Tradeoffs of an Affordable Windows Machine</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/caixuns-budget-75-inch-4k-smart-television-evaluation-performance-breakdown/"><u>Caixun's Budget 75-Inch 4K Smart Television Evaluation - Performance Breakdown</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-look-at-the-amazon-basics-tablet-support-a-handy-accessory-you-can-carry-anywhere/"><u>Comprehensive Look at the Amazon Basics Tablet Support: A Handy Accessory You Can Carry Anywhere</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-oppo-a18-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Oppo A18 | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-stolen-iphone-x-in-different-conditionsin-by-drfone-ios/"><u>How To Unlock Stolen iPhone X In Different Conditionsin</u></a></li>
 </ul></div>
 

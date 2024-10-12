@@ -1,7 +1,7 @@
 ---
 title: In-Depth Look at Google's Pixel Slate - The Troubled ChromeOS Journey
-date: 2024-08-22T18:03:48.410Z
-updated: 2024-08-23T18:03:48.410Z
+date: 2024-10-10T21:52:30.087Z
+updated: 2024-10-12T19:36:14.908Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Look at Google's Pixel Slate - The Troubled ChromeOS Journey
@@ -40,9 +40,29 @@ Lifewire/Jeremy Laukkonen
 
 4.4
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Apple iMac 24-inch (2021)
 
 ![Apple iMac M1 (2021)](https://www.lifewire.com/thmb/BAI9YNWyjZ6YgKDJefSHpykeO4g=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iMacM12021_hero_1-SQ-5394e13bec9349e18a0eebd97ce4b3e4.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire/Jeremy Laukkonen
 
@@ -77,8 +97,12 @@ Lifewire/Jeremy Laukkonen
  Over the course of my month with the M1 iMac, I specifically tested things like network performance and gaming benchmarks, but I also used it for work, media, voice and video calls, and gaming. There were a few instances where I had to fall back to my Windows rig, specifically for unsupported games, but the M1 iMac handled just about every other task without issue.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Design: Colors are back, and they look better than ever
 
  Apple could have taken the easy route and just swapped the M1 hardware into the existing iMac line, but the M1 iMac represents a total redesign from the ground up. The basic look is fairly similar, but the new design has cleaner lines, a uniformly thin body, thinner screen borders, and comes in a variety of attractive colors.
@@ -99,23 +123,24 @@ Lifewire/Jeremy Laukkonen
 
 ![Apple iMac M1 (2021)](https://www.lifewire.com/thmb/UXQsm7-2bXrWZaRKJCYnriKsm2Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iMacM12021_5-6ad0711fc0d04f55b6f77624fb1479af.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire/Jeremy Laukkonen
 
  Regardless of which model you’re looking at, the bottom line is the 2021 iMac doesn’t have enough ports. The four Thunderbolt and USB-C ports found on the higher-end model aren’t enough, and the paltry two ports you get with the lower-end model definitely fall short. Expect to invest in a USB-C hub if you don’t already have one.
 
  While the jump to Apple silicon is the biggest story here, Apple really hit the design out of the park as well. This is an all-in-one that looks great from every angle. It’s a shame it’s held back by a few small issues, like a baffling lack of ports, but that doesn’t stop it from looking great on your desk.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Display: Beautiful 24-inch retina display
 
  Apple bumped the screen size from 21.5 inches to 24 inches for the M1 iMac refresh, and the difference is remarkable. Apple refers to the panel as a 4.5K[Retina display](https://www.lifewire.com/what-is-retina-display-2000362) , which translates to a resolution of 4480 x 2520 and a pixel density of 218ppi in terms of hard numbers.
 
  Colors also look fantastic, as the display covers the entire[DCI-P3 gamut](https://www.lifewire.com/what-is-true-tone-display-4048131) , and it’s quite bright as well. I found myself running it at about 60 percent most of the time, despite the big, south-facing windows in my office.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Performance: The M1 chip continues to impress
 
@@ -135,14 +160,6 @@ Lifewire/Jeremy Laukkonen
 
  While I had to go back to my Windows machine for most of my gaming due to a lack of compatibility, the iMac performed surprisingly well in the games I did play. I was particularly impressed with how well it ran[Final Fantasy 14](https://www.lifewire.com/what-is-final-fantasy-4157832) , which doesn’t have a native M1 client. I was able to squeeze out 30 FPS with relatively high settings and main tank runs of both Tower at Paradigm’s Breach and Delubrum Reginae without incident.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ## Productivity: Pro users may want to hold off, but the M1 iMac is ready for work
 
  Apple’s powerful M1 chip and a big 4.5K display combine to turn the 2021 iMac into a productivity powerhouse. I used it for my main work machine for about a month without incident, primarily for word processing, image editing, and other productivity tasks. I especially appreciated the size and resolution of the display for image editing. Although I don’t have any specific need for the pro-level wide color gamut, it’s there for those who do require it.
@@ -155,16 +172,10 @@ Lifewire/Jeremy Laukkonen
 
 ![Apple iMac M1 (2021)](https://www.lifewire.com/thmb/M5SVrQdMYUOt-gMWcR5czP6dNlc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iMacM12021_2-c80d821c9b544a8e939ebba9d01b49ba.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 Lifewire/Jeremy Laukkonen
 
  The Magic Mouse 2 that comes with the M1 iMac is the same mouse that’s been around since 2015, with one minor tweak. The glass top is still while, but the sides and bottom are color-matched to your iMac. The lightning charger connector is still inexplicably located on the bottom, so you can’t use it while charging, and it feels uncomfortably small in my hand.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Audio: Excellent built-in speakers and decent Bluetooth for wireless headphones
 
  The 2021 iMac packs in a surprisingly competent six-speaker system, with support for spatial audio, into its thin frame. I’m a habitual headphone-and-earbud user, but I found the built-in speakers to be more than adequate in a pinch.
@@ -175,13 +186,17 @@ Lifewire/Jeremy Laukkonen
 
 ![Apple iMac M1 (2021)](https://www.lifewire.com/thmb/2aQbf-BzdAnbs61RJL_5e7pUGzw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iMacM12021_4-92a8c431947c41c382624699198b96ff.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire/Jeremy Laukkonen
 
  If you do want to use headphones, the 2021 iMac features an audio jack on the left side of the frame. It also has built-in Bluetooth connectivity, so you can hook up your favorite pair of headphones.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## Network: Great speeds over Ethernet and Wi-Fi 6
 
  The 2021 M1 iMac doesn’t have a built-in Ethernet connection, but some models do come with an Ethernet connection in the power brick. Every version supports[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) though, with backwards compatibility to[Wi-Fi 5](https://www.lifewire.com/wireless-standards-802-11a-802-11b-g-n-and-802-11ac-816553) if you haven’t upgraded your router yet. I spent most of my time with the iMac connected to an Eero Wi-Fi 5 network that I use because range is more important to me than speed, but I also tested it on a Wi-Fi 6 network and with an Ethernet adapter.
@@ -189,6 +204,13 @@ Lifewire/Jeremy Laukkonen
  Network speeds were excellent, across the board, compared to other devices I’ve used and tested.
 
  In addition to Wi-Fi and wired connections, the M1 iMac also features[Bluetooth 5.0](https://www.lifewire.com/bluetooth-5-4160255) . The Bluetooth connection is primarily used to connect the Magic Keyboard and Magic Mouse 2, but I also used it with a pair of AirPods Pro and my Avantree Ario Podio headphones. Sound quality and range were both excellent thanks to the Bluetooth 5.0 support, and I was able to listen to music and podcasts throughout my house.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Camera: 1080P FaceTime camera
 
@@ -204,16 +226,19 @@ Lifewire/Jeremy Laukkonen
 
  Photoshop and other popular apps are slated to eventually get M1 support, but I’ve found Rosetta 2 to deliver more than acceptable performance in the meantime.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What’s New: Apple’s M1 chip and a visual refresh
 
  The iMac (2021) has received a laundry list of changes and updates since the last entry in the line back in 2016\. The biggest news is the inclusion of Apple silicon in the form of the M1 chip, but that’s only the tip of the iceberg.
 
  The overall design of the M1 iMac has been significantly revamped. Colors are back, and it has a 24-inch display, increased from 21.5-inch, despite the overall form factor being very similar. The speakers, microphone, and camera have all received big improvements as well, with the camera having been updated from a mediocre 720p shooter to a full HD 1080p sensor backed up by advanced image processing.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## Price: Expensive, but built to last
 
  With an MSRP of $1,299.00 for the base model, and prices just going up from there, the M1 iMac is undeniably expensive. You can get a 24-inch Windows all-in-one for a lot less than that, but the iMac justifies its price with superior capabilities and styling. The combination of convenience and power makes this well worth the price tag.
@@ -222,9 +247,6 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
 Lifewire/Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## M1 iMac (2021) vs. M1 Mac mini
 
  This might seem like an odd comparison, but it’s an important one. The 2021 iMac and 2020 Mac mini have very similar hardware, with the major difference being the iMac is an all-in-one with a beautiful display, while the Mac mini doesn’t have a built-in display.
@@ -272,8 +294,6 @@ Lifewire/Jeremy Laukkonen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -281,4 +301,20 @@ Lifewire/Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/n-2024-excellent-7-dslrs-elevating-live-stream-cinematic-style/"><u>[New] In 2024, Excellent 7 DSLRs Elevating Live-Stream Cinematic Style</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-streammastery-101-the-beginners-path-to-livestrancing-podcasts/"><u>[New] StreamMastery 101 The Beginner's Path to Livestrancing Podcasts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-transform-your-memories-into-engaging-facebook-slides-for-2024/"><u>[New] Transform Your Memories Into Engaging Facebook Slides for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-advancing-photo-quality-on-snapchat-via-zoom/"><u>[Updated] Advancing Photo Quality on Snapchat via Zoom</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/1-mastering-the-art-of-downloading-pinset-videos-a-comprehensive-guide/"><u>1. Mastering the Art of Downloading Pinset Videos: A Comprehensive Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/crafting-perfect-shots-the-ultimate-list-of-zooming-editors-for-2024/"><u>Crafting Perfect Shots The Ultimate List of Zooming Editors for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/demystifying-the-technology-behind-gpt-4all-insights-into-its-design-and-operation/"><u>Demystifying the Technology Behind GPT- 4All: Insights Into Its Design and Operation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unparalleled-quality-affordable-meet-the-akaso-ek7000/"><u>Unparalleled Quality, Affordable - Meet the AKASO EK7000</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-pixelation-problems-and-acoustic-reflections-in-the-genius-widecam-f100-a-complete-review/"><u>Unveiling Pixelation Problems & Acoustic Reflections in the Genius WideCam F100: A Complete Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-features-a-detailed-review-of-the-samsung-q60r-series-4k-gaming-smart-tv/"><u>Unveiling the Features: A Detailed Review of the Samsung Q60R Series 4K Gaming Smart TV</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/viair-e88p-portable-compressor-overview-impressive-strengths-and-manageable-weaknesses/"><u>Viair E88p Portable Compressor Overview - Impressive Strengths and Manageable Weaknesses</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/what-to-look-for-in-a-gaming-pc/"><u>What to Look For in a Gaming PC</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/x-chair-x4-unveiled-why-its-a-solid-investment-for-your-business-seating-needs/"><u>X-Chair X4 Unveiled: Why It's a Solid Investment for Your Business Seating Needs</u></a></li>
+</ul></div>
 
