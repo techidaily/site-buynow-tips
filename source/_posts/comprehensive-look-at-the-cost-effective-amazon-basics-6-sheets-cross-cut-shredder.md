@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Look at the Cost-Effective Amazon Basics 6-Sheets Cross-Cut Shredder
-date: 2024-10-08T19:27:56.284Z
-updated: 2024-10-12T16:51:09.836Z
+date: 2024-10-16T18:01:18.891Z
+updated: 2024-10-18T18:52:39.504Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Look at the Cost-Effective Amazon Basics 6-Sheets Cross-Cut Shredder
@@ -37,6 +37,13 @@ Lifewire / Todd Braylor
 
 3.8
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
@@ -63,16 +70,10 @@ Lifewire / Todd Braylor
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design:** **A bit cheap**
@@ -85,13 +86,6 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Easy installation**
 
  The S55 is straightforward and easy to install. Simply stick the windshield mount in place and plug the SmartCord lighter adapter into your car's DC cigarette lighter input. Plugging the modular jack into the S55 will automatically power on the radar detector and you can quickly customize settings for display brightness, detector sensitivity levels, and volume. Then you're ready to hit the road.
@@ -99,10 +93,10 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: Impressive detection**
@@ -110,13 +104,6 @@ Lifewire / Todd Braylor
  The Passport S55 features Enhanced Radar Protection that delivers long-distance range for laser and radar bands, including K and Ka bands, widely used microwave frequencies for police radar guns. It reliably delivers on its promise of long-distance sensitivity. While testing the S55 in Highway mode I received Ka-band alerts over a mile and a half out from where I approached a highway patrol parked on the median of the interstate. This range was on par with much more expensive models.
 
  It reliably delivers on its promise of long-distance sensitivity.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Not exactly enhanced**
 
@@ -131,6 +118,13 @@ Lifewire / Todd Braylor
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
@@ -173,20 +167,16 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-best-app-for-gamers-fraps-vs-obs-studio-review/"><u>[Updated] Best App for Gamers Fraps Vs. OBS Studio Review</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-logging-live-audio-on-the-go-a-user-friendly-manual/"><u>[Updated] Logging Live Audio On-the-Go A User-Friendly Manual</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-quick-kinemaster-techniques-for-memelore-for-2024/"><u>[Updated] Quick KineMaster Techniques for Memelore for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amazon-basics-tablet-stand-review-toss-a-tablet-stand-in-your-pocket/"><u>Amazon Basics Tablet Stand Review: Toss A Tablet Stand In Your Pocket</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/best-value-ergonomic-keyboards-reviewed-why-fellowes-microban-is-leading-on-a-limited-budget/"><u>Best Value Ergonomic Keyboards Reviewed: Why Fellowes Microban Is Leading on a Limited Budget</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/bluetooth-revolution-on-the-road-how-lihan-lhfm1039-enhances-your-car-audio-experience/"><u>Bluetooth Revolution on the Road: How LIHAN LHFM1039 Enhances Your Car Audio Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/budget-friendly-powerhouse-a-review-of-dell-g5-5090s-exceptional-performance-and-wide-range-of-features/"><u>Budget-Friendly Powerhouse: A Review of Dell G5 5090'S Exceptional Performance & Wide Range of Features</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/compact-convenience-the-ultimate-guide-to-the-new-and-improved-echo-dot-3rd-gen/"><u>Compact Convenience: The Ultimate Guide to the New and Improved Echo Dot (3Rd Gen)</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comparing-apples-latest-marvels-iphone-15-pro-vs-pro-max-which-one-reigns-supreme/"><u>Comparing Apple's Latest Marvels: IPhone 15 Pro Vs. Pro Max – Which One Reigns Supreme?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-sony-playstation-5s-advanced-capabilities/"><u>Comprehensive Evaluation of the Sony PlayStation 5'S Advanced Capabilities</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-is-the-alienwoare-aurora-r7-worth-its-premium/"><u>Comprehensive Evaluation: Is the Alienwoare Aurora R7 Worth Its Premium?</u></a></li>
-<li><a href="https://driver-download.techidaily.com/find-and-download-the-official-samsung-m2020-printing-software-here/"><u>Find and Download the Official Samsung M2020 Printing Software Here</u></a></li>
-<li><a href="https://article-tips.techidaily.com/ideal-beginner-vlogging-gear-for-kids-in-wet-weather/"><u>Ideal Beginner Vlogging Gear for Kids in Wet Weather</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/innovative-virtual-engagement-harnessing-the-power-of-zoom-in-gmail/"><u>Innovative Virtual Engagement Harnessing the Power of Zoom in Gmail</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/navigating-the-world-of-videomosaic-androids-8-freepaid-selection/"><u>Navigating the World of Videomosaic Android's #8-Free/Paid Selection</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-profile-makeover-tips-for-an-updated-tiktok-presence/"><u>[New] In 2024, Profile Makeover Tips for an Updated TikTok Presence</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagrams-icons-navigating-through-its-leading-25-stars-for-2024/"><u>[New] Instagram's Icons Navigating Through Its Leading 25 Stars for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-premier-hashtags-monitoring-on-facebook-twitter-and-instagram/"><u>[Updated] Premier Hashtags Monitoring on Facebook, Twitter & Instagram</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-rhythmic-resonance-harmony-for-visuals/"><u>In 2024, Rhythmic Resonance Harmony for Visuals</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-apple-homepod-mini-sound-quality-and-smart-assistant-capabilities/"><u>In-Depth Analysis of the Apple HomePod Mini: Sound Quality & Smart Assistant Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-vive-cosmos-excellent-vr-experience-amidst-strong-rivals/"><u>In-Depth Analysis of the Vive Cosmos: Excellent VR Experience Amidst Strong Rivals</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/inside-the-revolutionary-raspberry-pi-400-keyboard-computer/"><u>Inside the Revolutionary Raspberry Pi 400 Keyboard Computer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-it-worth-it-a-deep-dive-into-the-cost-vs-performance-of-alienware-aurora-r7/"><u>Is It Worth It? A Deep Dive Into the Cost vs Performance of Alienware Aurora R7</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-voice-assistants-and-smart-speaker-picks-for-the-year-2ebrity-2024/"><u>Leading Voice Assistants and Smart Speaker Picks for the Year 2Ebrity 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1726027907048-gif/"><u>キャンバスから生まれるポップなビジュアル - GIFの効果的活用術</u></a></li>
 </ul></div>
 

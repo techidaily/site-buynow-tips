@@ -1,7 +1,7 @@
 ---
 title: Reliable, Quality-Packed in the ELPH 190 Camera
-date: 2024-08-15T09:55:02.508Z
-updated: 2024-08-16T09:55:02.508Z
+date: 2024-10-14T18:52:16.040Z
+updated: 2024-10-18T17:15:24.183Z
 categories:
   - BestProducts
 description: This Article Describes Reliable, Quality-Packed in the ELPH 190 Camera
@@ -39,14 +39,15 @@ Lifewire / Sandra Stafford
 4.6
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## LG 24LH4830-PU 24-Inch Smart LED TV
 
 ![LG 24LH4830 Smart TV](https://www.lifewire.com/thmb/rjWP_C69FQaHdqBmPYf6t-Ym9H8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4061017-LGElectronics24LH4830-PU24-InchSmartLEDTV2016Model-HeroSquare-2a3c1c2685b547faa6a95debb91fd718.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 
 Lifewire / Sandra Stafford
 
@@ -69,9 +70,6 @@ Lifewire / Sandra Stafford
 
  With all the buzz about the biggest, best TVs on the market, it can be difficult to find anyone talking about smaller options like the LG 24-inch LH4830.[Smart TVs](https://www.lifewire.com/what-is-a-smart-tv-4140172) at this budget price point don’t offer as many features as larger, more expensive televisions, but all of that functionality is wasted if the TV won’t fit into your space. I tested the LH4830 for weeks in my cramped kitchen to see if a little TV like the LH4830 could still add a lot of value and compared it to other TVs on our list of the best cheap TVs.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Decidedly minimalist**
 
  There is nothing flashy about the LG 24-inch LH4830\. Half-inch bezels on three sides of the screen create a clean, modern shape that stops just short of being boxy. Edge to edge panels aren’t an option at this price point, where a costly design would cut into more meaningful additions, like better resolution or speakers.
@@ -79,6 +77,13 @@ Lifewire / Sandra Stafford
  The stand takes under a second to attach to the TV, sliding into place with a snap. With a depth of 2.1 inches without the sand, this television is suitable for wall mounting. After testing primarily in the kitchen, I turned it into a second monitor that can be tucked against the wall when not in use or returned to its TV functionality when guests are visiting.
 
 ![LG 24LH4830 Smart TV](https://www.lifewire.com/thmb/nXJoYyubvcUPiVfJUWhITECGHww=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4061017-LGElectronics24LH4830-PU24-InchSmartLEDTV2016Model-04-47b70d6fa03e4bc6bd4da8edf6085220.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Sandra Stafford
 
@@ -94,6 +99,13 @@ Lifewire / Sandra Stafford
 
  Whether switching between apps or closing apps, we didn't have any problem with crashing or latency.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Image Quality: Perfect resolution for a small screen**
 
  The display of the LH4830 is[720p](https://www.lifewire.com/720p-1080i-1080p-explained-3276378) , and that’s all anyone could need at this size. The picture looks perfectly clear, with no significant blurring or smearing. Even during_Avengers: Infinity War_ , a movie with numerous lengthy fight scenes, the TV was able to deliver a fairly crisp picture. The color is just as beautiful on this small model as on LG’s larger televisions, with a rich vibrancy to the green of Gamora’s skin and the dark, beautiful tones of Vormir.
@@ -103,16 +115,17 @@ Lifewire / Sandra Stafford
  The LH4830 can be calibrated by a technician with two ISF expert modes, and it has several preset modes that will be plenty for most other users. The Cinema mode was ideal when I tested the TV in my kitchen, with a warm color temperature that is easier on the eyes and looks better in the evening. While cooking, I would turn the picture mode to Game and play rounds of Super Smash Bros. Ultimate. The Game mode’s latency reduction and motion handling are great for such a budget TV.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Audio Quality: Underpowered speakers**
 
  The LH4830 has two 5W speakers that do their best to deliver virtual[surround sound](https://www.lifewire.com/720p-1080i-1080p-explained-3276378) . The audio quality is adequate for a TV of this size, but not great. Even with auto volume leveling, soft sounds like whispering are often lost, requiring that the volume be frequently adjusted. Background noise like a dishwasher or air conditioner is going to be enough to drown out the volume of these underpowered speakers. All of that said, I can’t criticize the LH4830 too much. Very few TVs wouldn’t benefit from a dedicated speaker system or soundbar, especially at this price point.
 
 ![LG 24LH4830 Smart TV](https://www.lifewire.com/thmb/BCLpbJ0Nr9vB4BBQjei4aC_jzg8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4061017-LGElectronics24LH4830-PU24-InchSmartLEDTV2016Model-02-17f260630f0749ea8529daf9a13c3c01.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 
  Lifewire / Sandra Stafford
 
@@ -121,9 +134,6 @@ Lifewire / Sandra Stafford
  After setup, the LH4830 goes automatically to the LG Content Store. The LG Content Store does have apps like Netflix and YouTube, but the selection other than those is seriously limited. Other LG televisions do have access to the Hulu app, so we assume that it will be added to this one in a later update, but if Hulu is a must, then this is not the right choice. As a secondary television, the loss of Hulu isn't a big deal. The television is compatible with[Roku and Apple TV](https://www.lifewire.com/best-devices-to-buy-for-streaming-tv-4061016) , though, so you can work around the lack of app support.
 
 ![LG 24LH4830 Smart TV](https://www.lifewire.com/thmb/gUelIOzwsKr5o2f2yWumqzKIomI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4061017-LGElectronics24LH4830-PU24-InchSmartLEDTV2016Model-03-3f829dc8cb05440ea4c8cf67f706694f.jpg)
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Sandra Stafford
 
@@ -132,6 +142,19 @@ Lifewire / Sandra Stafford
  A look at the competition of smart TVs under 24 inches shows that the LH4830 is fairly priced for what it offers. For around $140, it's a well-made smart TV running on a very stable operating system. The wide-angle panel and small size allow it to be effectively used in a great variety of small spaces, and on a screen this size it doesn't make sense to pay for much better quality.
 
  For around $140, it's a well-made smart TV running on a very stable operating system.
+
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **LG 24LH4830 vs. VIZIO D24F-G1**
 
@@ -143,9 +166,6 @@ Lifewire / Sandra Stafford
 
  The LG 24LH4830 brings a lot of functionality to an undersized part of the TV market. With a wide viewing panel that shows bright, true color no matter where you are in the living room, it’s the perfect choice for TVs that need to fit into small spaces.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  24LH4830-PU 24-Inch Smart LED TV
@@ -157,14 +177,11 @@ Lifewire / Sandra Stafford
 * Warranty  1 year
 * Compatibility  Roku, Apple Play
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,4 +190,26 @@ Lifewire / Sandra Stafford
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-make-asmr-videos-a-complete-guide/"><u>[New] 2024 Approved How to Make ASMR Videos A Complete Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-pathway-to-popularity-on-instagram-from-zero-to-a-thousand-in-30-days/"><u>[Updated] 2024 Approved The Pathway to Popularity on Instagram From Zero to a Thousand in 30 Days</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-vivo-y78t-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Vivo Y78t | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-users-journey-with-arlo-navigating-advanced-home-defense-features/"><u>A User's Journey with Arlo: Navigating Advanced Home Defense Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/asus-chromebook-flip-c302ca-breaking-down-its-cheap-price-tag-and-exceptional-features/"><u>Asus Chromebook Flip C302CA: Breaking Down Its Cheap Price Tag and Exceptional Features!</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/boost-your-productivity-innovative-uses-of-chatgpt-in-excel-workflows/"><u>Boost Your Productivity: Innovative Uses of ChatGPT in Excel Workflows</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-elegant-ergonomics-with-the-flexispot-theodore-adjustable-standing-desk-review/"><u>Experience Elegant Ergonomics with the Flexispot Theodore Adjustable Standing Desk Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-advancements-how-the-apple-iphone-12-redefines-excellence/"><u>Exploring the Advancements: How the Apple iPhone 12 Redefines Excellence</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/high-end-or-overpriced-a-comprehensive-review-of-the-samsung-un65nu8000fxza-smart-tv/"><u>High-End or Overpriced? A Comprehensive Review of the Samsung UN65NU8000FXZA Smart TV</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-se-2022-to-windows-10-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone SE (2022) to Windows 10? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/innovative-sound-technology-leading-earbuds-2024/"><u>Innovative Sound Technology - Leading Earbuds, 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/kids-mirari-alarm-clock-evaluation-the-ultimate-guide/"><u>Kids' Mirari Alarm Clock Evaluation: The Ultimate Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/mastering-screen-recording-with-movavis-freecam-ultimate-tutorial-for-seamless-screenshot-and-video-creation/"><u>Mastering Screen Recording with Movavi's FreeCam: Ultimate Tutorial for Seamless Screenshot and Video Creation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-the-print-process-advanced-photoshop-tips-and-tricks/"><u>Navigating the Print Process: Advanced Photoshop Tips and Tricks</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/solve-your-itunes-setup-problems-quickly-top-tips-for-a-successful-windows-installation/"><u>Solve Your iTunes Setup Problems Quickly – Top Tips for a Successful Windows Installation</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/step-into-professionalism-aiseesofts-screen-recording-made-accessible/"><u>Step Into Professionalism Aiseesoft's Screen Recording Made Accessible</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-perfect-picture-experience-with-lgs-65-oled-c9-4k-smart-tv-a-review-for-enthusiasts/"><u>The Perfect Picture Experience with LG's 65 OLED C9 4K Smart TV - A Review for Enthusiasts</u></a></li>
+<li><a href="https://android-frp.techidaily.com/the-updated-method-to-bypass-honor-play-8t-frp-by-drfone-android/"><u>The Updated Method to Bypass Honor Play 8T FRP</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-tips-for-preventing-pc-issues-with-frontier/"><u>Troubleshooting Tips for Preventing PC Issues with 'Frontier'</u></a></li>
+</ul></div>
 

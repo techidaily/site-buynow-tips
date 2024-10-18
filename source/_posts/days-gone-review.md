@@ -1,7 +1,7 @@
 ---
 title: Days Gone Review
-date: 2024-08-15T09:59:41.561Z
-updated: 2024-08-16T09:59:41.561Z
+date: 2024-10-13T17:15:26.940Z
+updated: 2024-10-18T17:15:30.330Z
 categories:
   - BestProducts
 description: This Article Describes Days Gone Review
@@ -39,15 +39,9 @@ thumbnail: https://www.lifewire.com/thmb/kmoPegHrh_nwZiRT3BwYg-cd9SU=/400x300/fi
 
 2.7
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Mobvoi TicWatch E2
 
 ![Mobvoi TicWatch E2](https://www.lifewire.com/thmb/m6uN8BF7na_BgK7uG5tlTXJUVGE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4048042_HeroSquare-7e25ae1c0a8f461dbfc03047ae303254.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -78,8 +72,12 @@ thumbnail: https://www.lifewire.com/thmb/kmoPegHrh_nwZiRT3BwYg-cd9SU=/400x300/fi
 Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design and Comfort: Nondescript, but the screen is great**
 
  The TicWatch E2 is a big, beefy smartwatch, with a 1.39-inch circular display surrounded by a black plastic bezel. There's a bit of detail in there, including a circular pattern on the fixed bezel and some slope to the lugs that attach to the bands, but it's all the same color and matte texture. Physically, the TicWatch E2 just doesn't stand out very much at all.
@@ -90,17 +88,11 @@ Lifewire / Andrew Hayward
 
  The case only has one physical button, on the right side of the case—pressing it quickly brings up the scrolling list of apps, while a sustained press pulls up the Google Assistant. The TicWatch E2 comes with a black silicone 22mm sport band, which you can swap out with other bands of the same size if you please. Despite its large size, the watch itself is incredibly lightweight, so it doesn't feel heavy on the wrist at all.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: No hassle at all**
 
  Setting up the TicWatch E2, like any recent Wear OS watch, is a straightforward process. Simply download the Wear OS app on your Android phone or iPhone and follow the steps within, which include pairing the watch, considering some settings, and ultimately getting up and running. It shouldn't take more than a few minutes in total.
 
 ![Mobvoi TicWatch E2](https://www.lifewire.com/thmb/t4sUe11h-gHM3ay_lmy4BHeuPcM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4048042_04-850d439e303b49fda5c69c166f5035de.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -116,9 +108,6 @@ Lifewire / Andrew Hayward
 
  Frustratingly, the phone also lost its connection to our phone (the Samsung Galaxy S10) on a semi-regular basis. We would try to access the Google Assistant and get an error message at times, as it couldn't connect to Google, or get a chunk of late-arriving notifications after the watch reconnected.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Battery: Solid uptime, but watch out for charging hitches**
 
  Mobvoi advertises 48-hour battery life, but that needs an asterisk next to it: you'll only come close to that mark if the always-on screen is disabled and you're not heavily using the GPS for fitness tracking. The always-on screen saps a fair bit of battery life, and you probably won't get deep into a second day on a single charge. With modest usage and the screen off when you're not looking at it, however, you should safely be able to skip the charger every other night.
@@ -128,6 +117,13 @@ Lifewire / Andrew Hayward
  We found this out the hard way, as our TicWatch E2 wouldn't pull any power from the cable in the days following our initial charge. We ordered a replacement watch and quickly experienced the same issue again. Ultimately, we realized that a less-powerful 5W charger—like the tiny charging blocks that ship with iPhones—was needed, and our third charging cable ultimately did the trick. That's a bit ridiculous, however, and Mobvoi could've avoided the problem altogether by just tossing a small power brick into the box.
 
 ![Mobvoi TicWatch E2](https://www.lifewire.com/thmb/qqjgkoPMGLDcHiZ42FTOqRzF8qk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4048042_02-53f95b3090b84e4f8d439ed6e82d9adf.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -154,8 +150,18 @@ Lifewire / Andrew Hayward
 Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **TicWatch E2 vs. Fitbit Versa**
 
  The TicWatch E2 and Fitbit Versa are two of the most notable current options when it comes to fitness-centered smartwatches that won’t break the bank. We prefer the larger screen and visual design of the TicWatch, although the slim build of the Fitbit Versa is better for fitness needs.
@@ -170,11 +176,25 @@ Lifewire / Andrew Hayward
 
  The Ticwatch E2 runs fluidly some of the time, the screen looks great, and the no-nonsense design is totally solid. It also works well as a fitness tracker, when you want it to. However, it frequently got bogged down during our testing, turning the simple act of bringing up apps or triggering the Google Assistant into an exercise in frustration. Add in the semi-regular disconnects from our phone and the charger debacle, and it just isn’t worth the price. Put your money towards a smartwatch that doesn't feel so compromised.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Samsung Galaxy Fit](https://www.lifewire.com/samsung-galaxy-fit-review-4766867)
 * [Samsung Galaxy Watch](https://www.lifewire.com/samsung-galaxy-watch-review-4769740)
 * [Fitbit Versa 2](https://www.lifewire.com/fitbit-versa-2-review-4797556)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -191,14 +211,11 @@ Lifewire / Andrew Hayward
 * Storage  4GB
 * Waterproof  5ATM
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -207,4 +224,22 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-comparative-analysis-of-tiktok-and-youtube-shorts-for-individual-content/"><u>[New] 2024 Approved Comparative Analysis of TikTok & YouTube Shorts for Individual Content</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-plunge-into-metaverse-top-8-high-tech-goggles-and-helmets/"><u>[New] 2024 Approved Plunge Into Metaverse Top 8 High-Tech Goggles & Helmets</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-guide-to-creating-unique-tiktok-cover-art/"><u>[New] Guide to Creating Unique TikTok Cover Art</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevating-brand-awareness-with-tailored-engaging-youtube-banners/"><u>[Updated] 2024 Approved Elevating Brand Awareness with Tailored, Engaging YouTube Banners</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-step-by-step-guide-to-stunning-collage-artistry/"><u>[Updated] Step-by-Step Guide to Stunning Collage Artistry</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/charting-out-future-friendly-phones-with-upgradable-possibilities/"><u>Charting Out Future-Friendly Phones with Upgradable Possibilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-the-mighty-radpower-radcity-5plus-bike-balancing-capability-with-weight-considerations/"><u>Experience the Mighty RadPower RadCity 5+ Bike – Balancing Capability with Weight Considerations</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-stars-the-outer-worlds-an-entertaining-science-fiction-adventure-game/"><u>Exploring the Stars: 'The Outer Worlds' - An Entertaining Science Fiction Adventure Game</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-vivo-y100i-power-5g-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Vivo Y100i Power 5G Device</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1722982041499-last-epoch-not-launching-on-pc-2024-fixes/"><u>Last Epoch Not Launching on PC - 2024 Fixes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/linkedin-advanced-features-examined-worth-or-not/"><u>LinkedIn Advanced Features Examined - Worth or Not?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/simplified-guide-to-stories-mechanics-for-2024/"><u>Simplified Guide to Stories' Mechanics for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/streaming-showdown-deciding-between-roku-and-fire-tv-stick-for-your-home-entertainment/"><u>Streaming Showdown: Deciding Between Roku and Fire TV Stick for Your Home Entertainment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/uncomplicated-multifaceted-camera-lumix-dc-fz80/"><u>Uncomplicated, Multifaceted Camera - Lumix DC-FZ80</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/king-the-power-of-hashtags-in-youtube-gaming-culture-for-2024/"><u>Unlocking the Power of Hashtags in YouTube Gaming Culture for 2024</u></a></li>
+</ul></div>
 

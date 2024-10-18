@@ -1,7 +1,7 @@
 ---
 title: "Samsung's Q60R: The Perfect Smart 4K TV for Gamers, Reviewed"
-date: 2024-10-06T19:56:58.815Z
-updated: 2024-10-12T21:49:02.086Z
+date: 2024-10-15T17:40:59.846Z
+updated: 2024-10-18T18:37:52.610Z
 categories:
   - BestProducts
 description: "This Article Describes Samsung's Q60R: The Perfect Smart 4K TV for Gamers, Reviewed"
@@ -44,6 +44,13 @@ Lifewire / Andy Zahn
 
 ![Insta360 One X2](https://www.lifewire.com/thmb/SA87_MJD5mJRnYY0t31c9ELFmlc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Insta360_One_X2_HeroSquare-80809b6088f0400baa121b1e7d14e4b1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Andy Zahn
 
 [View On Amazon $300](https://www.amazon.com/dp/B08M3B9754?tag=lifewire-onsite-prod-20&ascsubtag=5120402%7Cn5991ded260c043b49372f3c10028cf2500%7CB08M3B9754) [View On Best Buy $300](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6440817.p) [View On Adorama.com $300](https://www.adorama.com/ins3601xm2.html)
@@ -82,16 +89,22 @@ Lifewire / Andy Zahn
 
  Controls consist of a shutter button, power button, and circular touchscreen. An[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) light indicates the camera's status, and there is a standard tripod mount on the underside of the camera.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Setup Process: Mostly straightforward
 
  The One X2 came partially charged and ready to go once I inserted a[microSD card](https://www.lifewire.com/best-sd-cards-to-buy-4072362) , though first I had to install the Insta360 app on my phone and activate the camera. This turned out to be a bit of a pain, with the Bluetooth connection used to activate the One X2 and set up the Wi-Fi connection repeatedly timing out and failing. Eventually, I got it up and running, and aside from the one hiccup, the process was fairly smooth, if more complex than I’d typically expect from a camera.
+
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Image Quality: Good light a necessity
 
@@ -105,9 +118,23 @@ Lifewire / Andy Zahn
 
  One thing to remember about the One X2 is that its 5.7K recording resolution isn’t as sharp and detailed as you might expect, and when you crop down to a standard 16:9 frame you end up with[1080p](https://www.lifewire.com/what-the-term-1080p-means-1846837) . That’s good enough for viewing on a phone or small tablet, but the low resolution, as well as noise and image artifacts, become pretty significant when viewed on a large computer monitor.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Audio: Unimpressive overall
 
  The audio recording on the One X2 could be charitably described as mediocre. It’s there, and it’s useable, but in a camera that would otherwise be well suited to vlogging, given its portable size and ease of use, it's a little disappointing.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Storage Requirements: Hefty file size
 
@@ -129,13 +156,6 @@ Lifewire / Andy Zahn
 
  It’s also possible to take more control of your video editing on the computer via either Insta360's free editing studio software or via a plugin in Adobe Premiere. However, it was easier to get the shots I wanted by editing them on my phone via the app.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Accessories: A good amount of options
 
  A number of accessories are available for the Insta360 One X2\. These include, among others, a diving enclosure and a “bullet time” attachment used to twirl the One X2 around your head. It’s also a good idea to have a selfie stick to use with the One X2, and I found a tripod handy for recording timelapse videos.
@@ -143,22 +163,15 @@ Lifewire / Andy Zahn
 Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Price: Good value
 
  With an MSRP of $430, the One X2 is only a little more expensive than a high-end action camera, but it’s not bad for a 360 camera. It’s a good value if being able to shoot 360-degree video is a necessity for you.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Insta360 One X2 vs. GoPro Hero 9 Black
 
@@ -169,13 +182,6 @@ Lifewire / Andy Zahn
  **Despite its flaws, the Insta360 One X2 offers easy 360-degree recording in a waterproof package.**
 
  I had something of a rough start with the Insta360 One X2, but after dealing with setup issues and a steep learning curve, its small size, lightweight, and ease of use made up for its flaws It’s ideal for capturing videos in circumstances where you can’t be bothered to film with a traditional camera.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -222,20 +228,24 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-igtv-unveiled-5-essential-downloads-for-mobile-devices-for-2024/"><u>[New] IGTV Unveiled 5 Essential Downloads for Mobile Devices for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-screenshot-success-mastering-instagrams-preferred-video-format-with-fcpx/"><u>[Updated] 2024 Approved Screenshot Success Mastering Instagram's Preferred Video Format with FCPX</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-exciting-entertainment-top-10-ios-games-ready-for-no-wireless-connection/"><u>[Updated] Exciting Entertainment - Top 10 iOS Games, Ready for No Wireless Connection</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-four-pillars-of-mobile-video-acquisition-igtv-edition-for-2024/"><u>[Updated] Four Pillars of Mobile Video Acquisition IGTV Edition for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-the-ultimate-shortcut-to-instagram-video-connectivity/"><u>[Updated] The Ultimate Shortcut to Instagram Video Connectivity</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-itel-a05s-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Itel A05s without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Realme GT 3? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-comprehensive-telegram-web-usage-tips-and-tricks/"><u>In 2024, Comprehensive Telegram Web Usage Tips & Tricks</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-guide-for-the-enhanced-security-features-of-ring-doorbell-plus/"><u>The Ultimate Review Guide for the Enhanced Security Features of Ring Doorbell Plus</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-exercise-monitors/"><u>Top Rated Exercise Monitors</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-halo-bolt-jump-starter-and-portable-charger-top-reviews/"><u>Ultimate Guide to Halo Bolt Jump Starter & Portable Charger - Top Reviews</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unboxing-the-google-pixel-4a-perfect-balance-of-features-and-value/"><u>Unboxing the Google Pixel 4a - Perfect Balance of Features and Value</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlocking-the-secrets-of-elgoog-a-thorough-review-of-the-official-google-mirror-site/"><u>Unlocking the Secrets of elgooG – A Thorough Review of the Official Google Mirror Site</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-performance-and-features-a-deep-dive-into-the-remote-control-ford-galaxy-f-150-truck/"><u>Unveiling Performance & Features: A Deep Dive Into the Remote Control Ford Galaxy F-150 Truck</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-potential-of-apple-books-app-through-a-thorough-review/"><u>Unveiling the Potential of Apple Books App Through a Thorough Review</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-ps5xbox-x-visuals-the-leading-game-screens-ranked/"><u>[New] In 2024, PS5/Xbox X Visuals The Leading Game Screens Ranked</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-premier-microphones-for-university-podcasts/"><u>[Updated] Premier Microphones for University Podcasts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-blueprint-for-on-screen-dialogues/"><u>[Updated] The Blueprint for On-Screen Dialogues</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/acer-xfa240-assessment-prioritizing-performance-and-utility/"><u>Acer XFA240 Assessment: Prioritizing Performance and Utility</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/aeiusys-reliable-portable-solar-solution-review-of-a-pure-sine-wave-inverter-designed-for-medical-gear-efficiency/"><u>Aeiusy's Reliable Portable Solar Solution: Review of a Pure Sine Wave Inverter Designed for Medical Gear Efficiency</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-tablet-performance-a-focus-on-cpu-power/"><u>Comparing Tablet Performance: A Focus on CPU Power</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-breakdown-of-uniden-r3s-solid-build-quality-and-superior-range-features/"><u>Comprehensive Breakdown of Uniden R3's Solid Build Quality and Superior Range Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-blade-blh4100-120s-rtf-outdoor-rc-helicopter-in-depth-analysis-and-performance-insights/"><u>Comprehensive Guide: Blade BLH4100 120S RTF Outdoor RC Helicopter - In-Depth Analysis and Performance Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-look-at-apple-watch-series-6-understated-enhancements-keeping-it-as-top-choice/"><u>Comprehensive Look at Apple Watch Series 6: Understated Enhancements Keeping It as Top Choice</u></a></li>
+<li><a href="https://win-answers.techidaily.com/cyberpunk-2077-visual-glitches-solved-how-to-overcome-the-pitch-black-error/"><u>Cyberpunk 2077 Visual Glitches Solved – How to Overcome the Pitch-Black Error</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723065864838-discovering-the-superiority-of-gopros-hero7-in-action-videos/"><u>Discovering the Superiority of GoPro's HERO7 in Action Videos</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723085824198-ergonomic-and-convenient-moko-bluetooth-keyboard-ideal-for-all-devices/"><u>Ergonomic & Convenient MoKo Bluetooth Keyboard – Ideal for All Devices</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-realme-gt-neo-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-hello-and-goodbye-indonesias-communication-norms/"><u>Saying Hello & Goodbye: Indonesia's Communication Norms</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-ultimate-breakdown-advantages-and-disadvantages-of-chatgpt-platinum/"><u>The Ultimate Breakdown: Advantages & Disadvantages of ChatGPT Platinum</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/two-ways-to-track-my-boyfriends-apple-iphone-se-without-him-knowing-drfone-by-drfone-virtual-ios/"><u>Two Ways to Track My Boyfriends Apple iPhone SE without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/zombie-life-reimagined-in-7-days-to-die-an-in-depth-look-at-this-sandbox-gaming-hit/"><u>Zombie Life Reimagined in '7 Days to Die': An In-Depth Look at This Sandbox Gaming Hit</u></a></li>
 </ul></div>
 

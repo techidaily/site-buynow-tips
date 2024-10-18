@@ -1,7 +1,7 @@
 ---
 title: "Unboxing the Lenovo IdeaPad 320: A Fusion of Style, Portability & Classic Keyboard Features - Review Insights"
-date: 2024-10-06T19:33:28.839Z
-updated: 2024-10-12T21:02:24.649Z
+date: 2024-10-16T16:48:14.883Z
+updated: 2024-10-18T19:22:16.279Z
 categories:
   - BestProducts
 description: "This Article Describes Unboxing the Lenovo IdeaPad 320: A Fusion of Style, Portability & Classic Keyboard Features - Review Insights"
@@ -41,6 +41,13 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 [View On Amazon](https://www.amazon.com/dp/B075ZQXB26/?tag=lifewire-onsite-prod-20&ascsubtag=4845569%7Cn4bcb8b1996c24cd3b14f62e195599b0615%7CB075ZQXB26)
@@ -62,6 +69,13 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -80,13 +94,6 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **Performance: Almost two dozen channels (in a rural area)**
@@ -96,20 +103,13 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Range: 35 miles**
 
@@ -127,13 +127,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
  The Antop AT-127 (see[online](https://www.lowes.com/pd/ANTOP-Omni-Directional-Indoor-HD-UHF-VHF-TV-Antenna/1000503257?) ) is a 40-mile range antenna that sells for around $35\. It’s one of the better-looking antennas I’ve seen, as it’s reversible with faux light wood and dark wood sides. Unlike the AmazonBasics antenna, the Antop comes with a stand, and it has an easy-push connector for faster setup. These features go some ways towards justifying the Antop's higher price tag.
@@ -143,6 +136,13 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -175,24 +175,20 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-pros-guide-to-xbox-players-on-facebook-live/"><u>[Updated] 2024 Approved The Pro's Guide to Xbox Players on Facebook Live</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-panorama-pioneers-determining-the-best-360-cams/"><u>[Updated] Panorama Pioneers Determining the Best 360 Cams</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-easy-steps-to-record-skype-on-both-platforms/"><u>2024 Approved Easy Steps to Record Skype on Both Platforms</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-complete-handbook-to-securing-product-sponsorships-on-youtube/"><u>2024 Approved The Complete Handbook to Securing Product Sponsorships on Youtube</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/analyzing-value-and-functionality-in-the-low-cost-lenovo-chromebook-duet-2-in-1-laptoptablet/"><u>Analyzing Value and Functionality in the Low-Cost Lenovo Chromebook Duet 2-in-1 Laptop/Tablet</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apple-vision-pro-a-smart-investment-with-4-reasons/"><u>Apple Vision Pro – A Smart Investment with 4 Reasons?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/awesome-martian-metropolis-mayhem-city-builders-unleash-whirlwind-wonders-of-enjoyment/"><u>Awesome Martian Metropolis Mayhem: City Builders Unleash Whirlwind Wonders of Enjoyment</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/decoding-varieties-in-hand-motion-tracking/"><u>Decoding Varieties in Hand Motion Tracking</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Lava Yuva 3 | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-xiaomi-redmi-note-12-pro-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Xiaomi Redmi Note 12 Pro 5G with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://driver-error.techidaily.com/microsoft-lifecam-driver-download-the-easy-way/"><u>Microsoft Lifecam Driver Download — The Easy Way</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/navigating-to-windows-stored-autorecover-documents-a-step-by-step-guide/"><u>Navigating to Windows-Stored AutoRecover Documents: A Step-by-Step Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-minecraft-a-sandbox-experience-suitable-for-all-generations/"><u>Ultimate Guide to Minecraft: A Sandbox Experience Suitable for All Generations</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-selecting-the-perfect-tablet-by-considering-size-and-weight/"><u>Ultimate Guide: Selecting the Perfect Tablet by Considering Size & Weight</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-steps-for-enhancing-your-computers-gpu/"><u>Ultimate Guide: Steps for Enhancing Your Computer's GPU</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unboxing-and-testing-the-twelve-south-bookbook-v2-protective-case-for-macbooks/"><u>Unboxing & Testing the Twelve South BookBook V2 Protective Case for MacBooks</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-secret-to-energized-mornings-the-truth-about-ihomes-zenergy-sleep-therapy-solution/"><u>Unveiling the Secret to Energized Mornings: The Truth About IHome's Zenergy Sleep Therapy Solution</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/what-if-my-videos-removed-immediately-due-to-copyright-for-2024/"><u>What If My Videos Removed Immediately Due to Copyright for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/why-paid-access-to-linkedin-could-propel-your-career-forward/"><u>Why Paid Access to LinkedIn Could Propel Your Career Forward</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-how-to-enhance-team-engagement-through-zoom-recording-for-2024/"><u>[New] How to Enhance Team Engagement Through Zoom Recording for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-seamless-srt-to-video-leading-10-free-online-conversion-tools/"><u>[Updated] 2024 Approved Seamless SRT to Video - Leading 10 Free Online Conversion Tools</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-best-3ip-apps-to-record-clear-speech-on-ipads/"><u>[Updated] In 2024, Best 3iP Apps to Record Clear Speech on iPads</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-no-money-no-problem-guide-to-flying-solo-in-google-meet/"><u>[Updated] In 2024, No Money? No Problem! Guide to Flying Solo in Google Meet</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-unleash-potential-the-ultimate-guide-to-spectacous-tiktok-openers-mac/"><u>[Updated] In 2024, Unleash Potential The Ultimate Guide to Spectacous TikTok Openers (Mac)</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/alternatives-to-conver2mp3-top-mp3-converter-apps-when-your-favorite-tool-wont-start/"><u>Alternatives to Conver2MP3: Top MP3 Converter Apps When Your Favorite Tool Won't Start</u></a></li>
+<li><a href="https://driver-download.techidaily.com/expert-advice-overcoming-bluetooth-compatibility-issues-in-windows-10-fixed/"><u>Expert Advice: Overcoming Bluetooth Compatibility Issues in Windows 10 [FIXED]</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/get-more-from-your-entertainment-budget-premium-roku-savings-at-prime-day-extravaganza/"><u>Get More From Your Entertainment Budget: Premium Roku Savings at Prime Day Extravaganza!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/head-to-head-comparison-roku-or-fire-tv-stick-for-your-home-entertainment/"><u>Head-to-Head Comparison: Roku or Fire TV Stick for Your Home Entertainment?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-samsung-galaxy-tab-s7plus-unleashed-the-ultimate-android-tablet-experience/"><u>In-Depth Analysis: Samsung Galaxy Tab S7+ Unleashed - The Ultimate Android Tablet Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/inside-the-moto-g-stylus-unveiling-an-economical-smartphone-with-impressive-features/"><u>Inside the Moto G Stylus: Unveiling an Economical Smartphone with Impressive Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ipad-pro-vs-macbook-pro-understanding-their-unique-features/"><u>IPad Pro Vs. MacBook Pro: Understanding Their Unique Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/jumpstart-your-games-increase-ps3-hard-disk-size/"><u>Jumpstart Your Games: Increase PS3 Hard Disk Size</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/preventing-disruptions-from-windows-710s-printer-service/"><u>Preventing Disruptions From Windows 7/10'S Printer Service</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-complimentary-christmas-films-on-youtube/"><u>Top 9 Complimentary Christmas Films on YouTube</u></a></li>
 </ul></div>
 

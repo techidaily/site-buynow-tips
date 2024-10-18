@@ -1,7 +1,7 @@
 ---
 title: "The Featherlight Game Changer: A Deep Dive Review Into the Exceptional Battery Life & Mobility of the LG Gram 15.6 Laptop (2018 Edition)"
-date: 2024-10-06T19:15:56.673Z
-updated: 2024-10-12T17:11:31.315Z
+date: 2024-10-15T17:22:28.379Z
+updated: 2024-10-18T16:17:19.179Z
 categories:
   - BestProducts
 description: "This Article Describes The Featherlight Game Changer: A Deep Dive Review Into the Exceptional Battery Life & Mobility of the LG Gram 15.6 Laptop (2018 Edition)"
@@ -36,13 +36,6 @@ Lifewire / Zach Sweat
 [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Falienware-aurora-r9-gaming-desktop-intel-core-i7-9700-16gb-memory-nvidia-geforce-rtx-2080-super-1tb-hdd-512gb-ssd-white-lunar-light%2F6373818.p%3FskuId%3D6373818) [View On Dell](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.dell.com%2Fen-us%2Fshop%2Fcty%2Fpdp%2Fspd%2Falienware-aurora-r9-desktop)
 
 3.3
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Alienware Aurora R9
 
@@ -102,6 +95,19 @@ Lifewire / Zach Sweat
 
  Inside the case, Alienware has made the new R9 quite upgradeable, allowing owners to easily pull things apart for access to various components. Though it’s a bit cramped inside, the genius ability to swing the PSU (power supply unit) out to the side when the case is removed provides easier access to the motherboard and all its parts. While we’re a bit concerned with the airflow due to this tight fit inside the case, it does allow you to upgrade hardware down the line if you want.
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Plug and play**
 
  Because this is a prebuilt, setting up your new PC is super simple—essentially plug and play. This is another hugely important thing to consider if you want to get into PC gaming, but don’t know the first thing about installing an OS, troubleshooting build issues or navigating the BIOS.
@@ -130,13 +136,20 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/zWvKnnWGsRBdtRIHTYYD7HEs0qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-13-88a6bd8dac13438794a0bb038df7757f.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Gaming: From ok to amazing, if you have the cash**
@@ -167,6 +180,13 @@ Lifewire / Zach Sweat
 
  Although true audiophiles will still want to stick with a DAC, or digital-to-analog converter, the Aurora R9 packs in pretty decent audio options for most users.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Network: Solid Ethernet, average Wi-Fi**
 
  In the age of the internet, network speeds and performance are paramount for most users, especially so if you’re a gamer. This fact not only applies to those who love online multiplayer games, but also those who prefer singleplayer since most people now download their software online.
@@ -184,10 +204,10 @@ Lifewire / Zach Sweat
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wMnVqt6RV24C1Vfncnf2J3E0fAg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-15-fe70fca5ffd04da6abd8c0ef8f026eef-f6d5eaf9efcb461a902fc750a192dd0c.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -218,13 +238,6 @@ Lifewire / Zach Sweat
 
  Overall, the price of the R9 is ok at best, and you do get some nice software features from Alienware, but it’s still cheaper to build your own.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Alienware Aurora R9 vs. Dell G5 5090**
 
  Comparing two gaming PCs in a head-to-head competition is difficult due to the sheer amount of potential hardware configurations, but Dell also offers prebuilts outside the Alienware brand that are similar.
@@ -240,13 +253,6 @@ Lifewire / Zach Sweat
  **A quality prebuilt, but not the most frugal.**
 
  With a distinct design that only Alienware can pull off, the Aurora R9 is a futuristic-looking prebuilt PC with a lot of good, but a bit of extra cost. If you love Alienware or the look of the R9, it’s not a bad option, but it’s certainly not the most frugal.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -276,16 +282,20 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/updated-decoding-the-app-culture-the-battle-of-innovation-between-tiktok-and-snap/"><u>[Updated] Decoding the App Culture The Battle of Innovation Between TikTok & Snap</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-maximize-monetization-the-step-by-step-for-youtube-profiles-for-2024/"><u>[Updated] Maximize Monetization The Step-by-Step for YouTube Profiles for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/antenna-review-exploring-the-features-of-antops-at-127-the-key-to-free-television/"><u>Antenna Review: Exploring the Features of Antop's AT-127 - The Key to FREE Television</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/complete-guide-on-unlocking-apple-iphone-8-plus-with-a-broken-screen-by-drfone-ios/"><u>Complete Guide on Unlocking Apple iPhone 8 Plus with a Broken Screen?</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-driving-force-g27-gamepad-controllers-drivers-for-win11-win10-win7-systems/"><u>Download Driving Force G27 Gamepad Controllers Drivers for Win11 / Win10 / Win7 Systems</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-unbrick-a-dead-oppo-k11x-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Oppo K11x | Dr.fone</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-guide-to-creating-unique-tiktok-cover-art/"><u>In 2024, Guide to Creating Unique TikTok Cover Art</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/1723015920321-insta360-x2-perfect-for-swimmers-and-surfers-on-the-go/"><u>Insta360 X2: Perfect for Swimmers and Surfers on the Go!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/weighing-in-upgrade-or-stay-on-macos/"><u>Weighing In: Upgrade or Stay on macOS?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/why-my-affection-for-the-huawei-p30-pro-persists-an-in-depth-review/"><u>Why My Affection for the Huawei P30 Pro Persists: An In-Depth Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/yokus-island-express-critic-the-unexpected-twists-and-turns-of-grand-escapades/"><u>Yoku's Island Express Critic: The Unexpected Twists and Turns of Grand Escapades</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-complete-walkthrough-to-grab-youtube-playlists/"><u>[New] 2024 Approved Complete Walkthrough to Grab YouTube Playlists</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-enabling-autoplay-youtube-videos-in-social-media-network-for-2024/"><u>[New] Enabling Autoplay Youtube Videos in Social Media Network for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-the-enhanced-apple-macbook-pro-a-16-inch-masterpiece-with-m1-chip/"><u>Expert Insights on the Enhanced Apple MacBook Pro: A 16-Inch Masterpiece with M1 Chip</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/find-your-bargain-treasures-on-oodle-the-ultimate-gratis-locals-exchange-platform/"><u>Find Your Bargain Treasures on Oodle - The Ultimate Gratis Locals Exchange Platform</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/free-open-source-image-editor-showdown-spotlight-on-gimp-across-platforms/"><u>Free Open Source Image Editor Showdown: Spotlight on GIMP Across Platforms</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/future-proof-your-workflow-the-leading-microsoft-office-alternatives-of-2024/"><u>Future-Proof Your Workflow: The Leading Microsoft Office Alternatives of 2024</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/gratis-movavi-video-versterker-geknipt-om-videomaterial-te-converteren/"><u>Gratis Movavi Video Versterker - Geknipt Om Videomaterial Te Converteren</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/hunt-for-the-best-bargains-on-benq-monitors-during-prime-day-sales/"><u>Hunt for the Best Bargains on BenQ Monitors During Prime Day Sales</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ideal-innovations-the-vacation-tech-lifesavers/"><u>Ideal Innovations: The Vacation Tech Lifesavers</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-oppo-reno-11-pro-5g-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed Guide on Faking Your Location in Mozilla Firefox On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-transformative-tech-review-magix-vpx-redefines-editing/"><u>In 2024, Transformative Tech Review Magix VPX Redefines Editing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-how-the-3rd-generation-echo-dot-delivers-complete-alexa-capabilities-in-an-adorable-package/"><u>In-Depth Analysis: How the 3Rd Generation Echo Dot Delivers Complete Alexa Capabilities in an Adorable Package</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-live-selling-a-comprehensive-starters-guide-for-2024/"><u>Updated Live Selling A Comprehensive Starters Guide for 2024</u></a></li>
+<li><a href="https://fox-search.techidaily.com/website-content-missing-error-message-explained/"><u>Website Content Missing – Error Message Explained</u></a></li>
 </ul></div>
 

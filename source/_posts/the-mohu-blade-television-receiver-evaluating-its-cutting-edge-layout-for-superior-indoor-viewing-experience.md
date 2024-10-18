@@ -1,7 +1,7 @@
 ---
 title: "The Mohu Blade Television Receiver: Evaluating Its Cutting-Edge Layout for Superior Indoor Viewing Experience"
-date: 2024-10-06T20:56:35.009Z
-updated: 2024-10-12T19:09:20.796Z
+date: 2024-10-12T17:48:13.991Z
+updated: 2024-10-18T19:42:02.209Z
 categories:
   - BestProducts
 description: "This Article Describes The Mohu Blade Television Receiver: Evaluating Its Cutting-Edge Layout for Superior Indoor Viewing Experience"
@@ -38,10 +38,10 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Antop AT-127
@@ -69,6 +69,13 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -78,6 +85,13 @@ Lifewire / Erika Rawes
  The antenna comes with a stand for placement on a desk or entertainment center. It also comes with double-sided adhesives, so you can hang it on a wall or window. The adhesives are extremely sticky—when I pulled the antenna off of my wall, the paint came off along with it.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -89,19 +103,6 @@ Lifewire / Erika Rawes
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
-<!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Almost two dozen channels**
 
  The Antop AT-127 supports UHF and VHF signals. Overall, it works pretty smoothly, though some channels might have look pixelated for a few seconds when you flip to them or take a second or two to fully load.
@@ -109,19 +110,6 @@ Lifewire / Erika Rawes
  The attached coax cable isn’t as long as I’ve seen on other similarly-priced antennas, but it is long enough (10 feet) to place the antenna up high without an extender.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -152,10 +140,10 @@ Lifewire / Erika Rawes
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -189,21 +177,19 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-pushing-boundaries-with-yis-action-camera-and-4k-capture/"><u>[New] In 2024, Pushing Boundaries with Yi's Action Camera & 4K Capture</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-streamlining-your-itunes-video-recordings/"><u>[New] Streamlining Your iTunes Video Recordings</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-leveraging-srt-for-improved-video-subtitles-online-presence-for-2024/"><u>[Updated] Leveraging SRT for Improved Video Subtitles Online Presence for 2024</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/easy-steps-for-seamless-dvd-extraction-and-transfer-to-your-pc/"><u>Easy Steps for Seamless DVD Extraction & Transfer to Your PC</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-tecno-pop-7-pro-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Tecno Pop 7 Pro to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-oppo-a38-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Oppo A38 Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-tab-s5e-your-ultimate-android-tablet-guide/"><u>In-Depth Analysis of the Samsung Galaxy Tab S5e - Your Ultimate Android Tablet Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-review-googles-battery-operated-nest-video-doorbell/"><u>In-Depth Review: Google's Battery-Operated Nest Video Doorbell</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/insight-into-the-oneplus-8t-brisk-operations-weighed-down-by-variable-photographic-output/"><u>Insight Into the OnePlus 8T: Brisk Operations Weighed Down by Variable Photographic Output</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/insights-on-logitechs-c615-camcorder-where-budget-meets-excellence-in-performance/"><u>Insights on Logitech's C615 Camcorder: Where Budget Meets Excellence in Performance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/insta360-x2-pro-capture-your-adventures-anywhere-even-wet/"><u>Insta360 X2 Pro: Capture Your Adventures Anywhere, Even Wet</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/leveraging-virtual-board-features-for-enhanced-collaboration-in-zoom-for-2024/"><u>Leveraging Virtual Board Features for Enhanced Collaboration in Zoom for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-metropolitan-magic-in-depth-analysis-of-cities-skylines/"><u>Mastering Metropolitan Magic: In-Depth Analysis of Cities: Skylines</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-multitasking-with-the-incredible-dell-xps-13-convertible-laptop-analysis/"><u>Mastering Multitasking with the Incredible Dell XPS 13 Convertible Laptop Analysis</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/navigating-dangers-in-ai-conversations-an-analysis-of-the-6-most-prominent-cybersecurity-risks-linked-to-chatgpt/"><u>Navigating Dangers in AI Conversations: An Analysis of the 6 Most Prominent Cybersecurity Risks Linked to ChatGPT</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-best-beams-microphones-for-education/"><u>[New] 2024 Approved Best Beams Microphones for Education</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-free-your-cameras-potential-best-screens-recording-apps-reviewed/"><u>[Updated] 2024 Approved Free Your Camera's Potential Best Screens Recording Apps Reviewed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-insightful-comparisons-top-android-applications-for-youtube-download/"><u>[Updated] Insightful Comparisons Top Android Applications for YouTube Download</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-complete-analysis-gopro-hero4-silver-edition/"><u>2024 Approved Complete Analysis GoPro HERO4 Silver Edition</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-fast-fixes-to-skyrocket-your-podcast-live/"><u>2024 Approved Fast Fixes to Skyrocket Your Podcast Live</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/creating-on-a-grand-scale-unveiling-the-artistry-and-functionality-in-huions-kamvas-gt-191-pen-display-review/"><u>Creating on a Grand Scale: Unveiling The Artistry & Functionality in Huion's Kamvas GT-191 Pen Display Review.</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/generative-ais-evolving-threat-spectrum/"><u>Generative AI's Evolving Threat Spectrum</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/mastering-content-for-more-subscribers/"><u>Mastering Content for More Subscribers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/navigating-the-world-of-mp4-edits-on-apple-devices/"><u>Navigating the World of MP4 Edits on Apple Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-the-amplifi-hd-mesh-networking-solution-eliminate-your-homes-wi-fi-coverage-gaps/"><u>Review of the Amplifi HD Mesh Networking Solution - Eliminate Your Home's Wi-Fi Coverage Gaps</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-the-netgear-nighthawk-x10-ad7200-ultra-fast-wifi-performance-analysis/"><u>Review of the Netgear Nighthawk X10 (AD7200): Ultra-Fast WiFi Performance Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/scrutinizing-the-pros-and-cons-of-boses-audio-device/"><u>Scrutinizing the Pros and Cons of Bose's Audio Device</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/snapshot-of-essential-thoughts-before-buying-vr-equipment/"><u>Snapshot of Essential Thoughts Before Buying VR Equipment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/step-up-your-game-a-meticulous-breakdown-of-the-oculus-quest-2s-stylish-and-functional-elite-armband-with-secure-case-combo/"><u>Step Up Your Game: A Meticulous Breakdown of the Oculus Quest 2’S Stylish and Functional Elite Armband with Secure Case Combo</u></a></li>
 </ul></div>
 

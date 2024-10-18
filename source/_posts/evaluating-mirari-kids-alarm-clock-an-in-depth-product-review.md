@@ -1,7 +1,7 @@
 ---
 title: Evaluating Mirari Kids' Alarm Clock - An In-Depth Product Review
-date: 2024-10-10T16:56:06.451Z
-updated: 2024-10-12T18:42:41.934Z
+date: 2024-10-16T21:13:04.806Z
+updated: 2024-10-18T18:15:18.143Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating Mirari Kids' Alarm Clock - An In-Depth Product Review
@@ -64,22 +64,29 @@ Lifewire / Jonno Hill
 
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Basic but effective**
 
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
 
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: Dead simple**
 
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Acceptable but not incredible**
 
@@ -91,13 +98,6 @@ Lifewire / Jonno Hill
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Excellent for the performance**
 
  The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
@@ -105,16 +105,10 @@ Lifewire / Jonno Hill
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
 
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
@@ -127,10 +121,10 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -160,17 +154,18 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-easy-peasy-the-route-to-past-facebook-stories/"><u>[New] In 2024, Easy Peasy The Route to Past Facebook Stories</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-nintendo-switch-leading-capture-card-selections/"><u>[Updated] 2024 Approved Nintendo Switch Leading Capture Card Selections</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-xiaomi-11-series-where-every-snapshot-becomes-a-masterpiece/"><u>[Updated] In 2024, Xiaomi 11 Series Where Every Snapshot Becomes a Masterpiece</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-anttenna-at-127-the-sleek-solution-for-free-broadcast-television/"><u>Comprehensive Evaluation of the AntTenna AT-127 - The Sleek Solution for FREE Broadcast Television</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/crafting-charts-with-a-click-youtube-short-tunes-made-easy/"><u>Crafting Charts with a Click YouTube Short Tunes Made Easy</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Nokia G310 | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-click-experience-ranking-the-best-wireless-mice-innovations-of-2024/"><u>Revolutionize Your Click Experience: Ranking the Best Wireless Mice Innovations of 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/selecting-the-ultimate-gaming-machine/"><u>Selecting the Ultimate Gaming Machine</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/sustained-comfort-with-the-ergohead-mat-in-depth-analysis-and-user-experience-insights/"><u>Sustained Comfort with the Ergohead Mat - In-Depth Analysis and User Experience Insights</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/tested-and-verified-the-uniden-r3s-superior-build-quality-and-prolonged-radar-monitoring-function/"><u>Tested & Verified: The Uniden R3's Superior Build Quality and Prolonged Radar Monitoring Function</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-art-of-engineering-discovering-the-well-designed-wonders-of-samsung-galaxy-watch-inside-and-out/"><u>The Art of Engineering: Discovering the Well-Designed Wonders of Samsung Galaxy Watch, Inside and Out</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/top-apps-upgrade-your-mobile-movies-instantly/"><u>Top Apps Upgrade Your Mobile Movies Instantly</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-understanding-livestream-technology-explained/"><u>[New] Understanding Livestream Technology Explained</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-dynamic-duo-display-youtubes-way-of-creative-splitting/"><u>[Updated] 2024 Approved Dynamic Duo Display YouTube’s Way of Creative Splitting</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-visual-simplification-in-hybrid-workspaces-with-zoom-and-google-meet/"><u>[Updated] 2024 Approved Visual Simplification in Hybrid Workspaces with Zoom & Google Meet</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-boost-your-income-with-effective-snapchat-ads-for-2024/"><u>[Updated] Boost Your Income with Effective Snapchat Ads for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-elevating-video-marketing-understanding-keywords-on-platforms-like-youtube/"><u>[Updated] Elevating Video Marketing Understanding Keywords on Platforms Like YouTube</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-impact-of-design-on-speed-with-netgears-120er-powerline-extender-a-detailed-review/"><u>Exploring the Impact of Design on Speed with Netgear’s 120Er Powerline Extender – A Detailed Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-novelty-of-the-knack-fresh-perspective-on-classic-themes/"><u>Exploring the Novelty of 'The Knack': Fresh Perspective on Classic Themes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/garmin-vivosmart-4-smartwatch-analysis-comprehensive-overview-of-body-battery-and-stress-management-features/"><u>Garmin Vivosmart 4 Smartwatch Analysis: Comprehensive Overview of Body Battery & Stress Management Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/homepod-mini-versus-echo-dot-features-functions-and-flexibility-compared/"><u>HomePod Mini versus Echo Dot: Features, Functions & Flexibility Compared</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-explore-our-12-tycoon-classics-for-engrossing-experiences/"><u>In 2024, Explore Our #12 Tycoon Classics for Engrossing Experiences</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-from-passion-to-paychecks-your-vlog-venture-guide/"><u>In 2024, From Passion to Paychecks Your Vlog Venture Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-amazon-echo-show-10-gen-3-analysis-enhanced-mobility-feature/"><u>In-Depth Amazon Echo Show 10 (Gen 3) Analysis: Enhanced Mobility Feature</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/write-characters-that-come-alive-discover-the-best-11-prompts-for-using-chatgpt-in-book-development/"><u>Write Characters That Come Alive: Discover the Best 11 Prompts for Using ChatGPT in Book Development</u></a></li>
 </ul></div>
 

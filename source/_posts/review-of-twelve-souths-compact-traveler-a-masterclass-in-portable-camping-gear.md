@@ -1,7 +1,7 @@
 ---
 title: Review of Twelve South's Compact Traveler - A Masterclass in Portable Camping Gear
-date: 2024-10-09T20:17:33.653Z
-updated: 2024-10-12T19:58:22.724Z
+date: 2024-10-17T20:16:26.287Z
+updated: 2024-10-18T19:13:24.825Z
 categories:
   - BestProducts
 description: This Article Describes Review of Twelve South's Compact Traveler - A Masterclass in Portable Camping Gear
@@ -36,15 +36,22 @@ Lifewire / Rebecca Isaacs
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Mavix M9 Gaming Chair
 
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/cetpXlFoWgl601rjUieYjdXgVCA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_HeroSquare-97a9344411454147b8772f86cd75bca7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
@@ -70,10 +77,10 @@ Lifewire / Rebecca Isaacs
  A poor computer chair may lead to backaches, pains, and a whole mess of skeletal and muscular issues. When I began to have these symptoms, I decided it was time for a change to my chair, and got the Mavix M9 Gaming Chair for review. After over 20 hours of testing, it’s safe to say that I’ve found my favorite piece of gaming equipment.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Design: A gamer’s dream
@@ -88,6 +95,13 @@ Lifewire / Rebecca Isaacs
 
  At 56 x 26 x 22.75 inches (HWD), the chair has a wide seat for spreading out and comes with an optional headrest. Even the wheels are prepped for hours of gameplay and come with a locking feature to ensure stability.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Comfort: It’s all in the ergonomics
 
  It would be an understatement to say that the M9 Chair offers adjustability. In fact, nearly everything can be adjusted from the seat depth to the headrest angle—the chair is easy to mold to your personal needs.
@@ -98,14 +112,14 @@ Lifewire / Rebecca Isaacs
 
 ![Mavix M9 Gaming Chair headrest ](https://www.lifewire.com/thmb/dk-8es8V-f2VzVltDiUNw0nCs2o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_02-acc7e137bc7a4b25837fbbe065ac1416.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Performance and Usage: Amazing day-to-day
 
@@ -133,21 +147,7 @@ Lifewire / Rebecca Isaacs
 
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/_eJYTViir2syGINJQq7Fxl1ofHQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_04-d42bbf02273f4d0aa7c25351b201dc2c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Mavix M9 vs. XChair X4 Chair
 
@@ -194,21 +194,21 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-double-trouble-replaying-youtube-videos-on-your-set/"><u>[New] Double Trouble Replaying YouTube Videos on Your Set</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-ultimate-8-camera-showdown-excellence-in-broadcasting/"><u>[New] In 2024, Ultimate 8 Camera Showdown Excellence in Broadcasting</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-step-by-step-adding-snap-camera-to-teams-chats/"><u>[Updated] 2024 Approved Step-by-Step Adding Snap Camera to Teams Chats</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-inhabit-your-island-minimalistic-mc-house-plans-explained/"><u>[Updated] In 2024, Inhabit Your Island Minimalistic MC House Plans Explained</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-premium-top-5-storage-solutions-for-xbox/"><u>[Updated] In 2024, Premium Top 5 Storage Solutions for Xbox</u></a></li>
-<li><a href="https://facebook.techidaily.com/deconstructing-giants-the-role-of-governments-in-dismantling-tech-titans/"><u>Deconstructing Giants: The Role of Governments in Dismantling Tech Titans</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-the-leading-17-laptop-models-dominating-2024s-tech-scene/"><u>Discover the Leading 17 Laptop Models Dominating 2024'S Tech Scene</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discovering-the-benefits-of-the-garmin-vivomove-hr-watch-where-elegance-meets-exercise/"><u>Discovering the Benefits of the Garmin Vivomove HR Watch - Where Elegance Meets Exercise</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-the-power-in-a-pocketbook-the-razer-book-13-reviewed/"><u>Experience the Power in a Pocketbook: The Razer Book 13 Reviewed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-netgear-nighthawk-ax8-the-ultimate-wi-fi-n-mesh-expander-for-modern-homes/"><u>Expert Analysis of the Netgear Nighthawk AX8: The Ultimate Wi-Fi N Mesh Expander for Modern Homes</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-unbeatable-dji-mavic-2-the-ultimate-tool-for-professionals/"><u>Expert Analysis of the Unbeatable DJI Mavic 지킬 2 프로 - The Ultimate Tool for Professionals</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-analysis-winegard-fl5500a-flatwave-balancing-quality-with-high-cost/"><u>Expert Analysis: Winegard FL5500A FlatWave - Balancing Quality with High Cost</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-assessment-of-the-compact-aphaca-bt69-car-bluetooth-fm-transmitter-performance-review/"><u>Expert Assessment of the Compact Aphaca BT69 Car Bluetooth FM Transmitter Performance Review</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your ZTE Nubia Flip 5G | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-mastery-guide-securely-archiving-snapchat-media-on-devices/"><u>In 2024, Mastery Guide Securely Archiving Snapchat Media on Devices</u></a></li>
-<li><a href="https://win-dash.techidaily.com/resolving-common-bluetooth-drivers-glitches-in-windows-10-made-easy/"><u>Resolving Common Bluetooth Drivers Glitches in Windows 10 Made Easy</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-efficient-timelapse-recording-via-ipad/"><u>[New] Efficient Timelapse Recording via iPad</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-funny-frameworks-crafting-memes-with-ease/"><u>[New] In 2024, Funny Frameworks Crafting Memes with Ease</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-tailoring-image-sizes-in-photos-for-ios-devices/"><u>[New] Tailoring Image Sizes in Photos for iOS Devices</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-unveiling-premium-screen-recorders-in-tech/"><u>[Updated] In 2024, Unveiling Premium Screen Recorders in Tech</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-lightning-methods-ios-media-on-windows/"><u>[Updated] Lightning Methods IOS Media on Windows</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2023s-best-value-pruveeo-f5-full-hd-1080p-dash-cam-comprehensive-review-for-safe-journeys/"><u>2023'S Best Value Pruveeo F5 Full HD 1080P Dash Cam - Comprehensive Review for Safe Journeys</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/a-double-take-at-chatgpts-advanced-features/"><u>A Double-Take at ChatGPT's Advanced Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-fresh-look-at-yokus-island-express-bold-adventures-in-unexpected-directions/"><u>A Fresh Look at Yoku’s Island Express: Bold Adventures in Unexpected Directions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/acer-xfa240-evaluation-prioritizing-performance-and-utility/"><u>Acer XFA240 Evaluation: Prioritizing Performance and Utility</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/advantages-and-disadvantages-a-comprehensive-review-of-the-webex-virtual-conferencing-platform/"><u>Advantages & Disadvantages: A Comprehensive Review of the Webex Virtual Conferencing Platform</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723043894464-affordable-and-fast-ev-charge-stations-why-experts-say-powerdrive-tops-every-list-for-cost-effective-solutions/"><u>Affordable and Fast EV Charge Stations - Why Experts Say PowerDrive Tops Every List for Cost-Effective Solutions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/analyzing-the-differences-a-side-by-side-galaxy-s10plus-and-samsung-s20-review/"><u>Analyzing the Differences: A Side-by-Side Galaxy S10+ and Samsung S20 Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/canon-rebel-t7-kit-next-level-photography-experience/"><u>Canon Rebel T7 Kit: Next-Level Photography Experience</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/capturecrafter-your-ultimate-guide-to-screen-recording-for-2024/"><u>CaptureCrafter Your Ultimate Guide to Screen Recording for 2024</u></a></li>
+<li><a href="https://win-latest.techidaily.com/efficient-wegen-om-je-gezete-proyect-in-eclise-terug-te-trekken-4-handige-methoden/"><u>Efficiënt Wegen Om Je Gezete Proyect In Eclise Terug Te Trekken: 4 Handige Methoden</u></a></li>
+<li><a href="https://howto.techidaily.com/reasons-for-nubia-red-magic-9-proplus-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Nubia Red Magic 9 Pro+ Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
 </ul></div>
 

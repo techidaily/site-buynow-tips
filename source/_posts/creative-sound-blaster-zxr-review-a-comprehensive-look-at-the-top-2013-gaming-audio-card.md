@@ -1,7 +1,7 @@
 ---
 title: Creative Sound Blaster ZXR Review - A Comprehensive Look at the Top 2013 Gaming Audio Card.
-date: 2024-10-09T19:38:38.040Z
-updated: 2024-10-12T21:05:58.244Z
+date: 2024-10-17T17:49:41.288Z
+updated: 2024-10-18T21:13:26.069Z
 categories:
   - BestProducts
 description: This Article Describes Creative Sound Blaster ZXR Review - A Comprehensive Look at the Top 2013 Gaming Audio Card.
@@ -40,28 +40,15 @@ Lifewire / Emily Ramirez
 2.8
 
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Creative Sound Blaster ZxR
-
-![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
-
-<!-- affiliate ads begin -->
 <a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
   <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
 <img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## Creative Sound Blaster ZxR
+
+![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
 
 Lifewire / Emily Ramirez
 
@@ -87,14 +74,14 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/U_vmwZDe5HbbungQ5L2hzf2LVto=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-4-b0d1cca56ec04a61b83e20d1cecf2aea.jpg)
 
- Lifewire / Emily Ramirez
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Emily Ramirez
 
 ## **Design: Sleek and convenient**
 
@@ -105,6 +92,13 @@ Lifewire / Emily Ramirez
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -118,13 +112,6 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
 
 ## **Audio: Excellent sound**
@@ -135,14 +122,14 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Lots of options with mixed utility**
 
@@ -151,6 +138,13 @@ Lifewire / Emily Ramirez
  For the tinkerers out there, Sound Blaster provides a myriad of audio adjustments through their Z-Series software package.
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Unjustified expense**
 
@@ -219,24 +213,20 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-ideal-shade-modifier-software/"><u>[New] Ideal Shade Modifier Software</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-azure-speech-to-text-your-ultimate-development-toolkit/"><u>2024 Approved Azure Speech-to-Text Your Ultimate Development Toolkit</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-deletion-methods-for-youtubes-backlogged-video-collection/"><u>2024 Approved Deletion Methods for YouTube's Backlogged Video Collection</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-unleash-the-power-of-pixels-expert-tips-on-live-tv-recording-with-windows-pc/"><u>2024 Approved Unleash the Power of Pixels Expert Tips on Live TV Recording with Windows PC</u></a></li>
-<li><a href="https://fox-within.techidaily.com/comprehensive-guide-to-restoring-your-samsung-portable-ssd-t5-to-factory-settings-with-safe-data-retrieval-techniques/"><u>Comprehensive Guide to Restoring Your Samsung Portable SSD T5 to Factory Settings with Safe Data Retrieval Techniques</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/crafting-an-intergalactic-empire-an-in-depth-analysis-of-offworld-trading-companys-ruthless-economy/"><u>Crafting an Intergalactic Empire: An In-Depth Analysis of Offworld Trading Company's Ruthless Economy</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/does-bigger-mean-better-uncover-the-truth-about-apple-iphone-12-pro-max/"><u>Does Bigger Mean Better? Uncover the Truth About Apple iPhone 12 Pro Max</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/elevating-user-experience-the-case-for-spotifys-high-tier/"><u>Elevating User Experience: The Case for Spotify's High Tier</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/examining-performance-fluctuations-in-seatechs-portable-blu-ray-burner-for-external-usb-use/"><u>Examining Performance Fluctuations in SeaTech's Portable Blu-Ray Burner for External USB Use</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-seamless-digital-literacy-with-the-durable-kobo-libra-h2o-a-full-review/"><u>Experience Seamless Digital Literacy with the Durable Kobo Libra H2O - A Full Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-superior-reception-with-clearstream-2v-all-in-one-hdtv-antenna-a-comprehensive-review/"><u>Experience Superior Reception with ClearStream 2V All-in-One HDTV Antenna - A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-blade-e-flite-mcx-your-guide-to-the-premier-ready-to-fly-rotorcraft/"><u>Expert Analysis of Blade E-Flite mCX² - Your Guide to the Premier Ready-To-Fly Rotorcraft</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-evaluation-of-the-tp-link-ac1200-re305-wi-fi-repeater/"><u>Expert Evaluation of the TP-Link AC1200 RE305 Wi-Fi Repeater</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expertly-chosen-selection-best-power-inverters-to-upgrade-your-setup/"><u>Expertly Chosen Selection: Best Power Inverters to Upgrade Your Setup</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-perfecting-presentations-adopt-the-ezvide-screencast-method/"><u>In 2024, Perfecting Presentations Adopt the EZvide Screencast Method</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-the-ultimate-compilation-of-2023-writers-on-youtube/"><u>In 2024, The Ultimate Compilation of 2023’ Writers on YouTube</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/picturecut-studio/"><u>PictureCut Studio</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/resolving-missing-vcompdll-files-on-your-computer-effective-strategies-and-tips/"><u>Resolving Missing Vcomp.dll Files on Your Computer – Effective Strategies and Tips</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/trasforma-i-tuoi-file-flac-in-mp4-gratuitamente-il-miglior-metodo-online-di-movavi/"><u>Trasforma I Tuoi File FLAC in MP4 Gratuitamente: Il Miglior Metodo Online Di Movavi</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-leveraging-hashtags-and-mentions/"><u>[Updated] 2024 Approved Leveraging Hashtags and Mentions</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-full-dive-into-the-intricacies-of-adobe-cloud-for-secure-efficient-data-management-for-2024/"><u>[Updated] Full Dive Into the Intricacies of Adobe Cloud for Secure, Efficient Data Management for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-visionsnap-tech-your-guide-to-the-best-of-2023-for-2024/"><u>[Updated] VisionSnap Tech – Your Guide to the Best of 2023 for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/bring-a-chuckle-to-life-generating-text-memes-for-2024/"><u>Bring a Chuckle to Life Generating Text Memes for 2024</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-6-methods-to-protect-yourself-from-location-tracking-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, 6 Methods to Protect Yourself from Location Tracking on Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-key-to-flawless-tiktok-profile-hyperlinking/"><u>In 2024, The Ultimate Key to Flawless TikTok Profile Hyperlinking</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unlock-your-podcast-potential-advanced-techniques-for-idevice-audio-recording/"><u>In 2024, Unlock Your Podcast Potential Advanced Techniques for iDevice Audio Recording</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-definitive-guide-to-the-netgear-wireless-range-extender-ac1200-ex6200-review/"><u>The Definitive Guide to the Netgear Wireless Range Extender (AC1200, EX6200) Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-hp-omen-obelisk-assessment-top-tier-gaming-power-on-a-budget/"><u>The HP OMEN Obelisk Assessment - Top Tier Gaming Power on a Budget</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-powerhouse-in-depth-review-of-dbpowers-600a-with-a-18000mah-capacity-for-emergency-charging-needs/"><u>The Powerhouse: In-Depth Review of DBPOWER's 600A with a 18,000mAh Capacity for Emergency Charging Needs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-understanding-iphone-13s-capabilities/"><u>The Ultimate Guide to Understanding iPhone 13'S Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-wireless-routers-with-extended-range-2024-edition/"><u>Top Rated Wireless Routers with Extended Range - 2024 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-review-discover-why-the-201-ipad-air-is-a-game-changer-in-entertainment/"><u>Top Review: Discover Why the 201# iPad Air Is a Game-Changer in Entertainment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-compact-gaming-computers/"><u>Top-Rated Compact Gaming Computers</u></a></li>
 </ul></div>
 

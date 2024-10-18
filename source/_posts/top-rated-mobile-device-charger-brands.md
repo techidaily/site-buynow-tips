@@ -1,7 +1,7 @@
 ---
 title: Top Rated Mobile Device Charger Brands
-date: 2024-10-05T16:48:14.814Z
-updated: 2024-10-12T21:49:23.060Z
+date: 2024-10-16T19:20:30.161Z
+updated: 2024-10-18T17:57:10.690Z
 tags:
   - buying-guides
 categories:
@@ -109,10 +109,16 @@ Best Charging Station
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Best Overall Charger
@@ -122,6 +128,13 @@ Best Overall Charger
 TECKNET's 65W three-port GaN charger can charge up to three devices simultaneously, with enough power to fast charge most smartphones and tablets, plus support for many USB-PD laptops.
 
 [$34 at Amazon](https://www.amazon.com/Charger-TECKNET-Foldable-Adapter-Compatible/dp/B08YJLMQGD?tag=hotoge-20&ascsubtag=UUhtgUeUpU208189&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F763880%2Fbest-phone-charger%2F&asc%5Fcampaign=Commerce) 
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  Best iPhone and iPad Charger: [Apple 20W Power Adapter](https://www.amazon.com/Apple-20W-USB-C-Power-Adapter/dp/B08L5M9BTJ?tag=hotoge-20&ascsubtag=UUhtgUeUpU208189&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F763880%2Fbest-phone-charger%2F&asc%5Fcampaign=Commerce) 
 
@@ -145,21 +158,7 @@ TECKNET's 65W three-port GaN charger can charge up to three devices simultaneous
 
 ![21lZ34lcSTL._SL160_](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/21lz34lcstl-_sl160_.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Best iPhone/iPad Charger
 
@@ -176,6 +175,13 @@ Apple's own 20W USB-C charger is perfect for charging your iPhone or iPad. It ca
 [](https://www.amazon.com/dp/B087MFJY22?tag=hotoge-20&ascsubtag=UUhtgUeUpU208189&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F763880%2Fbest-phone-charger%2F&asc%5Fcampaign=Commerce)
 
 [![Amazon Basics charging brick near nightstand](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/12/apple-basics-charger.jpg) Amazon](https://www.amazon.com/dp/B087MFJY22?tag=hotoge-20&ascsubtag=UUhtgUeUpU208189&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F763880%2Fbest-phone-charger%2F&asc%5Fcampaign=Commerce)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [](https://www.amazon.com/dp/B087MFJY22?tag=hotoge-20&ascsubtag=UUhtgUeUpU208189&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F763880%2Fbest-phone-charger%2F&asc%5Fcampaign=Commerce) 
 
@@ -194,7 +200,21 @@ Apple's own 20W USB-C charger is perfect for charging your iPhone or iPad. It ca
 
 ![31VFT-nf8oS._SL160_](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/31vft-nf8os-_sl160_.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Best Wall Charger
 
@@ -211,6 +231,13 @@ The Amazon Basics four-port wall charger can power a tremendous number of device
 [](https://www.amazon.com/Anker-Wireless-PowerWave-Upgraded-Fast-Charging/dp/B07THHQMHM?tag=hotoge-20&ascsubtag=UUhtgUeUpU208189&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F763880%2Fbest-phone-charger%2F&asc%5Fcampaign=Commerce)
 
 [![](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/06/anker-wireless-charger.jpg) Anker](https://www.amazon.com/Anker-Wireless-PowerWave-Upgraded-Fast-Charging/dp/B07THHQMHM?tag=hotoge-20&ascsubtag=UUhtgUeUpU208189&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F763880%2Fbest-phone-charger%2F&asc%5Fcampaign=Commerce)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [](https://www.amazon.com/Anker-Wireless-PowerWave-Upgraded-Fast-Charging/dp/B07THHQMHM?tag=hotoge-20&ascsubtag=UUhtgUeUpU208189&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F763880%2Fbest-phone-charger%2F&asc%5Fcampaign=Commerce) 
 
@@ -232,10 +259,10 @@ The Amazon Basics four-port wall charger can power a tremendous number of device
 ![31tUwhz+bZL._SL500_-2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/31tuwhz-bzl-_sl500_-2.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
@@ -249,13 +276,6 @@ $12 $16 Save $4
 Charge Samsung Galaxy devices at up to 10W, iPhones at up to 7.5W, and other Qi-certified devices at 5W. You'll need to provide your own 5V/2A USB-A power adapter.
 
 [$12 at Amazon](https://www.amazon.com/Anker-Wireless-PowerWave-Upgraded-Fast-Charging/dp/B07THHQMHM?tag=hotoge-20&ascsubtag=UUhtgUeUpU208189&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F763880%2Fbest-phone-charger%2F&asc%5Fcampaign=Commerce) [Anker](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fus.anker.com%2Fproducts%2Fa2503-1%3Fvariant%3D37438743478422) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##  Best Car Charger: [AINOPE Dual USB-C and USB-A](https://www.amazon.com/Charger-AINOPE-Adapter-Compatible-Samsung/dp/B07RHSD9WM?tag=hotoge-20&ascsubtag=UUhtgUeUpU208189&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F763880%2Fbest-phone-charger%2F&asc%5Fcampaign=Commerce) 
 
@@ -281,6 +301,13 @@ Charge Samsung Galaxy devices at up to 10W, iPhones at up to 7.5W, and other Qi-
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Best Car Charger
 
 #####  AINOPE Dual USB-C and USB-A
@@ -296,13 +323,6 @@ Charge both USB-C and USB-A devices with up to 24W and 18W output respectively o
 [](https://www.amazon.com/Techsmarter-Charging-Detachable-Wireless-Compatible/dp/B08N3VS8F9?tag=hotoge-20&ascsubtag=UUhtgUeUpU208189&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F763880%2Fbest-phone-charger%2F&asc%5Fcampaign=Commerce)
 
 [![Techsmarter charging station on table](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/12/techsmarter-charging-station.jpg) Techsmarter](https://www.amazon.com/Techsmarter-Charging-Detachable-Wireless-Compatible/dp/B08N3VS8F9?tag=hotoge-20&ascsubtag=UUhtgUeUpU208189&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F763880%2Fbest-phone-charger%2F&asc%5Fcampaign=Commerce)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [](https://www.amazon.com/Techsmarter-Charging-Detachable-Wireless-Compatible/dp/B08N3VS8F9?tag=hotoge-20&ascsubtag=UUhtgUeUpU208189&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F763880%2Fbest-phone-charger%2F&asc%5Fcampaign=Commerce) 
 
@@ -323,21 +343,7 @@ Charge both USB-C and USB-A devices with up to 24W and 18W output respectively o
 
 ![417RE-BIl0S._SL160_](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/417re-bil0s-_sl160_.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Best Charging Station
 
@@ -362,19 +368,20 @@ Five USB-C and five USB-A ports with up to 100w fast charging and intelligent po
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-stream.techidaily.com/new-musical-mosaics-15-video-tutorials-on-collaborative-projects/"><u>[New] Musical Mosaics 15 Video Tutorials on Collaborative Projects</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-nighttime-captures-elevating-iphone-photos/"><u>[Updated] In 2024, Nighttime Captures Elevating iPhone Photos</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/building-a-strong-introduction-examples-and-methods-for-2024/"><u>Building a Strong Introduction Examples & Methods for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-xr-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone XR without iTunes? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-messages-after-vivo-t2-5g-has-been-deleted-by-fonelab-android-recover-messages/"><u>Recover your messages after Vivo T2 5G has been deleted</u></a></li>
-<li><a href="https://fox-metric.techidaily.com/step-by-step-guide-for-creating-a-full-windows-10-image-backup-on-external-hard-drives-with-dual-techniques/"><u>Step-by-Step Guide for Creating a Full Windows 10 Image Backup on External Hard Drives with Dual Techniques</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/subtitle-tips-for-instagram-tv-storytelling-for-2024/"><u>Subtitle Tips for Instagram TV Storytelling for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/transform-your-entertainment-space-with-samsung-qn55q6rafxza-the-smart-4k-uhd-hdr10plus-television/"><u>Transform Your Entertainment Space with Samsung QN55Q6#RAFXZA - The Smart, 4K UHD HDR10+ Television</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-samsung-galaxy-f34-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Samsung Galaxy F34 5G without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-evaluation-of-the-google-pixel-3-experience-true-android-magic/"><u>Ultimate Evaluation of the Google Pixel 3: Experience True Android Magic</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unboxing-is-an-ipad-a-smart-investment/"><u>Unboxing: Is an iPad a Smart Investment?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unleashing-power-a-comprehensive-look-at-the-beatit-bt-d11-jump-starter-review/"><u>Unleashing Power: A Comprehensive Look at the Beatit BT-D11 Jump Starter Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlock-premium-channel-quality-with-1byones-hdtv-amplified-indoor-antenna-smart-spend-for-crystal-clear-viewing/"><u>Unlock Premium Channel Quality with 1BYONE's HDTV Amplified Indoor Antenna – Smart Spend for Crystal Clear Viewing</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-learn-how-to-choose-a-proper-video-editor-for-videos-shot-by-canon-camcorders/"><u>Updated In 2024, Learn How to Choose a Proper Video Editor for Videos Shot by Canon Camcorders</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-discovering-an-original-tiktok-identifier-code/"><u>[New] In 2024, Discovering an Original TikTok Identifier Code</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-explore-sound-freedom-with-pazera-tools-an-up-to-date-review/"><u>[Updated] Explore Sound Freedom with Pazera Tools - An Up-to-Date Review</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-ideal-additions-to-maximize-gopro-potential/"><u>[Updated] In 2024, Ideal Additions to Maximize GoPro Potential</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/alexa-or-siri-showdown-a-deep-dive-into-echo-dot-vs-homepod-mini/"><u>Alexa or Siri Showdown: A Deep Dive Into Echo Dot Vs. HomePod Mini</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/assessing-hewlett-packards-economical-laptop-can-the-hp-15s-affordable-amd-processor-meet-your-needs/"><u>Assessing Hewlett-Packard’s Economical Laptop: Can the HP 15'S Affordable AMD Processor Meet Your Needs?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/auditory-purchases-5-key-specs-to-assess/"><u>Auditory Purchases: 5 Key Specs to Assess</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-2024-options-beyond-microsoft-office/"><u>Best 2024 Options Beyond Microsoft Office</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-routers-with-built-in-parental-control-features/"><u>Best Routers with Built-In Parental Control Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-analysis-of-the-tp-link-re200-wireless-range-expander-ac750/"><u>Budget-Friendly Analysis of the TP-Link RE200 Wireless Range Expander (AC750)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/can-motorola-edgeplus-compete-with-top-smartphone-contenders-a-detailed-review/"><u>Can Motorola Edge+ Compete with Top Smartphone Contenders? A Detailed Review</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/charting-a-path-to-monthly-earnings-from-youtube/"><u>Charting a Path to Monthly Earnings From YouTube</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-the-lock-screen-on-my-honor-x50-by-drfone-android-unlock-android-unlock/"><u>How to Unlock the Lock Screen on my Honor X50</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-unlocking-mac-recording-capabilities/"><u>In 2024, Unlocking Mac Recording Capabilities</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/remedy-inconsistent-volume-control-in-mobile-youtube/"><u>Remedy Inconsistent Volume Control in Mobile YouTube</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-examination-of-cambridge-sound-technologies-cxu-equipment-for-2024/"><u>Updated Examination of Cambridge Sound Technologies CXU Equipment for 2024</u></a></li>
 </ul></div>
 

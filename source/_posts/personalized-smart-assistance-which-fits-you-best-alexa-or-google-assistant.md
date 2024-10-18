@@ -1,7 +1,7 @@
 ---
 title: "Personalized Smart Assistance: Which Fits You Best, Alexa or Google Assistant?"
-date: 2024-10-09T19:36:21.505Z
-updated: 2024-10-12T17:52:18.085Z
+date: 2024-10-16T20:05:54.481Z
+updated: 2024-10-18T16:43:45.316Z
 categories:
   - BestProducts
 description: "This Article Describes Personalized Smart Assistance: Which Fits You Best, Alexa or Google Assistant?"
@@ -41,10 +41,10 @@ Lifewire / Rebecca Isaacs
 ![CumulusPRO Standing Desk Mat](https://www.lifewire.com/thmb/_gh2wSzGo19xAgSx1kfis_BvCRQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cumulus-Pro-Comfort-Mat-1-369ebfd4ce0e4e30853a3649a0c6badb.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
@@ -70,20 +70,27 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Simply modern**
 
  At 24 inches by 36 inches (LW), the CumulusPRO is a very wide mat, providing ample space for us to move and shift around in. It’s also very modern looking, as the top of the mat has a simple grey, wavy design that would accommodate most modern office spaces. This particular mat was very thin, at 0.75 inches. It wasn’t as slick on the bottom as some other mats we tested, which we felt was a huge perk. And on top of that, the edges are designed to taper downward, so that you needn’t worry about tripping as you step onto it.
 
 ![CumulusPRO Standing Desk Mat](https://www.lifewire.com/thmb/BLF6wQLJynPpwT_zlr5rT_J-LiQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cumulus-Pro-Comfort-Mat-3-2612dc3d381c449d91d0eb0b9e4b2853.jpg)
 
- Lifewire / Rebecca Isaacs
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Rebecca Isaacs
 
 ## **Comfort: A pleasant surprise**
 
@@ -99,22 +106,16 @@ In terms of versatility, the CumulusPRO mat is king.
 
  Another nice feature of the CumulusPRO is that we could wear heels and not damage it. While this may seem trivial, compared to other mats we tested, this was amazing for the ladies who like to wear heeled shoes.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Pretty steep for a mat**
 
  At around $80 on Amazon, the CumulusPRO is expensive for a mat that doesn’t come with extra surface features. However, taking into context its versatility around the office and the home, the price is actually a solid investment. If you decide you don’t want it in your office, but say, in the kitchen, it can easily be transplanted into other areas of the house or workplace.
-
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Ergodriven Topo vs. CumulusPRO Standing Desk Mat**
 
@@ -129,19 +130,6 @@ In terms of versatility, the CumulusPRO mat is king.
 **Great for the basics.**
 
  For a basic mat, the CumulusPRO is a solid choice. We especially liked how it hides dirt and can be used for those who prefer to wear high heels. Considering it’s a basic standing mat, its versatility is definitely worth the investment.
-
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -168,20 +156,24 @@ In terms of versatility, the CumulusPRO mat is king.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-fitness-forward-6-video-concepts-to-energize-your-online-community/"><u>[New] 2024 Approved Fitness Forward 6 Video Concepts to Energize Your Online Community</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-professional-insight-elevating-your-youtube-video-experience/"><u>2024 Approved Professional Insight Elevating Your YouTube Video Experience</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-xiaomi-redmi-note-12t-pro-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Xiaomi Redmi Note 12T Pro</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/al-detective-finding-and-watching-yt-archives/"><u>Digital Detective Finding and Watching YT Archives</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-master-your-visuals-with-optimal-dimensions/"><u>In 2024, Master Your Visuals with Optimal Dimensions</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-most-effective-ways-to-bypass-apple-iphone-7-plus-activation-lock-by-drfone-ios/"><u>In 2024, The Most Effective Ways to Bypass Apple iPhone 7 Plus Activation Lock</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-ins-and-outs-of-unlimited-wireless-with-metro-by-t-mobile-a-guide-to-nationwide-data-roaming-benefits/"><u>The Ins and Outs of Unlimited Wireless with Metro by T-Mobile: A Guide to Nationwide Data Roaming Benefits</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/the-way-to-cut-out-unwanted-onedrive-in-explorer/"><u>The Way to Cut Out Unwanted OneDrive in Explorer</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-smart-home-devices-a-detailed-review-of-the-ring-doorbell-plus/"><u>Top Rated Smart Home Devices: A Detailed Review of the Ring Doorbell Plus</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-google-pixel-4a-a-smartphone-that-exceeds-basic-needs/"><u>Unveiling the Google Pixel 4A: A Smartphone That Exceeds Basic Needs</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-latest-samsung-galaxy-chromebook-2-a-revolution-in-lightweight-computing/"><u>Unveiling the Latest Samsung Galaxy Chromebook 2 - A Revolution in Lightweight Computing</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-potential-and-pitfalls-of-the-lenovo-tab-p11-pro/"><u>Unveiling the Potential and Pitfalls of the Lenovo Tab P11 Pro</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/wander-far-stay-close-to-your-fur-ever-friends/"><u>Wander Far, Stay Close to Your Fur-Ever Friends</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/when-is-it-time-for-a-phone-change/"><u>When Is It Time for a Phone Change?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/why-microsoft-flight-simulator-x-gold-edition-ranks-as-one-of-the-ultimate-choices-for-pilots-and-gamers/"><u>Why Microsoft Flight Simulator X: Gold Edition Ranks as One of the Ultimate Choices for Pilots and Gamers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-uniting-your-feeds-posting-videos-from-twitter-on-snapchat-for-2024/"><u>[New] Uniting Your Feeds Posting Videos From Twitter on Snapchat for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-teachers-compendium-on-multimedia-pedagogy-for-2024/"><u>[Updated] The Teacher's Compendium on Multimedia Pedagogy for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-20-free-footage-sites-a-comprehensively-curated-list/"><u>[Updated] Top 20 Free Footage Sites A Comprehensively Curated List</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/effiziente-moglichkeiten-ihre-zwei-apple-computer-nahtlos-zu-verbinden/"><u>Effiziente Möglichkeiten, Ihre Zwei Apple-Computer Nahtlos Zu Verbinden</u></a></li>
+<li><a href="https://win11.techidaily.com/fix-the-missing-picture-in-teams/"><u>Fix the Missing Picture in Teams</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-f5-pro-5g-phone-without-pin-by-drfone-android/"><u>How to Unlock Poco F5 Pro 5G Phone without PIN</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-how-to-mute-audio-in-windows-movie-maker/"><u>New How to Mute Audio in Windows Movie Maker?</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-to-mend-non-functioning-fn-key-issues-in-lenovo-devices/"><u>Step-by-Step Guide to Mend Non-Functioning FN Key Issues in Lenovo Devices</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/taming-fiction-in-ai-outputs-employing-6-suggested-strategies/"><u>Taming Fiction in AI Outputs: Employing 6 Suggested Strategies</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-definitive-guide-to-apples-newest-marvel-the-iphone-12-review-for-tech-enthusiasts/"><u>The Definitive Guide to Apple's Newest Marvel - The iPhone 12 Review for Tech Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-elder-scrolls-v-skyrim-review/"><u>The Elder Scrolls V: Skyrim Review</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1723012296040-the-truth-revealed-assassins-creed-valhalla-release-update/"><u>The Truth Revealed: Assassin's Creed Valhalla Release Update!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-keeping-your-portable-powerhouse-cool-with-havits-innovative-5-fan-laptop-cooler/"><u>The Ultimate Guide to Keeping Your Portable Powerhouse Cool with HAVIT's Innovative 5-Fan Laptop Cooler</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-kobo-nia-can-it-outshine-the-kindle-from-amazon/"><u>The Ultimate Review of Kobo Nia - Can It Outshine the Kindle From Amazon?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-8-must-play-androidios-gaming-apps/"><u>Top 8 Must-Play Android/iOS Gaming Apps</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-mac-mouse-picks-of-2024-enhancing-your-computing-experience/"><u>Top Mac Mouse Picks of 2024 - Enhancing Your Computing Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-pick-for-cost-conscious-car-owners-the-apeman-c450-dashcam-uncovered/"><u>Top Pick for Cost-Conscious Car Owners: The Apeman C450 Dashcam Uncovered</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/transform-your-drive-with-the-lihan-lhfm1039-transmitter-bluetooth-fm-solution-tested-and-reviewed/"><u>Transform Your Drive with the Lihan LHFM1039 Transmitter - Bluetooth FM Solution Tested & Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-raspberry-pi-400-evaluation-unboxing-the-all-in-one-desktop-companion/"><u>Ultimate Raspberry Pi 400 Evaluation: Unboxing the All-in-One Desktop Companion</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of the TP-Link RE305 Wireless Network Enhancer (AC1200)
-date: 2024-10-11T17:24:27.147Z
-updated: 2024-10-12T18:55:12.339Z
+date: 2024-10-15T20:11:42.738Z
+updated: 2024-10-18T19:48:51.121Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of the TP-Link RE305 Wireless Network Enhancer (AC1200)
@@ -41,10 +41,10 @@ Lifewire / Claire Cohen
 ![TP-Link AC1200 Wi-Fi Range Extender RE305](https://www.lifewire.com/thmb/C8f1R4cMjb3MUZ1ViPdvQ67Q7tE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4LW4043312-0cb211cf35c746879e5136b3f9d62b63.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Claire Cohen
@@ -70,13 +70,6 @@ Lifewire / Claire Cohen
 
  We spent over a week testing it in our home, evaluating design, ease of setup and network performance.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design:** **Neither seen nor heard**
 
  The RE305 is quite small and unobtrusive, with a plastic white exterior and silver accents that’s meant to blend in, not stand out. At just 3.1 x 3.1 x 2.4 (LWH) inches unboxed and 6.4 ounces, it's one of the most diminutive Wi-Fi solutions on the market. That means it's simple to plug into a spare outlet anywhere your wireless signal needs bolstering.
@@ -88,13 +81,6 @@ Lifewire / Claire Cohen
  The RE305 is quite small and unobtrusive, with a plastic white exterior and silver accents that’s meant to blend in, not stand out.
 
  There's an[Ethernet port](https://www.lifewire.com/what-is-an-ethernet-port-817546) at the bottom of the device as well as a pinhole reset button, just in case it needs rebooted at any point. It's a bit awkward to hang an[Ethernet cord](https://www.lifewire.com/what-is-an-ethernet-cable-817548) from the extender depending on where you've placed it in your home, but it's a useful addition to bring Ethernet to a desktop, TV, or gaming console without having to put holes in your wall.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Simple and quick**
 
@@ -122,14 +108,14 @@ Lifewire / Claire Cohen
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/Lyz1QcuQDPYlUp5pPBJiL0YKSag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-2-5c9241dcc9e77c0001a92785.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Claire Cohen
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Clean and easy to understand**
 
@@ -145,6 +131,13 @@ Lifewire / Claire Cohen
 
  Lifewire / Claire Cohen
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Competition: More of the same**
 
  There are a variety of different extenders on the market with similar price points, and many are pricier, with fewer promised features and lesser range. If you’re looking to stay “on brand,” you might opt for competition such as the[Netgear EX3700](https://www.lifewire.com/netgear-ex3700-wifi-range-extender-ac750-review-4589551) , but there’s no real reason to do so when they offer a good amount of the same features for a similar price. We also found the RE305 to be much more aesthetically pleasing overall if that’s of importance to you.
@@ -156,6 +149,13 @@ Lifewire / Claire Cohen
 **A no-frills option for smaller homes.**
 
  The TP-Link AC1200 Wi-Fi Range Extender RE305 is a no-frills extender with supports dual-band Wi-Fi support and an Ethernet port for wired connectivity. It won’t fare well in homes beyond 2,000 square feet, but it's a value-priced extender that can be relied on at shorter ranges.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -190,20 +190,18 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-optimize-your-tweeted-videos-aspect-ratio-checklist/"><u>[Updated] In 2024, Optimize Your Tweeted Videos Aspect Ratio Checklist</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/amplifying-your-role-play-roblox-closeup-mastery-for-2024/"><u>Amplifying Your Role-Play Roblox Closeup Mastery for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/audiovisual-allure-crafting-irresistible-podcast-previews-for-2024/"><u>Audiovisual Allure Crafting Irresistible Podcast Previews for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-the-ultimate-5g-connectivity-with-the-samsung-galaxy-s20-fe-comprehensive-review/"><u>Experience the Ultimate 5G Connectivity with the Samsung Galaxy S20 FE - Comprehensive Review!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-timeless-elegance-and-modern-technology-skagen-falster-3-smartwatch-unveiled/"><u>Experience Timeless Elegance and Modern Technology - Skagen Falster 3 Smartwatch Unveiled</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/free-winx-media-converter-effortless-mp4mp3-format-transformation/"><u>Free WinX Media Converter: Effortless MP4/MP3 Format Transformation</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/getting-secure-without-breaking-the-bank-dive-into-our-comprehensive-analysis-of-the-iseebell-doorbell/"><u>Getting Secure without Breaking the Bank: Dive Into Our Comprehensive Analysis of the ISeeBell Doorbell</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/google-tv-chromecast-unveiled-is-it-time-to-switch-from-firestick/"><u>Google TV Chromecast Unveiled: Is It Time to Switch From Firestick?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/harmonious-entertainment-rokus-sound-plus-streaming-upgrade/"><u>Harmonious Entertainment: Roku's Sound + Streaming Upgrade</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Realme GT 3 | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-fix-a-broken-or-malfunctioning-microphone-in-turtle-beachs-elite-atlas-gaming-audio-system/"><u>How to Fix a Broken or Malfunctioning Microphone in Turtle Beach's Elite Atlas Gaming Audio System</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-oppo-find-n3-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Oppo Find N3 to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-mastering-the-migration-from-older-windows-to-11/"><u>In 2024, Mastering the Migration From Older Windows to 11</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-mirari-kid-friendly-alarm-clock-wake-up-solutions-for-little-ones/"><u>In-Depth Analysis: Mirari Kid-Friendly Alarm Clock – Wake Up Solutions for Little Ones</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>iPogo will be the new iSpoofer On Apple iPhone 12 mini? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-counterclockwise-playback-in-instagram-videos-for-2024/"><u>[Updated] Counterclockwise Playback in Instagram Videos for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/constructing-compelling-trailer-crafts/"><u>Constructing Compelling Trailer Crafts</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-honor-x9b-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Honor X9b Quickly? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-itel-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Itel A05s? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-honor-magic-6-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Honor Magic 6 Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-vertical-mouse-choices-for-optimal-comfort/"><u>Leading Vertical Mouse Choices for Optimal Comfort</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximize-your-internet-speeds-an-expert-review-of-the-swift-and-powerful-netgear-nighthawk-rax120/"><u>Maximize Your Internet Speeds: An Expert Review of the Swift and Powerful Netgear Nighthawk RAX120</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/omnicharges-versatile-charger-unleashed-a-detailed-review-of-the-omni-20-and-its-wireless-charging-prowess/"><u>Omnicharge's Versatile Charger Unleashed - A Detailed Review of the Omni 20 and Its Wireless Charging Prowess</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reviewing-the-thrills-of-online-gaming-in-nhl-2019/"><u>Reviewing the Thrills of Online Gaming in NHL 2019</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/riding-through-the-undead-chaos-critical-analysis-of-days-gone-video-game/"><u>Riding Through the Undead Chaos: Critical Analysis of 'Days Gone' Video Game</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/series-4-apple-watch-a-glimpse-into-cutting-edge-wearable-technology-reviewed/"><u>Series 4 Apple Watch: A Glimpse Into Cutting-Edge Wearable Technology Reviewed</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/smooth-out-windows-graphics-with-proper-card/"><u>Smooth Out Windows Graphics with Proper Card</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/solution-pour-la-sauvegarde-onedrive-des-fichiers-pst-resolus/"><u>Solution Pour La Sauvegarde OneDrive Des Fichiers PST Résolus</u></a></li>
 </ul></div>
 

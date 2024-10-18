@@ -1,7 +1,7 @@
 ---
 title: "New vs Old: Benchmarking Samsung's Latest - S23 vs S21 Ultra Unveiled"
-date: 2024-10-10T21:54:40.760Z
-updated: 2024-10-12T21:00:55.498Z
+date: 2024-10-17T17:21:28.612Z
+updated: 2024-10-18T19:16:04.238Z
 categories:
   - BestProducts
 description: "This Article Describes New vs Old: Benchmarking Samsung's Latest - S23 vs S21 Ultra Unveiled"
@@ -39,13 +39,6 @@ Lifewire / Andy Zahn
 
 3.9
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Garmin Vivoactive 3 Music
 
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/FeCJ-wziP0Qoo9-pmifuFx9oZ7E=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Garmin-Vivoactive-3-Music-Smart-Watch-1-a182a2ce6d214080bd38bdb1c85e49a1.jpg)
@@ -81,19 +74,20 @@ Lifewire / Andy Zahn
 
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/M4iaS5RgiaubncJH8F-ZLVQQ8Po=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivoactive-3-Music-Smart-Watch-2-a0cd2c48cc0d423d85a3dc1f7e677160.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Comfort: On the small side**
@@ -119,10 +113,10 @@ Lifewire / Andy Zahn
 The touchscreen interface is responsive, though a bit laggy.
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Battery: Variable duration**
@@ -132,10 +126,10 @@ The touchscreen interface is responsive, though a bit laggy.
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/NdBt6UHu7uQUfRZfJN5BzwIEad8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivoactive-3-Music-Smart-Watch-3-18b432ab56ac4ef284ba74ffd1ec7f82.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
@@ -156,6 +150,13 @@ The touchscreen interface is responsive, though a bit laggy.
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Reasonable value**
 
  At its MSRP of $249 the Garmin Vivoactive 3 Music is acceptably priced for the features it packs in. However, as it can often be found for around fifty dollars less than this, it's a great value if you can snag it at that discount.
@@ -169,13 +170,6 @@ The touchscreen interface is responsive, though a bit laggy.
  **The Garmin Vivoactive 3 Music is a fully-featured smartwatch overflowing with potential but saddled with annoying flaws.**
 
  There’s a lot to like about the Garmin Vivoactive 3 Music, It’s attractive, packed with features, and provides a deep level of fitness tracking. However, I could never fully enjoy using it due to its less than the optimal interface and laggy operation. This might be a good option if you are already invested in Garmin’s products, but for me it’s hard to ignore the flaws.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -207,19 +201,21 @@ The touchscreen interface is responsive, though a bit laggy.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-new-wave-for-sonys-s6700-blu-ray-player/"><u>[New] New Wave for Sony's S6700 Blu-Ray Player</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-simplified-approach-to-broadcasting-recorded-vids-on-social-media/"><u>[New] Simplified Approach to Broadcasting Recorded Vids on Social Media</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>How to Stop Life360 from Tracking You On Apple iPhone 12 mini? | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-audio-endings-how-to-decrease-volume-gradually-in-pp/"><u>In 2024, Audio Endings How to Decrease Volume Gradually in PP</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-macs-secret-shortcuts-to-instantaneous-screen-recording/"><u>In 2024, Mac's Secret Shortcuts to Instantaneous Screen Recording</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-rhythm-and-reel-incorporating-tunes-on-instagram/"><u>In 2024, Rhythm & Reel Incorporating Tunes on Instagram</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-is-nvidia-shield-tv-pro-the-perfect-streaming-console-for-hardcore-players/"><u>Review: Is Nvidia Shield TV Pro the Perfect Streaming Console for Hardcore Players?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/samsung-un65nu8000fxza-analysis-is-this-premium-smart-tv-worth-the-cost/"><u>Samsung UN65NU8000FXZA Analysis: Is This Premium Smart TV Worth the Cost?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/sealock-coastal-55-4k-ultra-hd-smart-outdoor-television-comprehensive-review/"><u>Sealock Coastal 55 4K Ultra HD Smart Outdoor Television - Comprehensive Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/status-bt-inspection-affordable-yet-marred-by-faults/"><u>Status BT Inspection: Affordable, Yet Marred by Faults</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/tested-and-reviewed-how-the-asus-rog-gt-ac5300-exceeds-gaming-and-technology-enthusiasts-expectations/"><u>Tested and Reviewed: How the Asus ROG GT-AC5300 Exceeds Gaming & Technology Enthusiast's Expectations</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-definitive-list-leading-smartwatches-to-watch/"><u>The Definitive List: Leading Smartwatches to Watch</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-and-repairing-a-nonworking-laptop-mic-completed/"><u>Troubleshooting and Repairing a Nonworking Laptop Mic [COMPLETED]</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-masterful-windows-10-top-new-apps-and-game-lineup-revealed-for-2024/"><u>[New] Masterful Windows 10 Top New Apps & Game Lineup Revealed for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-chart-your-course-navigating-the-waters-of-youtube-subscription-surges/"><u>[Updated] Chart Your Course Navigating the Waters of YouTube Subscription Surges</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/akaso-ek7000-pro-4k-action-camera-review/"><u>AKASO EK7000 Pro 4K Action Camera Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apc-back-ups-pro-1500va-review-plenty-of-power-outlets-and-hot-swappable-batteries/"><u>APC Back-UPS Pro 1500VA Review: Plenty of Power, Outlets, and Hot Swappable Batteries</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/display-settings-adjustment-in-windows-10/"><u>Display Settings Adjustment in Windows 10</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/explore-the-advantages-of-consulting-chatgpt-for-medical-insights-discover-7-compelling-reasons/"><u>Explore the Advantages of Consulting ChatGPT for Medical Insights – Discover 7 Compelling Reasons</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-graphical-enhancements-of-demons-souls-remaster-consistent-gaming-brilliance/"><u>Exploring the Graphical Enhancements of Demon's Souls Remaster: Consistent Gaming Brilliance</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-mastering-your-mac-a-complete-guide-to-leveraging-preview-features/"><u>In 2024, Mastering Your Mac A Complete Guide to Leveraging Preview Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-oculus-quest-2-superb-value-for-premium-vr-gaming/"><u>In-Depth Analysis of the Oculus Quest 2: Superb Value for Premium VR Gaming</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-the-alcatel-joy-tab-press-for-a-budget-discovering-the-wonders-of-this-affordable-lte-tablet/"><u>Is the Alcatel Joy Tab Press for a Budget? Discovering the Wonders of This Affordable LTE Tablet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/key-factors-to-evaluate-when-choosing-the-right-fitness-tracker-for-you/"><u>Key Factors to Evaluate When Choosing the Right Fitness Tracker for You</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-chatgpt-queries-learn-to-dodge-6-typical-mistakes/"><u>Mastering ChatGPT Queries: Learn to Dodge 6 Typical Mistakes</u></a></li>
+<li><a href="https://article-tips.techidaily.com/overcoming-airborne-vibration-phenomenon-for-2024/"><u>Overcoming Airborne Vibration Phenomenon for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/transform-your-viewing-pleasure-a-comprehensive-amazon-fire-tv-cube-evaluation/"><u>Transform Your Viewing Pleasure: A Comprehensive Amazon Fire TV Cube Evaluation</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/trasforma-file-ts-in-formato-mov-gratuitamente-online-con-movavi-effettuabile-senza-spese/"><u>Trasforma File .TS in Formato MOV Gratuitamente Online Con Movavi - Effettuabile Senza Spese</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/ultimate-streamers-guide-to-best-free-options-across-every-system/"><u>Ultimate Streamer's Guide to Best Free Options Across Every System</u></a></li>
 </ul></div>
 

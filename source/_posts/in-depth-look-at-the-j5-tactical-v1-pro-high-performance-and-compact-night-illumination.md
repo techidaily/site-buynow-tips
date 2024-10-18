@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Look at the J5 Tactical V1-Pro: High Performance & Compact Night Illumination"
-date: 2024-08-15T09:57:27.067Z
-updated: 2024-08-16T09:57:27.067Z
+date: 2024-10-15T19:57:10.793Z
+updated: 2024-10-18T16:10:25.018Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Look at the J5 Tactical V1-Pro: High Performance & Compact Night Illumination"
@@ -37,8 +37,12 @@ Lifewire / Jonno Hill
 3.2
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## AmazonBasics 7 Port USB 3.0
 
 ![AmazonBasics 7 Port USB 3.0](https://www.lifewire.com/thmb/lDufXTneOT2NDnXEOTNXauWZKtU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_HeroSquare-b4652c2651b5474f84409577b3760479.jpg)
@@ -70,9 +74,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: A clean look, with some awkward ports**
 
  Measuring 5.7 x 2.6 x 1.1 inches (HWD), the AmazonBasics 7 Port USB 3.0 Hub is not a particularly petite or compact device, but it does do itself some favors in the design department. The slanted body contains two connections on its left, one for the power and one for the USB-B port. On the back, you’ll find five standard USB 3.0 Type-A ports. The right side contains two fast-charge ports capable of supplying more than the standard power, so long as you’ve connected the hub to an outlet using the power cable. Finally, the top contains a simple blue LED, which lit up as soon as we connected the USB cable to the computer.
@@ -89,9 +90,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ## **Setup Process: No trouble at all**
 
  To begin using the AmazonBasics 7 Port USB 3.0 Hub, remove the main hub from its packaging and connect the supplied USB (A-to-B) cable to both the hub and your computer. Then connect the power source to an outlet. That should be all you need. If you encounter any issues, Amazon provides some basic troubleshooting steps in the manual.
@@ -99,8 +97,12 @@ Lifewire / Jonno Hill
  The AmazonBasics 7 Port USB 3.0 Hub is an otherwise capable device that is unfortunately marred by quality control issues and cheap construction.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Connectivity: A sufficient number of options**
 
  The AmazonBasics 7 Port USB 3.0 Hub comes with a three-foot USB (A-to\_B) cable to connect to your computer. This should be sufficient for most users, and worked well in our setup. An AC power adapter is included as well, and it comes with a fairly substantial power brick.
@@ -117,24 +119,28 @@ Lifewire / Jonno Hill
 
  The five ports in the back supply the standard 0.9A of power, whereas the ports on the side, designed for fast charging, can supply up to 1.5A.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: You get what you pay for**
 
  At a list price of $33.44, the AmazonBasics 7 Port USB 3.0 Hub isn’t a terrible deal, but given the materials used and the quality control issues, it’s definitely not an amazing deal. Buyers looking for a bit more might consider AUKEY’s 10-port powered hub or Amazon’s own AmazonBasics 10 Ports USB 3.0 Charging Hub Docking Station. Both these hubs offer more connections and dedicated power.
 
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/AnTpc7CmLFfbEILGIFkFiA9Ur2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_03-063f9486bd7045c18c0643276029f85e.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **AmazonBasics 7 Port USB 3.0 Hub vs. Aukey USB Hub 3.0**
 
  Those looking for a more compact device, or perhaps those more concerned with appearance and build quality, might consider Aukey’s 4-port USB 3.0 hub. This hub lacks the dedicated power that Amazon’s offering has, but comes at around half the price. Additionally, AUKEY’s hub has significantly better materials and build quality than Amazon’s plasticky device. Ultimately, the features that you need in your device will guide your purchase, but these are the considerations we think buyers should think about.
@@ -146,6 +152,13 @@ No advertising on the website.
 **A capable hub with some quality control issues.**
 
  The AmazonBasics 7 Port USB 3.0 Hub is an otherwise capable device that is unfortunately marred by quality control issues and cheap construction. That said, if you don’t care as much about design and construction quality, it might still be a good affordable option.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -161,14 +174,11 @@ No advertising on the website.
 * Compatibility  Windows 2000/Win XP/Vista/Windows 7 & Mac 10.1 up
 * Warranty  30 days
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -177,4 +187,24 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-best-webcams-elevating-podcast-aesthetics/"><u>[New] Best Webcams Elevating Podcast Aesthetics</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-momentum-in-pictures-a-curated-list-of-ig-motivation/"><u>[Updated] 2024 Approved Momentum in Pictures A Curated List of IG Motivation</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-winning-strategies-overlay-text-onto-photos-on-windows-mac/"><u>[Updated] 2024 Approved Winning Strategies Overlay Text Onto Photos on Windows, Mac</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-identifying-premium-hdr-camera-options-for-2024/"><u>[Updated] Identifying Premium HDR Camera Options for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-eliminating-noise-fixing-silent-sounds-in-obs-streams/"><u>2024 Approved Eliminating Noise Fixing Silent Sounds in OBS Streams</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-comprehensive-guide-to-sharing-your-gaming-library-with-friends-on-xbox-one/"><u>A Comprehensive Guide to Sharing Your Gaming Library with Friends on Xbox One</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-detailed-guide-to-the-samsung-qn55q60rafxza-the-pinnacle-of-smart-4k-uhd-televisions/"><u>A Detailed Guide to the Samsung QN55Q60RAFXZA: The Pinnacle of Smart, 4K UHD Televisions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-fossil-watches-top-reviews-and-amazing-value/"><u>Affordable Fossil Watches: Top Reviews and Amazing Value</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/getting-to-know-the-samsung-galaxy-budsplus-a-user-guide/"><u>Getting to Know the Samsung Galaxy Buds+: A User Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/golden-grounds-of-terrafirma-top-treasure-hunts-for-2024/"><u>Golden Grounds of Terrafirma Top Treasure Hunts for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-the-dbpower-600a-peak-battery-pack-with-18000mah-charges-on-the-go-detailed-analysis/"><u>How the DBPOWER 600A Peak Battery Pack with 18000mAh Charges on the Go - Detailed Analysis</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-poco-m6-pro-4g-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/most-value-packed-budget-4k-displays-reviews-and-comparisons/"><u>Most Value-Packed Budget 4K Displays - Reviews & Comparisons</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tbms-used-in-bored-tunneling-are-expensive-and-their-use-depends-on-the-tunnel-length-and-diameter/"><u>TBMs Used in Bored Tunneling Are Expensive, and Their Use Depends on the Tunnel Length and Diameter</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/utilizing-ai-chatgpts-role-in-advanced-3d-printing/"><u>Utilizing AI: ChatGPT's Role in Advanced 3D Printing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/versatile-bluetooth-speaker-discover-yamaha-mcr-b020bl/"><u>Versatile Bluetooth Speaker - Discover Yamaha MCR-B020BL</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-the-tp-link-archer-a9-is-an-unbeatable-choice-for-your-budget-in-depth-review/"><u>Why the TP-Link Archer A9 Is an Unbeatable Choice for Your Budget - In-Depth Review</u></a></li>
+</ul></div>
 

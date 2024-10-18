@@ -1,7 +1,7 @@
 ---
 title: Get Free, Crisp TV Channels with AmazonBasics' Flat Antenna – The Savvy Shopper’s Guide
-date: 2024-10-06T16:21:30.777Z
-updated: 2024-10-12T21:35:40.449Z
+date: 2024-10-11T18:01:27.228Z
+updated: 2024-10-18T21:16:27.732Z
 categories:
   - BestProducts
 description: This Article Describes Get Free, Crisp TV Channels with AmazonBasics' Flat Antenna – The Savvy Shopper’s Guide
@@ -37,16 +37,16 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -87,20 +87,13 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels (in a rural area)**
@@ -109,14 +102,14 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: 35 miles**
 
@@ -131,6 +124,13 @@ Lifewire / Erika Rawes
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -175,22 +175,20 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-core-skills-in-video-and-film-creation-for-2024/"><u>[New] Core Skills in Video and Film Creation for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-fix-chrome-non-playing-androidios-videos/"><u>[New] Fix Chrome Non-Playing Android/iOS Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-exploring-advanced-gloves-for-enhanced-vr-experience/"><u>[Updated] In 2024, Exploring Advanced Gloves for Enhanced VR Experience</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-ultimate-list-choosing-the-right-recorder-for-google-meet/"><u>[Updated] In 2024, Ultimate List Choosing the Right Recorder for Google Meet</u></a></li>
-<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-realme-c55-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Realme C55</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-6-plus-to-other-iphone-14-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 6 Plus To Other iPhone 14 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ranking-the-competition-how-the-nintendo-switch-sets-new-standards-in-on-the-go-gaming/"><u>Ranking the Competition: How the Nintendo Switch Sets New Standards in On-the-Go Gaming</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolved-critical-error-during-program-launch-fixing-the-application-failed-to-initialize-message-0xc000007b/"><u>Resolved: Critical Error During Program Launch - Fixing The 'Application Failed To Initialize' Message (0xC000007B)</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-of-the-modestly-powered-dell-inspiron-3671-desktop-is-it-a-middle-ground-machine/"><u>Review of the Modestly-Powered Dell Inspiron 3671 Desktop – Is It a Middle Ground Machine?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/sabrent-mini-travel-mouse-precision-and-cables-combine-for-an-effective-portable-mouse/"><u>Sabrent Mini Travel Mouse: Precision and Cables Combine for an Effective Portable Mouse</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/step-by-step-solution-to-correct-arduino-uno-driver-malfunctions-in-windows/"><u>Step-by-Step Solution to Correct Arduino Uno Driver Malfunctions in Windows</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/streamlined-productivity-with-hps-compact-stream-11-ideal-for-basic-daily-activities/"><u>Streamlined Productivity with HP's Compact Stream 11: Ideal for Basic Daily Activities</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-breakdown-of-apples-iphone-xs-max-top-choice-for-luxury-and-performance/"><u>The Ultimate Breakdown of Apple's iPhone XS Max - Top Choice for Luxury and Performance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-aeeusnys-lightweight-solar-generator-perfectly-suited-with-pure-sine-wave-for-critical-medical-tools/"><u>The Ultimate Guide to AEEUSNY's Lightweight Solar Generator: Perfectly Suited with Pure Sine Wave for Critical Medical Tools</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-choosing-a-durable-and-economical-case-for-your-macbook-pro-13-featuring-the-fintie-brand/"><u>The Ultimate Guide to Choosing a Durable and Economical Case for Your MacBook Pro 13 - Featuring the Fintie Brand</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-best-television-streaming-applications/"><u>The Ultimate Guide to the Best Television Streaming Applications</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/treasure-island-talkbook-a-guide-to-20-pirate-terms/"><u>Treasure Island Talkbook: A Guide to 20 Pirate Terms</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-direct-capture-tool-for-chrome-systems/"><u>[New] Direct Capture Tool for Chrome Systems</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-dissecting-the-lineage-of-microsofts-movie-maker-versions/"><u>2024 Approved Dissecting the Lineage of Microsoft's Movie Maker Versions</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/5-way-to-fix-the-virus-and-threat-protection-engine-unavailable-issue-in-windows-defender/"><u>5 Way to Fix the Virus & Threat Protection Engine Unavailable Issue in Windows Defender</u></a></li>
+<li><a href="https://fox-http.techidaily.com/elevating-media-quality-from-xmlssattml-to-premium-srt-for-2024/"><u>Elevating Media Quality From XML/SSA/TTML to Premium SRT for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/endless-black-screen-restore-win10/"><u>Endless Black Screen, Restore Win10</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/from-code-to-creativity-how-ai-is-changing-game-making/"><u>From Code to Creativity: How AI Is Changing Game Making</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-mastering-audio-streams-apple-podcasts-downloading/"><u>In 2024, Mastering Audio Streams Apple Podcasts Downloading</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-best-network-server-racks-and-enclosures-of-2024/"><u>The Best Network Server Racks and Enclosures of 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-best-of-both-worlds-high-end-specs-and-budget-friendly-cost-for-the-arcshell-ar-5-reviewed-here/"><u>The Best of Both Worlds: High-End Specs and Budget-Friendly Cost for the ArcShell AR-5 Reviewed Here</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-leading-choices-in-high-quality-large-area-mousepads-for-enhanced-computer-navigation-2e34-picks/"><u>The Leading Choices in High-Quality, Large Area Mousepads for Enhanced Computer Navigation - 2E34 Picks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-choices-for-high-performance-external-blu-ray-disc-burners-2024-rankings/"><u>Top Choices for High Performance External Blu-Ray Disc Burners - 2024 Rankings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-comparison-of-the-ipad-pro-and-macbook-pro-models/"><u>Ultimate Comparison of the iPad Pro and MacBook Pro Models</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/underwater-exploration-made-simple-with-insta360s-x2/"><u>Underwater Exploration Made Simple with Insta360's X2</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unlocking-the-true-worth-deciphering-the-essence-of-paperwork-on-abbyys-insights-hub/"><u>Unlocking the True Worth: Deciphering the Essence of Paperwork on ABBYY's Insights Hub</u></a></li>
 </ul></div>
 

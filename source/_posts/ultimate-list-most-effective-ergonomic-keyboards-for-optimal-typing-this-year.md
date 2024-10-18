@@ -1,7 +1,7 @@
 ---
 title: "Ultimate List: Most Effective Ergonomic Keyboards for Optimal Typing This Year"
-date: 2024-10-06T21:25:28.580Z
-updated: 2024-10-12T16:48:35.607Z
+date: 2024-10-17T16:02:09.684Z
+updated: 2024-10-18T21:11:18.535Z
 tags:
   - buying-guides
 categories:
@@ -78,10 +78,10 @@ Best Ergonomic Keyboard and Mouse Combo
  How-To Geek's product recommendations come from the same team of experts that have helped people fix their gadgets over one billion times. We only recommend the best products based on our research and expertise. We never accept payment to endorse or review a product. [Read More »](https://win-howtos.techidaily.com/resolving-unresponsive-mousepad-problems-on-windows-systems-windows-7810/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##  Best Ergonomic Keyboard Overall: [Keychron Q10 Alice 75%](https://www.amazon.com/Keychron-Swappable-Mechanical-Programmable-Ergonomic/dp/B0BW3W6S3S/?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce) 
@@ -107,13 +107,20 @@ _Keychron_
 
 ![keychron Q10](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/keychron-q10.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Best Ergonomic Keyboard Overall
@@ -125,13 +132,6 @@ Best Ergonomic Keyboard Overall
 The Keychron Q10 is both a fantastic mechanical keyboard and ergonomic keyboard. While there's a learning curve with the Alice layout, once you're over that hump it will be hard to go back.
 
 [See at Keychron](https://www.keychron.com/products/keychron-q10-alice-layout-qmk-custom-mechanical-keyboard) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##  Best Budget Ergonomic Keyboard: [Logitech K860](https://www.amazon.com/Logitech-Wireless-Ergonomic-Keyboard-Wrist/dp/B07ZWK2TQT/?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce) 
 
@@ -157,10 +157,10 @@ _Logitech_
 ![Logitech ERGO K860](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/10/logitech-ergo-k860.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
@@ -172,6 +172,13 @@ Best Budget Ergonomic Keyboard
 The Logitech ERGO K860 is a highly adjustable, features a split keyframe design, and comes with an wrist rest for added comfort.  
   
 [$130 at Amazon](https://www.amazon.com/Logitech-Wireless-Ergonomic-Keyboard-Wrist/dp/B07ZWK2TQT?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  Best Split Ergonomic Keyboard: [Logitech ERGO K860](https://www.amazon.com/Logitech-Wireless-Ergonomic-Keyboard-Wrist/dp/B07ZWK2TQT?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce) 
 
@@ -202,6 +209,13 @@ The Logitech ERGO K860 is a highly adjustable, features a split keyframe design,
 
 ![logitech ergo K860](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/logitech-ergo-k860.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 Best Split Ergonomic Keyboard
@@ -212,25 +226,11 @@ The Logitech ERGO K860 Bluetooth Keyboard is highly recommended for users who wa
 
 [$130 at Amazon](https://www.amazon.com/Logitech-Wireless-Ergonomic-Keyboard-Wrist/dp/B07ZWK2TQT?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce) [See at bestbuy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Flogitech__ergo_k860_%2F6395346.p%3FskuId%3D6395346) [See at Lenovo](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.lenovo.com%2Fus%2Fen%2Fp%2Faccessories-and-software%2Fkeyboards-and-mice%2Fkeyboards%2F78012409) 
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##  Best Wireless Ergonomic Keyboard: [Perixx Periboard-612](https://www.amazon.com/Perixx-Periboard-612-Ergonomic-Bluetooth-Compatible/dp/B07TKLB1ML?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce) 
 
 [](https://www.amazon.com/Perixx-Periboard-612-Ergonomic-Bluetooth-Compatible/dp/B07TKLB1ML?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce)
 
 [![Perixx Periboard on green background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/07/Perixx-Periboard-612.jpg) Perixx](https://www.amazon.com/Perixx-Periboard-612-Ergonomic-Bluetooth-Compatible/dp/B07TKLB1ML?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [](https://www.amazon.com/Perixx-Periboard-612-Ergonomic-Bluetooth-Compatible/dp/B07TKLB1ML?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce) 
 
@@ -283,16 +283,10 @@ _Logitech_
 ![logitech K380](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/logitech-k380.png) 
 
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
@@ -332,10 +326,10 @@ Logitech's most compact FLOW keyboard can fit into almost any laptop or tablet b
 ![logitech MK735](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/logitech-mk735.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
@@ -363,19 +357,16 @@ A major bang for your buck, this Logitech keyboard and mouse combination is frie
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-best-9-smartphone-video-call-solutions-iphone-vs-android-reviewed-for-2024/"><u>[New] Best 9 Smartphone Video Call Solutions IPhone vs Android Reviewed for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-optimizing-your-home-studio-for-online-broadcasts/"><u>[Updated] Optimizing Your Home Studio for Online Broadcasts</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-the-ultimate-powerdirector-24-review-a-comprehensive-dive/"><u>2024 Approved The Ultimate PowerDirector '24 Review A Comprehensive Dive</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-the-cutting-edge-technology-with-the-new-apple-iphone-15-pro/"><u>Experience the Cutting Edge Technology with the New Apple iPhone 15 Pro</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-unwavering-support-with-the-ergodyne-topo-review-standing-desk-mat-that-battles-fatigue/"><u>Experience Unwavering Support with the Ergodyne Topo Review: Standing Desk Mat that Battles Fatigue</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-advice-ensuring-perfection-by-previewing-your-website-before-uploading/"><u>Expert Advice: Ensuring Perfection by Previewing Your Website Before Uploading.</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expertly-curated-list-of-premium-quality-mice-compatible-with-macs-2024s-best-choices/"><u>Expertly Curated List of Premium-Quality Mice Compatible with Macs - 2024'S Best Choices</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-features-of-microsofts-latest-entry-the-economical-surface-laptop-go-reviewed/"><u>Exploring the Features of Microsoft's Latest Entry - The Economical Surface Laptop Go Reviewed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/from-studio-to-skyline-elevating-images-with-nixplays-iris-cloudtech/"><u>From Studio to Skyline: Elevating Images with Nixplay's Iris Cloudtech</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-apple-iphone-se-2022-for-mobile-legends-drfone-by-drfone-virtual-ios/"><u>How To Fake GPS On Apple iPhone SE (2022) For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/in-2024-enhancing-engagement-in-online-meetings-discover-the-best-vocal-effects-for-google-meet/"><u>In 2024, Enhancing Engagement in Online Meetings Discover the Best Vocal Effects for Google Meet</u></a></li>
-<li><a href="https://games-able.techidaily.com/lighteconomonitor-27m2v-hd-gamers-choice/"><u>LightEconoMonitor: 27M2V HD Gamers Choice</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/live-streaming-mastery-with-manycam-the-ultimate-virtual-camera-solution/"><u>Live Streaming Mastery with ManyCam: The Ultimate Virtual Camera Solution</u></a></li>
-<li><a href="https://windows11.techidaily.com/restoring-accessibility-to-essential-windows-command-center/"><u>Restoring Accessibility to Essential Windows Command Center</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-how-much-cash-can-you-score-for-watching-a-million-videos/"><u>[New] In 2024, How Much Cash Can You Score for Watching A Million Videos?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-mastering-the-height-final-cut-pro-x-techniques-for-instagram-video/"><u>[New] In 2024, Mastering the Height Final Cut Pro X Techniques for Instagram Video</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-youtube-video-shine-techniques-for-clearer-visuals/"><u>[New] In 2024, YouTube Video Shine Techniques for Clearer Visuals</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-video-mastery-step-by-step-guide-to-cropping-and-exporting-for-insta/"><u>2024 Approved Video Mastery Step by Step Guide to Cropping and Exporting for Insta</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/bringing-style-to-your-workspace-an-expert-look-at-the-modern-taotronics-tt-dl16-led-desk-lamp/"><u>Bringing Style to Your Workspace: An Expert Look at the Modern TaoTronics TT-DL16 LED Desk Lamp</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cheap-and-fast-why-ankers-powerdrive-is-unmatched-for-efficient-in-car-charging-solutions/"><u>Cheap and Fast: Why Anker’s PowerDrive Is Unmatched for Efficient In-Car Charging Solutions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-googles-revolutionary-voice-calling-feature/"><u>Comprehensive Analysis: Google's Revolutionary Voice Calling Feature</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-arlo-video-doorbell-analysis-uniting-security-and-convenience/"><u>Comprehensive Arlo Video Doorbell Analysis: Uniting Security and Convenience</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/demystifying-different-varieties-of-microsoft-windows-updates/"><u>Demystifying Different Varieties of Microsoft Windows Updates</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-step-by-step-guide-to-basic-ps-color-correction/"><u>In 2024, Step-by-Step Guide to Basic PS Color Correction</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-messages-back-from-itel-p55t-by-fonelab-android-recover-messages/"><u>Simple ways to get lost messages back from Itel P55T</u></a></li>
 </ul></div>
 

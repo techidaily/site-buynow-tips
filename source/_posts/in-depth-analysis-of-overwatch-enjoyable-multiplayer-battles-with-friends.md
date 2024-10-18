@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis of Overwatch: Enjoyable Multiplayer Battles with Friends"
-date: 2024-10-07T20:03:23.210Z
-updated: 2024-10-12T16:59:40.810Z
+date: 2024-10-16T19:29:09.131Z
+updated: 2024-10-18T18:21:34.355Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis of Overwatch: Enjoyable Multiplayer Battles with Friends"
@@ -42,6 +42,19 @@ Lifewire / James Huenink
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/23qFdg2CyjsEX1uFEK5ESBb8kO0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_HERO_1LW4065141_7_Final_Square-bd507bc5d1d646f9a0d8d7466601f569.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / James Huenink
 
 [View On Amazon](https://www.amazon.com/dp/B00OB883F6/?tag=lifewire-onsite-prod-20&ascsubtag=4784227%7Cnb8fa7df8bea04ca4a06f94beab613f8802%7CB00OB883F6)
@@ -65,6 +78,13 @@ Lifewire / James Huenink
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/YIcu00ga1PIrZWJzNk-mS5C4z-A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_5_Final_Horiz-23ef27f359f24e919ebb2f47f9089957.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / James Huenink
 
 ## **Design: Flimsy and difficult to use**
@@ -83,6 +103,19 @@ Lifewire / James Huenink
 
  It was easy to set up when we clipped it to a laptop, but terrible when we tried to put it on our HD TV. Every time we moved the computer or the USB cable, the camera slid, twisted, or fell off the TV. The ball joint, which connects the camera to the base, didn’t move smoothly, so we struggled to point the Docooler USB 2.0 12 Megapixel in the right direction, and we were too worried about breaking the plastic to try and force it.
 
+<!-- affiliate ads begin -->
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Camera Quality: Not even close to advertised**
 
  The Docooler USB 2.0 12 Megapixel is advertised as a 12 megapixel camera capable of HD video, but it wasn’t even close to that. We tested the resolution by taking photos through photobooth, and they were only 640 x 480, or .31 megapixels. We tested the video resolution by using an online webcam testing tool, and it showed exactly the same results. The manufacturer claims the camera has 38 times more resolution than it actually does. We should have known that the manufacturer’s claims were too good to be true given the $8 asking price, but claiming a disparity that huge is really brazen.
@@ -92,13 +125,6 @@ Lifewire / James Huenink
  We tested the camera’s field of view by placing it 13.5 inches from a wall and measuring the field of view, 8.25 inches. After running those measurements through some trigonometric calculations, we found that it has a 34 degree field of view. The camera also has a surprising amount of distortion. Vertical lines in the background had a significant tilt backwards, and we saw tremendous barrel distortion everywhere except for the very center of the image.
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/BxI5asxQavdUO5cT3iIpSIqM9Mk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_10_Final_Horiz-8acc6be9290c439496f17a63684115ae.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / James Huenink
 
@@ -114,23 +140,9 @@ Lifewire / James Huenink
 
  The audio performance of the Docooler USB 2.0 12 Megapixel was also lackluster. The built-in microphone produced poor quality sound, and when we tested it on Skype, voices were both muffled and echoey. People on the other end could understand what we were saying, but it was an unpleasant experience.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Cheap price, even cheaper webcam**
 
  The Docooler USB 2.0 12 Megapixel is the most inexpensive webcam you can buy, ranging from $8 up to around $15, but there’s a reason it’s priced so low. The image and audio quality are both terrible, and the camera is difficult to use.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Falls short**
 
@@ -147,10 +159,10 @@ Lifewire / James Huenink
  The Docooler USB 2.0 12 Megapixel is one of the most inexpensive cameras on the market for a reason. This camera doesn’t come close to delivering what it promises, meaning it's not worth even the trifle you'd pay for it.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -185,20 +197,17 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-optimizing-your-workflow-efficiently-editing-360-degree-videos-in-premiere-pro-for-2024/"><u>[New] Optimizing Your Workflow Efficiently Editing 360 Degree Videos in Premiere Pro for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-detailed-analysis-of-youtubes-versus-dailymentions/"><u>[Updated] 2024 Approved Detailed Analysis of YouTubes Versus DailyMentions</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-filmoras-rival-a-comprehensive-list-of-top-quality-template-collections/"><u>[Updated] Filmora's Rival A Comprehensive List of Top-Quality Template Collections</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-razer-book-13-ultraportable-laptop-that-packs-a-punch/"><u>Exploring the Razer Book 13: Ultraportable Laptop That Packs a Punch</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/filler-material-must-be-compatible-with-base-metals-to-prevent-defects/"><u>Filler Material Must Be Compatible with Base Metals to Prevent Defects.</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/get-the-best-bang-for-your-buck-with-these-fantastic-fossil-brand-reviews/"><u>Get The Best Bang For Your Buck with These Fantastic Fossil Brand Reviews!</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Motorola Edge 40 Pro | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-easy-steps-on-how-to-create-a-new-apple-id-account-on-iphone-6s-plus-drfone-by-drfone-ios/"><u>In 2024, Easy Steps on How To Create a New Apple ID Account On iPhone 6s Plus | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-cat-s42-superior-armor-for-your-communications-with-a-tradeoff-in-velocity/"><u>In-Depth Look at the CAT S42: Superior Armor for Your Communications with a Tradeoff in Velocity</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/inventory-of-videography-items-for-exploration/"><u>Inventory of Videography Items for Exploration</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/is-youtube-tv-worth-it-5-reasons-to-sign-up/"><u>Is YouTube TV Worth It? 5 Reasons to Sign Up</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/kindle-oasis-2019-evaluation-a-game-changer-in-mimicking-traditional-reading-experience/"><u>Kindle Oasis (2019) Evaluation: A Game-Changer in Mimicking Traditional Reading Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lg-k92-the-pros-and-cons-of-paying-up-for-its-5g-connectivity/"><u>LG K92 - The Pros and Cons of Paying Up for Its 5G Connectivity</u></a></li>
-<li><a href="https://fox-within.techidaily.com/modify-sccm-policy-configuration-interface/"><u>Modify SCCM Policy Configuration Interface</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-from-start-to-finish-flipping-a-clip-in-final-cut-pro-in-4-steps/"><u>Updated From Start to Finish Flipping a Clip in Final Cut Pro in 4 Steps</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-google-meet-on-youtube-streaming-made-easy-step-by-step/"><u>[New] In 2024, Google Meet on YouTube Streaming Made Easy, Step by Step</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-essential-insights-how-to-choose-among-the-top-9-free-youtube-makers/"><u>[Updated] Essential Insights How to Choose Among the Top 9 Free YouTube Makers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-maximize-your-media-a-review-of-top-youtube-downloader-software/"><u>[Updated] In 2024, Maximize Your Media A Review of Top YouTube Downloader Software</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-seamless-backdrop-switches-for-google-meet-users-for-2024/"><u>[Updated] Seamless Backdrop Switches for Google Meet Users for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-streamline-your-storage-download-vimeo-videos-in-mp4-formats/"><u>[Updated] Streamline Your Storage Download Vimeo Videos in MP4 Formats</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-spectrum-of-immersive-tech-vr-vs-ar-and-more/"><u>2024 Approved The Spectrum of Immersive Tech VR Vs. AR and More</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-honor-play-8t-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Honor Play 8T For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sleek-design-meets-bright-performance-the-ultimate-guide-to-the-taotronics-tt-dl16-led-lamp/"><u>Sleek Design Meets Bright Performance - The Ultimate Guide to the TaoTronics TT-DL16 LED Lamp</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/spo0a-is-a-key-transcriptional-regulator-that-activates-the-sporulation-pathway-in-response-to-environmental-stress-signals/"><u>Spo0A Is a Key Transcriptional Regulator that Activates the Sporulation Pathway in Response to Environmental Stress Signals.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/stanley-j5c09-a-comprehensive-overview-of-this-powerful-spacious-chopper/"><u>Stanley J5C09 - A Comprehensive Overview of This Powerful, Spacious Chopper</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/streamlined-speed-meets-elegant-design-with-the-aukey-usb-30-hub-review/"><u>Streamlined Speed Meets Elegant Design with the Aukey USB 3.0 Hub Review</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlocking-apple-iphone-xs-lock-screen-3-foolproof-methods-that-actually-work-drfone-by-drfone-ios/"><u>Unlocking Apple iPhone XS Lock Screen 3 Foolproof Methods that Actually Work | Dr.fone</u></a></li>
 </ul></div>
 

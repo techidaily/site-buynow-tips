@@ -1,7 +1,7 @@
 ---
 title: Why the TP-Link Archer C9 Stands Out in Budget Routers Market
-date: 2024-10-07T21:45:55.187Z
-updated: 2024-10-12T18:36:34.073Z
+date: 2024-10-12T19:03:25.800Z
+updated: 2024-10-18T17:13:46.556Z
 categories:
   - BestProducts
 description: This Article Describes Why the TP-Link Archer C9 Stands Out in Budget Routers Market
@@ -63,13 +63,6 @@ Lifewire / Erika Rawes
 
  The TP-Link Archer A9 is one of the brand’s[more popular routers](https://www.lifewire.com/best-long-range-routers-4122554) because of the features it offers at a low price point. With technologies like[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) compatibility and[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , the Archer A9 should be convenient and project a Wi-Fi signal over a long range. These days, with more and more households containing home offices, multiple streaming devices, and several smart home products, how does the Archer A9 hold up? I tested the TP-Link Archer A9 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Basic, but clever**
 
  There’s nothing striking about the design of the Archer A9\. It’s gloss black, with indicator lights on the front and the ports, power switch, WPS button, and antennas located in the back. The gloss finish fingerprints and smudges easily, so I would have rather seen a matte finish, but the A9 has an intelligent design otherwise. The branding is small—not tacky or obtrusive—and the A9’s venting is cleverly designed. Instead of just having vent holes conspicuously covering the device, it has recesses that segment the router into three portions and hide the venting. The venting recesses look purposeful, and they enhance A9’s aesthetic instead of taking away from the design.
@@ -83,10 +76,10 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity: Dual Band AC1900**
@@ -105,20 +98,27 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/FTFFrgOH8v5VhGXgjmzgjTUMPNA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_03-ec9553f0029b4f2fba363745ab7b9778.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Network Performance: Not bad**
 
  I live in a suburb about 20 miles outside of Raleigh, NC, and I have Spectrum (a Charter company) as my internet service provider. Internet speeds in my home max out at 400 Mbps.
 
  In the same room as the router, speeds were excellent (naturally), getting up to 352 Mbps on the 5 Ghz band and 76 Mbps on the 2.4 Ghz band. I traveled upstairs, and speeds clocked in at a respectable 124 Mbps on the 5Ghz band and 36 Mbps over 2.4 Ghz. The signal remained strong almost everywhere in my two-level home, even in areas like closets, and many other places that could conceivably be Wi-Fi dead zones. However, I experienced a few slow zones in my garage, and in a guest room located on the opposite side of the home. I also experienced a spotty connection in the yard. The signal degraded significantly around the home’s exterior, so if you like to use your devices outside, you’ll want to invest in a[Wi-Fi extender](https://www.lifewire.com/best-wifi-extenders-4043312) , or go with a different router entirely.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: Around 2,000 square feet (give or take)**
 
@@ -129,10 +129,10 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: Tether app**
@@ -145,6 +145,13 @@ Lifewire / Erika Rawes
 
  You can say things like, “Alexa, ask TP-Link to enable guest network” or “Alexa, ask TP-Link to prioritize gaming.”
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Under $100**
 
  The Archer A9 sells on Amazon for under $100\. For a router with its feature set, this is an exceptional value.
@@ -152,13 +159,6 @@ Lifewire / Erika Rawes
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/OshgKkDe7GvQPFAb_AgVDAYTF_4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_04-65a3ae04454e40c3865f1d426bcb36db.jpg)
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **TP-Link Archer A9 vs. Netgear AC2300 Nighthawk Smart Wi-Fi Router**
 
@@ -205,21 +205,19 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-chorus-chronicles-a-guide-to-audio-selection-for-ig/"><u>[Updated] Chorus Chronicles A Guide to Audio Selection for IG</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discovering-delight-unveiling-the-joy-of-pokemon-shining-pearl/"><u>Discovering Delight: Unveiling the Joy of Pokémon Shining Pearl</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/effective-fixes-top-5-easy-methods-for-opening-and-playing-iso-images-on-your-computer/"><u>Effective Fixes: Top 5 Easy Methods for Opening and Playing ISO Images on Your Computer</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-swagtrons-chic-and-modern-electric-commuting-scooter/"><u>Evaluating Swagtron’s Chic and Modern Electric Commuting Scooter</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-versatility-hp-chromebook-11-as-your-ideal-study-office-and-recreation-companion/"><u>Evaluating Versatility: HP Chromebook 11 as Your Ideal Study, Office & Recreation Companion</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-evaluation-pros-and-cons-of-apples-latest-smartwatch-technology/"><u>Expert Evaluation: Pros and Cons of Apple's Latest Smartwatch Technology</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-insight-on-the-samsung-galaxy-a71-5g-savvy-substitute-for-high-end-flagships/"><u>Expert Insight on the Samsung Galaxy A71 5G - Savvy Substitute for High-End Flagships</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expertly-curated-best-photodocument-scanners/"><u>Expertly Curated Best Photo/Document Scanners</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-google-tvs-chromecast-is-it-time-to-ditch-the-firestick/"><u>Exploring Google TV's Chromecast – Is It Time to Ditch the Firestick?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/flawlessbackgroundfixer-premium-photo-editing-app-for-2024/"><u>FlawlessBackgroundFixer Premium Photo Editing App for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-expressive-echoes-mastering-snapchats-cartoon-face-effects/"><u>In 2024, Expressive Echoes Mastering Snapchat's Cartoon Face Effects</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On OnePlus Nord CE 3 5G? | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/lost-voice-troubleshoot-microphone-errors-in-google-meet-windows/"><u>Lost Voice? Troubleshoot Microphone Errors in Google Meet (Windows)</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/smart-contract-functionality-a-game-changer-for-decentralization/"><u>Smart Contract Functionality: A Game-Changer for Decentralization</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/tiktok-number-modification-easy-to-follow-steps/"><u>TikTok Number Modification Easy to Follow Steps</u></a></li>
-<li><a href="https://video-capture.techidaily.com/twitch-livestream-hacks-to-boost-engagement-and-followers-for-2024/"><u>Twitch Livestream Hacks to Boost Engagement and Followers for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-discover-the-power-of-youtube-editing-a-compre-written-in-code-the-intricacies-of-javascript-functions/"><u>[Updated] Discover the Power of YouTube Editing A Compre Written in Code The Intricacies of JavaScript Functions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/canons-camera-revolution-the-mighty-yet-convenient-sx620/"><u>Canon's Camera Revolution: The Mighty yet Convenient SX620</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparative-breakdown-of-the-economical-apple-watch-se/"><u>Comparative Breakdown of the Economical Apple Watch SE</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-on-lensdirects-anti-blue-light-spectacles-for-vision-correction/"><u>Comprehensive Guide on LensDirect’s Anti-Blue Light Spectacles for Vision Correction</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-navigating-the-pros-and-cons-of-the-swagtron-swagboard-t1-roller-skates/"><u>Comprehensive Review: Navigating the Pros and Cons of the Swagtron Swagboard T1 Roller Skates</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cracking-the-code-to-cookery-combat-an-in-depth-review-of-overcooked-2/"><u>Cracking the Code to Cookery Combat: An In-Depth Review of Overcooked! 2</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/critical-insights-on-googles-pixel-slate-and-its-chromeos-woes/"><u>Critical Insights on Google's Pixel Slate and Its ChromeOS Woes</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-realme-narzo-n55-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Realme Narzo N55 Devices</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-any-oneplus-nord-n30-se-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any OnePlus Nord N30 SE Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-google-pixel-8-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Google Pixel 8 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-poco-c65-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Poco C65 Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/navigating-the-challenges-of-iphone-ios-18-upgrade-insights-and-regrets-from-a-community-perspective/"><u>Navigating the Challenges of iPhone iOS 18 Upgrade: Insights and Regrets From a Community Perspective</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/sns-vs-competitors-a-critical-hdr-software-comparison-for-2024/"><u>SNS vs Competitors A Critical HDR Software Comparison for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/the-insiders-guide-to-flawless-game-recordings-on-playstation-4-for-2024/"><u>The Insider’s Guide to Flawless Game Recordings on PlayStation 4 for 2024</u></a></li>
 </ul></div>
 

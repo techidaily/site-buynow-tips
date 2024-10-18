@@ -1,7 +1,7 @@
 ---
 title: The Definitive Ranking of Mini PCs Tailored for the Modern Gamer
-date: 2024-08-15T09:55:17.308Z
-updated: 2024-08-16T09:55:17.308Z
+date: 2024-10-11T19:29:55.581Z
+updated: 2024-10-18T20:33:27.930Z
 categories:
   - BestProducts
 description: This Article Describes The Definitive Ranking of Mini PCs Tailored for the Modern Gamer
@@ -40,8 +40,12 @@ Lifewire / Bill Thomas
 ## Netgear C3700 Cable Modem Router
 
 ![Netgear C3700](https://www.lifewire.com/thmb/CWSAqFXf9klr-Fs5mU-YkCpwF9Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-5-1-668cca140a8e4c1ba59c13f4f2a8d8ec.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Bill Thomas
@@ -68,6 +72,13 @@ Lifewire / Bill Thomas
 
  We got our hands on the Netgear C3700 for testing and put it through the wringer to see whether or not it’s worth your cash, and what kind of performance you can expect.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Small and inconspicuous
 
  With a device that packs[both a cable modem and a wireless router](https://www.lifewire.com/best-cable-modem-router-combos-to-buy-4082541) , you might expect the Netgear C3700 to be a bulky device, but that’s not the case. It’s actually quite small, measuring just 7.6 inches high and weighing a scant 0.77 pounds. This, combined with the low-key black finish and lack of external antennas means that it won’t stick out, no matter where you put it.
@@ -75,29 +86,37 @@ Lifewire / Bill Thomas
  This definitely works in the Netgear C3700’s favor. The[wireless performance](https://www.lifewire.com/ways-to-boost-a-wifi-signal-818296) is already weak (which we’ll go into a bit later), so the fact that you can leave it out and unobscured is a benefit.
 
 ![Netgear C3700](https://www.lifewire.com/thmb/kBtdcSRxoIsQvqmnO6OVYnfZ9z8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-4-ad3408c39a524e14a6cebcce10d3be44.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/sNdotwRQaaANrcOOFjoNRrlmeak=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-3-24f328c303ef44929cc9f49334ac5fb8.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/zfaMhW3pqkYXVuVTQM9Swnx9cQk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-5-a204a239cbd549c9b5949b2536b49ff8.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Setup: Nice and simple
 
  If you’ve ever set up a cable modem, then you’ll breeze through the setup on the C3700\. We just unplugged our existing cable modem, plugged all the cables into this new one, and waited for the lights to turn on. Then all we had to do was phone our ISP to activate it.
@@ -116,9 +135,6 @@ Lifewire / Bill Thomas
 
  There is also a USB 2.0 port around the back where you can plug in a hard drive or a printer for network access.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ## Network Performance: Great when wired, but wireless speeds lag
 
  We didn’t exactly have high hopes for the C3700 and its N600 wireless rating. At its peak during testing, we reached wireless speeds of 130Mbps, but that didn’t last—with multiple devices connected and in use, we were seeing speeds as low as 40Mbps just a few feet away from the router.
@@ -131,9 +147,6 @@ Lifewire / Bill Thomas
 
  Lifewire / Bill Thomas
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Software: No frills
 
  We prefer a network backend that’s straight to the point, and that’s exactly what we got with the Netgear C3700.
@@ -143,6 +156,13 @@ Lifewire / Bill Thomas
  We were able to click over into the “advanced” tab to gain access to more robust controls, but this shouldn’t be necessary for most users. Power users will probably appreciate the fine controls.
 
  You can also download the Netgear Genie app on your phone, which allows you to manage your network from a more attractive interface. Much of the same functionality is here, but it might be a more approachable interface for those who don’t really know where to start with their router settings.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Price: It pays for itself
 
@@ -190,8 +210,6 @@ Lifewire / Bill Thomas
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -199,4 +217,26 @@ Lifewire / Bill Thomas
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-innovation-at-the-heart-the-evolution-of-magix-music-maker/"><u>[New] In 2024, Innovation at the Heart The Evolution of Magix Music Maker</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-the-creme-de-la-fluid-simulation-games-for-2024/"><u>[New] The Crème De La Fluid Simulation Games for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/acurite-pro-01036m-weather-station-overview-effortless-installation-and-durable-construction/"><u>AcuRite Pro 01036M Weather Station Overview: Effortless Installation & Durable Construction</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/analyzing-the-power-and-value-a-thorough-review-of-the-google-pixel-4a-5g-for-savvy-shoppers/"><u>Analyzing the Power and Value: A Thorough Review of the Google Pixel 4a (5G) for Savvy Shoppers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-gaming-options-to-keep-boredom-at-bay-a-list-of-the-top-10/"><u>Best Gaming Options to Keep Boredom at Bay: A List of the Top 10</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-powerhouse-the-apple-ipad-air-4-exposed/"><u>Budget-Friendly Powerhouse: The Apple iPad Air 4 Exposed!</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/complete-tutorial-for-viewing-and-modifying-pages-files-using-pc-software/"><u>Complete Tutorial for Viewing & Modifying Pages Files Using PC Software</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Samsung Galaxy S24+? | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-guide-to-downloading-and-updating-your-epson-l3150-driver-for-all-windows-versions/"><u>Easy Guide to Downloading and Updating Your Epson L3150 Driver for All Windows Versions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-most-advanced-law-enforcement-wearables/"><u>Exploring the Most Advanced Law Enforcement Wearables</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-repair-and-restore-a-non-functional-microphone-on-windows-11-pcs/"><u>How to Repair and Restore a Non-Functional Microphone on Windows 11 PCs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/masterful-creations-with-the-xp-pen-artist-16-pro-a-detailed-reveal-and-review/"><u>Masterful Creations with the XP-Pen Artist 16 Pro: A Detailed Reveal and Review</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/navigating-the-nuances-of-premieres-fullscreen-mode-for-2024/"><u>Navigating the Nuances of Premiere's Fullscreen Mode for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/revolutionary-modifications-elevate-your-computer-experience-for-2024/"><u>Revolutionary Modifications Elevate Your Computer Experience for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-nubia-red-magic-8s-proplus-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Nubia Red Magic 8S Pro+ ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-all-in-one-effortless-portability-of-the-new-samsung-galaxy-fit2-band/"><u>The All-in-One, Effortless Portability of the New Samsung Galaxy Fit2 Band</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723061679336-top-ranking-smart-speaker-picks-for-2/"><u>Top-Ranking Smart Speaker Picks for 2</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-strengths-of-moto-g-power-robust-performance-backed-by-extended-battery-life/"><u>Unveiling the Strengths of Moto G Power: Robust Performance Backed by Extended Battery Life</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/videocaptureelite-10-expert-technical-review/"><u>VideoCaptureElite 10 Expert Technical Review</u></a></li>
+</ul></div>
 

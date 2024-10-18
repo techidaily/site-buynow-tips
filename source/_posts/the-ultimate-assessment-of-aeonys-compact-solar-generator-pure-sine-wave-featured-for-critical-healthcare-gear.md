@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Assessment of Aeonys' Compact Solar Generator: Pure Sine Wave Featured for Critical Healthcare Gear"
-date: 2024-08-15T09:55:48.895Z
-updated: 2024-08-16T09:55:48.895Z
+date: 2024-10-17T21:09:12.397Z
+updated: 2024-10-18T20:28:27.720Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate Assessment of Aeonys' Compact Solar Generator: Pure Sine Wave Featured for Critical Healthcare Gear"
@@ -38,9 +38,6 @@ Lifewire / Jeremy Laukkonen
 
 4.3
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Extollo LANSocket 1500 Powerline Adapter
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/KabMCV8f8k1Pxtd-vhM86zkedrw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-HeroSquare-41f20e9c72b84bfd92f578807ae1edaf.jpg)
@@ -73,9 +70,6 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Big, bulky, and basic, with a filtered pass-through**
 
  Extollo won’t win any awards for the basic, blocky design of the LANSocket 1500 adapters. They’re big, plastic, white, and take up a lot of space. That’s somewhat mediated by the inclusion of a pass-through electrical socket, which is a really nice touch.
@@ -90,6 +84,13 @@ Lifewire / Jeremy Laukkonen
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/Ahhqweppp7LoE4s2gervkZuyOS8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-04-e086de486a5a4e16ac16cff8ae813b22.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 ## **Setup Process: Pain-free plug and play**
@@ -103,26 +104,37 @@ Lifewire / Jeremy Laukkonen
  At that point, you’re done. The LANSocket 1500 adapters will automatically connect, establish your powerline network, and you’re good to go. You can add additional adapters elsewhere in your house, up to a total of 16, to connect more devices to your network.
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/BvO_NJ8pdby7NqO2Fq-orJ_NbFI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-02-40358222569c4a55b4d04e7aadf01af7.jpg)
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity: MIMO with beamforming**
 
  The Extollo LANSocket 1500 powerline adapters use the HomePlug AV2 specification, which includes support for[multi-in, multi-out (MIMO)](https://www.lifewire.com/mimo-wifi-routers-818332) with beamforming, which increases both speed and the allowable distance between adapters. This is a significant improvement over the HomePlug AV specification, which is slower and requires you to place your adapters more closely together.
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/B7pek1jOL0gtn-sl7QsuHcO3_CU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-03-04f860db31f049e1a2ecb40196f7aaf7.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Network Performance: Blazing fast and low latency**
 
  These adapters are theoretically capable of providing a[Gigabit Ethernet](https://www.lifewire.com/definition-of-gigabit-ethernet-816338) connection, but actual speeds depend on the state of the wiring in your home. You are very unlikely to see Gigabit speeds, and we certainly didn’t, but the LANSocket 1500 adapters are still quite fast.
@@ -158,8 +170,12 @@ Lifewire / Jeremy Laukkonen
  Since the LANSocket 1500 adapters are so easy to use, and provide such a high level of performance, it’s our judgment that they’re worth the $10 or so premium you’ll typically pay compared to similar competitors.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Competition: Wins on transfer speeds with some security concerns**
 
  The LANSocket 1500 adapters compare very favorably to the competition in terms of transfer speed and latency. They do come with the added concern over security, due to the fact that they run on embedded Linux, but that’s easy enough to deal with if you have a firewalled router.
@@ -183,8 +199,12 @@ Lifewire / Jeremy Laukkonen
  The Extollo LANSocket 1500 checks all the right boxes, with some of the highest speeds on the market, a pass-through electrical socket, and a decent price. The high speeds and low latency make this kit a good choice if you need to connect a game console, and the extra memory allowed by the use of Linux really helps out if you stream a lot of video, just be wary of security considerations.
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  LANSocket 1500 Powerline Adapter
@@ -200,14 +220,11 @@ Lifewire / Jeremy Laukkonen
 * Chipset  Broadcom BCM60500
 * Parental Controls  No
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -216,4 +233,26 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-craft-engaging-videos-with-7-free-premium-soundscapes-for-2024/"><u>[New] Craft Engaging Videos with 7 Free, Premium Soundscapes for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-prime-strategies-for-constructing-mcc-homes/"><u>[New] In 2024, Prime Strategies for Constructing MCC Homes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-top-10-portable-tools-dominating-video-editing-landscape/"><u>[Updated] In 2024, Top 10 Portable Tools Dominating Video Editing Landscape</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-budget-friendly-recorder-choices-for-youtube-vloggers/"><u>2024 Approved Budget-Friendly Recorder Choices for YouTube Vloggers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apples-updated-most-economical-pad-the-ipad-10nch-8th-gen-reviewed/"><u>Apple's Updated Most Economical Pad - The iPad 10.nch (8Th Gen) Reviewed!</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-the-cycle-how-to-stop-using-facebook-daily/"><u>Break the Cycle: How to Stop Using Facebook Daily</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-netgear-c3700-dual-band-cabledsl-modem-router/"><u>Comprehensive Evaluation of Netgear C3700 Dual-Band Cable/DSL Modem-Router</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-the-maxoak-battery-pack-the-diyers-dream-for-uninterrupted-power-on-the-go/"><u>Comprehensive Guide to the MaxOak Battery Pack - The DIYer's Dream for Uninterrupted Power On-the-Go</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-how-does-the-samsung-galaxy-fit-stand-up-to-active-lifestyles/"><u>Expert Review: How Does the Samsung Galaxy Fit Stand Up to Active Lifestyles?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/expert-tips-on-handling-winhttpdll-file-missing-errors-on-your-windows-pc/"><u>Expert Tips on Handling Winhttp.dll File Missing Errors on Your Windows PC</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/future-proof-internet-solutions-top-cable-modem-picks/"><u>Future-Proof Internet Solutions: Top Cable Modem Picks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/garmin-forerunner-945-review/"><u>Garmin Forerunner 945 Review</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-economical-drones-reviewed-best-under-a-hundred-bucks/"><u>In 2024, Economical Drones Reviewed Best Under a Hundred Bucks</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-iphone-x-with-forgotten-passcode-different-methods-you-can-try-drfone-by-drfone-ios/"><u>In 2024, Unlock iPhone X With Forgotten Passcode Different Methods You Can Try | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/lead-the-likes-the-best-social-app-list-on-androidiphone-for-2024/"><u>Lead the Likes The Best Social App List on Android/iPhone for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mars-landed-metropolis-unleashes-fantastic-martian-maelstrom/"><u>Mars-Landed Metropolis Unleashes Fantastic Martian Maelstrom</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-definitive-list-of-premier-graphics-tablets-for-professionals-in-ebyte-2024/"><u>The Definitive List of Premier Graphics Tablets for Professionals in Ebyte 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-midland-lxt500vp3-an-intricate-look-at-a-feature-packed-yet-underwhelming-transceiver/"><u>Unveiling the Midland LXT500VP3: An Intricate Look at a Feature-Packed Yet Underwhelming Transceiver</u></a></li>
+<li><a href="https://common-error.techidaily.com/win10-playback-problems-eliminating-no-playable-content-found-messages-efficiently/"><u>Win10 Playback Problems: Eliminating 'No Playable Content Found' Messages Efficiently!</u></a></li>
+</ul></div>
 

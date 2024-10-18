@@ -1,7 +1,7 @@
 ---
 title: "Kindle Oasis (2019) Review: A Paper-Like Reading Experience"
-date: 2024-10-07T17:12:19.949Z
-updated: 2024-10-12T19:20:22.558Z
+date: 2024-10-13T21:06:08.515Z
+updated: 2024-10-18T19:53:23.060Z
 categories:
   - BestProducts
 description: "This Article Describes Kindle Oasis (2019) Review: A Paper-Like Reading Experience"
@@ -39,13 +39,6 @@ Lifewire / Emily Ramirez
 
 2.8
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
@@ -74,17 +67,37 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/U_vmwZDe5HbbungQ5L2hzf2LVto=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-4-b0d1cca56ec04a61b83e20d1cecf2aea.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Hardware: Some odd decisions**
@@ -95,13 +108,6 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process/Installation: Easy install, irritating setup**
 
  To install the hardware, we popped open our mid-size PC tower and inserted the sound card and daughter board into two available PCIe slots. Creative Labs had the foresight to build the main card with a PCIe 1x slots, giving the user flexibility in where they connect their cards to the motherboard. Once the cards were secured, we plugged the headphones and microphone into the corresponding jacks.
@@ -111,6 +117,13 @@ Lifewire / Emily Ramirez
  Unfortunately, configuring Creative Labs’ drivers and software suite was a much less intuitive process. The ZxR’s outputs are controlled via the Sound Blaster Z-series Software, where users can select whether they’re listening with their headphones or their speakers, apply EQ effects, and more. By default, the software is set to output to speakers with several different EQ effects turned on. We had to manually switch it to headphone output and turn off EQ; the software does not automatically detect which jacks are in use.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -125,10 +138,10 @@ Lifewire / Emily Ramirez
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: Lots of options with mixed utility**
@@ -162,13 +175,6 @@ Lifewire / Emily Ramirez
 **A good card that’s showing its age.**
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -213,17 +219,24 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ed-navigating-through-common-youtube-short-difficulties/"><u>[Updated] Navigating Through Common YouTube Short Difficulties</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-syncing-twitter-and-snapchat-for-sharing-videos-for-2024/"><u>[Updated] Syncing Twitter & Snapchat for Sharing Videos for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-infuse-satire-and-smiles-kapwings-meme-builder/"><u>2024 Approved Infuse Satire & Smiles - Kapwing's Meme Builder</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apple-homepod-vs-google-nest-audio-a-comprehensive-smart-speaker-showdown/"><u>Apple HomePod Vs. Google Nest Audio: A Comprehensive Smart Speaker Showdown</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/beyond-belief-the-aminy-guide-to-dissecting-aliens/"><u>Beyond Belief: The Aminy Guide to Dissecting Aliens</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-lava-blaze-2-5g-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Lava Blaze 2 5G?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comparing-performance-a-guide-to-choosing-the-best-processor-based-tablets/"><u>Comparing Performance: A Guide to Choosing the Best Processor-Based Tablets</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-the-mobvoi-ticwatch-pro-navigator-enhanced-battery-performance-unveiled/"><u>Comprehensive Guide to the Mobvoi TicWatch Pro Navigator - Enhanced Battery Performance Unveiled</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Samsung Galaxy F04? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-magic-5-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor Magic 5 to Outlook | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Apple iPhone SE (2022)? | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-insiders-guide-to-perfected-picture-hues-for-2024/"><u>The Insider's Guide to Perfected Picture Hues for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-imovie-blueprint-the-pathway-to-crafting-impressive-square-videos/"><u>[New] In 2024, IMovie Blueprint The Pathway to Crafting Impressive Square Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-how-to-record-movies-on-pc-mac-and-smartphones/"><u>[Updated] How to Record Movies on PC, Mac, and Smartphones?</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-uncluttered-window-logger-w10-version/"><u>[Updated] Uncluttered Window Logger W10 Version</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/geforce-rtx-3060-ti-graphics-card-drivers-compatible-with-windows-11-and-10/"><u>GeForce RTX 3060 Ti Graphics Card Drivers - Compatible with Windows 11 & 10</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-samsung-galaxy-f14-5g-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Samsung Galaxy F14 5G to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/home-workflow-mastery-discover-6-uses-for-chatgpt/"><u>Home Workflow Mastery: Discover 6 Uses for ChatGPT</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-oppo-find-x7-ultrafrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Oppo Find X7 UltraFRP Lock</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-oppo-reno-11f-5g-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Oppo Reno 11F 5G Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lively-latin-gamified-education-unveiled/"><u>Lively Latin: Gamified Education Unveiled</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1723013846108-overcome-stuttering-issues-in-sifu-on-pc-effective-solutions-inside/"><u>Overcome Stuttering Issues in Sifu on PC - Effective Solutions Inside!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/rediscovered-legend-the-grand-value-behind-spyro-reignited-trilogy-critique/"><u>Rediscovered Legend: The Grand Value Behind Spyro Reignited Trilogy Critique</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-driving-experience-with-the-escort-max-360-the-all-in-one-radar-and-laser-defender-with-integrated-gps-features/"><u>Revolutionize Your Driving Experience with the Escort Max 360 - The All-in-One Radar & Laser Defender with Integrated GPS Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-un65nu8000fxza-review-does-quality-match-the-steep-price-tag/"><u>Samsung UN65NU8000FXZA Review: Does Quality Match the Steep Price Tag?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sealoc-coastal-silver-a-55-inch-4k-tv-review-the-perfect-slim-choice-for-your-garden-entertainment-setup/"><u>Sealoc Coastal Silver: A 55-Inch 4K TV Review – The Perfect Slim Choice for Your Garden Entertainment Setup</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/senso-buds-for-affordable-premium-sound/"><u>Senso Buds for Affordable, Premium Sound</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/step-by-step-strategy-for-inspecting-your-sites-content-before-go-live/"><u>Step-by-Step Strategy for Inspecting Your Site's Content Before Go Live</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tech-evolution-alert-is-your-ipad-falling-behind-the-curve/"><u>Tech Evolution Alert: Is Your iPad Falling Behind the Curve?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-balance-of-safety-and-speed-in-cat-s42-smartphone-assessment/"><u>The Balance of Safety and Speed in Cat S42 Smartphone Assessment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-complete-guide-to-the-samsung-qn55q6f-a-masterpiece-of-4k-and-hdr-technology/"><u>The Complete Guide to the Samsung QN55Q6F - A Masterpiece of 4K and HDR Technology</u></a></li>
 </ul></div>
 

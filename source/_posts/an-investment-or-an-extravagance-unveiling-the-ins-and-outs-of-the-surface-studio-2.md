@@ -1,7 +1,7 @@
 ---
 title: An Investment or an Extravagance? Unveiling the Ins and Outs of the Surface Studio 2
-date: 2024-10-10T16:27:42.998Z
-updated: 2024-10-12T21:54:48.157Z
+date: 2024-10-15T17:28:23.098Z
+updated: 2024-10-18T19:21:49.678Z
 categories:
   - BestProducts
 description: This Article Describes An Investment or an Extravagance? Unveiling the Ins and Outs of the Surface Studio 2
@@ -66,13 +66,6 @@ Lifewire / Andy Zahn
 
  Smartwatches are incredible devices, and the Garmin Vivoactive 3 Music is no exception. It’s remarkable how much advanced tech is crammed below the glass of this diminutive device. I ran it through its paces to see if it can stand out in a crowded and competitive niche.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Attractive and minimalistic**
 
  At first glance, you could be forgiven for not realizing that the Garmin Vivoactive 3 Music is a[smartwatch](https://www.lifewire.com/an-introduction-to-smart-watches-3441381) . Its round, modern, minimalist design is attractive but subtle. The face of the watch is made of scratch-resistant Corning Gorilla Glass 3, the case is built of rugged polymer, and the strap is silicone. This rugged construction comes with a waterproofing rating of 5 atmospheres (ATM), which means it’s rated down to 163 feet. However, it’s worth noting that this watch isn’t intended for diving use.
@@ -84,10 +77,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Comfort: On the small side**
@@ -98,16 +91,16 @@ Lifewire / Andy Zahn
 
  The included band was a little small for my extra-large 9-inch wrists.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Fairly straightforward**
 
  Getting started with the Vivoactive 3 Music is reasonably easy, though it did take me some time after connecting to my phone to get through all the necessary permissions and connections it requires. There were updates to install, and I needed to create an account with Garmin. I also downloaded Spotify and connected the Vivoactive 3 to my wireless earbuds. Note that you need to connect to Wi-Fi to download music via Spotify or another app.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Hit and miss**
 
@@ -119,26 +112,27 @@ Lifewire / Andy Zahn
 
 The touchscreen interface is responsive, though a bit laggy.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Battery: Variable duration**
 
  How long the battery in the Vivoactive 3 Music lasts depends entirely on how it’s used. If you only use its smartwatch capabilities occasionally then it’s good for a week at a time. However, when I made use of GPS, music, and other power-intensive features, it would run out in less than a full day of use.
 
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/NdBt6UHu7uQUfRZfJN5BzwIEad8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivoactive-3-Music-Smart-Watch-3-18b432ab56ac4ef284ba74ffd1ec7f82.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Proprietary ecosystem**
 
@@ -156,6 +150,19 @@ The touchscreen interface is responsive, though a bit laggy.
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Reasonable value**
 
  At its MSRP of $249 the Garmin Vivoactive 3 Music is acceptably priced for the features it packs in. However, as it can often be found for around fifty dollars less than this, it's a great value if you can snag it at that discount.
@@ -169,13 +176,6 @@ The touchscreen interface is responsive, though a bit laggy.
  **The Garmin Vivoactive 3 Music is a fully-featured smartwatch overflowing with potential but saddled with annoying flaws.**
 
  There’s a lot to like about the Garmin Vivoactive 3 Music, It’s attractive, packed with features, and provides a deep level of fitness tracking. However, I could never fully enjoy using it due to its less than the optimal interface and laggy operation. This might be a good option if you are already invested in Garmin’s products, but for me it’s hard to ignore the flaws.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -207,15 +207,20 @@ The touchscreen interface is responsive, though a bit laggy.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/he-symphony-of-screens-coordinated-content-consumption-for-2024/"><u>[New] The Symphony of Screens Coordinated Content Consumption for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-apples-m1-pro-versus-the-powerhouse-m1-max-what-to-note/"><u>[Updated] Apple's M1 Pro Versus the Powerhouse M1 Max - What to Note?</u></a></li>
-<li><a href="https://fox-links.techidaily.com/breaking-barriers-top-picks-of-virtual-reality-walkers-for-2024/"><u>Breaking Barriers Top Picks of Virtual Reality Walkers for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-and-install-aoc-monitor-drivers-on-windows-11-10-or-8/"><u>Download and Install AOC Monitor Drivers on Windows 11, 10 or 8</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/m1v-file-conversion-to-mpeg-easy-and-free-methods-with-movavi/"><u>M1V File Conversion to MPEG: Easy and Free Methods with Movavi</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/mastering-cross-platform-messaging-use-imessage-on-your-windows-desktop-expert-insights/"><u>Mastering Cross-Platform Messaging: Use iMessage on Your Windows Desktop | Expert Insights</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-sizzling-success-of-overcooked-2-an-in-depth-critique/"><u>The Sizzling Success of Overcooked! 2 - An In-Depth Critique</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-comparison-of-googles-speakers-nest-audio-and-nest-mini-side-by-side/"><u>The Ultimate Comparison of Google's Speakers - Nest Audio and Nest Mini Side by Side</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-amazon-basics-compact-and-lightweight-tablet-support-review-inside/"><u>The Ultimate Guide to Amazon Basic's Compact and Lightweight Tablet Support - Review Inside!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-list-leading-tv-streaming-platforms/"><u>The Ultimate List: Leading TV Streaming Platforms</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-take-control-of-your-instagram-content/"><u>[New] Take Control of Your Instagram Content</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-into-the-blueprint-cutting-edge-techniques-for-drones/"><u>2024 Approved Into the Blueprint Cutting-Edge Techniques for Drones</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/comprehensive-comparison-the-pixel-9-vs-pixel-9-pro-vs-pixel-9-pro-xl-unveiled/"><u>Comprehensive Comparison: The Pixel 9 Vs. Pixel 9 Pro Vs. Pixel 9 Pro XL Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-oneplus-similar-problem-for-theme-of-stories/"><u>Comprehensive Evaluation of the OnePlus # Similar Problem for Theme of Stories</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/economical-and-efficient-an-in-depth-review-of-the-ambient-ws-2902a-osprey/"><u>Economical & Efficient: An In-Depth Review of the Ambient WS-2902A Osprey</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-resolve-windows-n-11-issues-with-unresponsive-headphones/"><u>How to Resolve Windows N 11 Issues with Unresponsive Headphones</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/keine-datenpanik-einfach-und-sicher-ps4-hdds-zu-wechseln/"><u>Keine Datenpanik: Einfach Und Sicher, PS4 HDDs Zu Wechseln</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/mac-powered-iphone-recovery-program-safeguard-your-deleted-visual-content-and-personal-connections-with-ease/"><u>Mac-Powered iPhone Recovery Program: Safeguard Your Deleted Visual Content & Personal Connections with Ease</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/my-recovered-videos-not-functional/"><u>My Recovered Videos: Not Functional?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-affordable-drones-holy-stone-hs170-predator-mini-rc-helicopter-uncovered/"><u>Navigating Affordable Drones - Holy Stone HS170 Predator Mini RC Helicopter Uncovered</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/side-by-side-comparison-of-all-available-ipad-models-your-decision-blueprint/"><u>Side-by-Side Comparison of All Available iPad Models – Your Decision Blueprint</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-for-your-home-security-rings-battery-powered-doorbell-unveiled/"><u>The Ultimate Review for Your Home Security: Ring's Battery-Powered Doorbell Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unraveling-the-cost-friendly-yet-confusing-identity-of-microsofts-surface-go-through-our-in-depth-review/"><u>Unraveling the Cost-Friendly Yet Confusing Identity of Microsoft's Surface Go Through Our In-Depth Review</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-free-web-based-daws-that-are-changing-music-production-the-top-10-for-2024/"><u>Updated Free, Web-Based DAWs That Are Changing Music Production The Top 10 for 2024</u></a></li>
 </ul></div>
 

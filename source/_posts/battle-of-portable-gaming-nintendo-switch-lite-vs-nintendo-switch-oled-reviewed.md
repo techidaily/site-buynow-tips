@@ -1,7 +1,7 @@
 ---
 title: "Battle of Portable Gaming: Nintendo Switch Lite Vs. Nintendo Switch OLED Reviewed"
-date: 2024-10-08T16:45:32.034Z
-updated: 2024-10-12T16:18:17.186Z
+date: 2024-10-17T21:15:21.830Z
+updated: 2024-10-18T20:39:02.978Z
 categories:
   - BestProducts
 description: "This Article Describes Battle of Portable Gaming: Nintendo Switch Lite Vs. Nintendo Switch OLED Reviewed"
@@ -37,10 +37,10 @@ Lifewire / Kelsey Simon
 3.8
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
@@ -95,13 +95,20 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/1fxH7ty_kqxpugJDk2tIQndKvI0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546078-6bdc67e56311473f9c1edeab00d2caa5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Gameplay: Not as smooth as on other platforms**
@@ -124,16 +131,22 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Graphics: A bit outdated**
 
  The graphics in Skyrim aren’t awful, but they haven't progressed much since 2011\. If you’ve played any other version of Skyrim, you can overlook it, simply because you know what you’re getting into. Bethesda attempted to make Skyrim look realistic, likely in their desire to give you a fully immersive experience. But these days, Skyrim’s graphics just aren’t as realistic as what other, more recent games have accomplished. In places, the mountains look blocky and the grass a little patchy. Character’s faces sometimes seem deeply sunken around the eyes, with the skin looking more like leather than flesh. It’s not that the graphics are overly bad, they’re just not as good as what you can get with better hardware on the PC.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Platform: Take Skyrim on the go**
 
@@ -147,6 +160,13 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/Iik6f_7RIRMWo5R6zGYxgGeL4n0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546076-8fb741faa7144fa6bafe386d2b7d8296.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 ## **Price: A tad expensive**
@@ -158,10 +178,10 @@ Lifewire / Kelsey Simon
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Other action RPGs**
@@ -174,25 +194,11 @@ Lifewire / Kelsey Simon
 
  Even though The Elder Scrolls V: Skyrim is a great game and the Switch is an amazing platform, our advice is only to buy Skyrim for the Switch if you’re looking to play on the go. Otherwise, we’d suggest purchasing Skyrim for the PC, where you’ll really be able to enjoy superior graphics and customization options.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [The Legend of Zelda: Breath of the Wild](https://www.lifewire.com/the-legend-of-zelda-breath-of-the-wild-review-4685759)
 * [Mario Kart 8 Deluxe](https://www.lifewire.com/mario-kart-8-deluxe-review-4688951)
 * [Splatoon 2](https://www.lifewire.com/splatoon-2-review-4688940)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -216,24 +222,21 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-cutting-edge-professional-guide-to-youtube-editing/"><u>[New] In 2024, Cutting Edge Professional Guide to YouTube Editing</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-film-creation-tools-go-free-and-green/"><u>[New] In 2024, Film Creation Tools Go Free and Green</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-integrating-harmonious-sounds-into-your-canva-videos/"><u>[New] In 2024, Integrating Harmonious Sounds Into Your Canva Videos</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-the-seamless-shift-an-introduction-to-crossfades-for-2024/"><u>[New] The Seamless Shift An Introduction to Crossfades for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-unlock-success-top-12-tycoon-games-to-capture-your-attention/"><u>[New] Unlock Success Top 12 Tycoon Games to Capture Your Attention</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-xs-max-to-other-iphone-14-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone XS Max To Other iPhone 14 Pro devices? | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-from-novice-to-pro-an-extensive-guide-to-capturing-top-notch-audio-on-zoom/"><u>In 2024, From Novice to Pro An Extensive Guide to Capturing Top-Notch Audio on Zoom</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-best-choice-for-gamers-and-techies-a-thorough-review-of-the-asus-rog-gt-ac5300-router/"><u>The Best Choice for Gamers & Techies: A Thorough Review of the Asus ROG GT-Ac5300 Router</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-old-school-champion-revisited-in-depth-look-at-the-nulaxy-km18-bluetooth-car-receiver/"><u>The Old School Champion Revisited: In-Depth Look at the Nulaxy KM18 Bluetooth Car Receiver</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-winning-formula-understanding-wii-us-remarkable-achievements-in-gaming/"><u>The Winning Formula: Understanding Wii U's Remarkable Achievements in Gaming</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-programming-classes-on-the-web/"><u>Top-Rated Programming Classes on the Web</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/topo-ergonomic-mat-assessment-the-key-to-combat-foot-discomfort-at-work/"><u>Topo Ergonomic Mat Assessment - The Key to Combat Foot Discomfort at Work</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/toshibas-premium-55-inch-fire-tv-edition-display-reviewed-prime-entertainment-upgraded/"><u>Toshiba's Premium 55-Inch Fire TV Edition Display Reviewed: Prime Entertainment Upgraded</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/ultimate-introductory-editor-software-devices/"><u>Ultimate Introductory Editor Software (Devices)</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unbeatable-savings-apple-gadgets-at-a-steal-during-prime-day/"><u>Unbeatable Savings: Apple Gadgets at a Steal During Prime Day</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unboxing-and-testing-the-ultimate-tablet-samsung-galaxy-tab-s4-review/"><u>Unboxing and Testing the Ultimate Tablet - Samsung Galaxy Tab S^4 Review</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/uncover-top-hardware-reviews-and-specs-with-your-site-name-the-experts-choice-for-quality-equipment/"><u>Uncover Top Hardware Reviews and Specs with [Your Site Name] – The Experts' Choice for Quality Equipment!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlocking-value-for-money-the-fellowes-microban-wired-keyboard-reviewed/"><u>Unlocking Value for Money: The Fellowes Microban Wired Keyboard Reviewed</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-create-engaging-videos-on-the-go-best-animated-text-apps-for-phones/"><u>Updated 2024 Approved Create Engaging Videos on the Go Best Animated Text Apps for Phones</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-effortless-video-and-image-backup-from-instagram/"><u>[New] In 2024, Effortless Video & Image Backup From Instagram</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-in-depth-app-investigation-via-az-screen-recorder/"><u>[Updated] 2024 Approved In-Depth App Investigation via AZ Screen Recorder</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/comprehensive-steps-for-reactivating-your-inactive-policy-management-system/"><u>Comprehensive Steps for Reactivating Your Inactive Policy Management System</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-ultimate-guide-to-the-most-effective-wi-fi-expanders/"><u>Expert Picks: Ultimate Guide to the Most Effective Wi-Fi Expanders</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-resolve-installation-problems-with-the-new-feature-update-for-windows-10-v1607/"><u>How to Resolve Installation Problems with the New Feature Update for Windows 10 V1607</u></a></li>
+<li><a href="https://win-popular.techidaily.com/iniciando-con-windows-command-prompt-una-guia-sencilla-para-migrar-archivos-entre-discos/"><u>Iniciando Con Windows Command Prompt: Una Guía Sencilla Para Migrar Archivos Entre Discos</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/install-software-for-your-logitech-g430-headset-get-the-latest-drivers/"><u>Install Software for Your Logitech G430 Headset: Get the Latest Drivers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/introduction-to-the-german-phonetic-system/"><u>Introduction to The German Phonetic System</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/see-the-future-in-pictures-10-best-online-printers-for-24/"><u>See the Future in Pictures: 10 Best Online Printers for '24</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/smartphone-showdown-determining-whether-an-iphone-or-android-suits-you-best/"><u>Smartphone Showdown: Determining Whether an iPhone or Android Suits You Best</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/starlinks-satellite-advantage-why-you-might-want-a-change/"><u>Starlink's Satellite Advantage: Why You Might Want a Change</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/swagtron-swagboard-t1-performance-versatility-meets-high-pricing/"><u>Swagtron Swagboard T1: Performance Versatility Meets High Pricing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/taking-flight-an-affordable-guide-to-the-syma-n107g-personal-radio-controlled-helicopter/"><u>Taking Flight: An Affordable Guide to the Syma N_107G Personal Radio-Controlled Helicopter</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-most-popular-and-advanced-karaoke-systems-of-the-year-2024-edition/"><u>The Most Popular and Advanced Karaoke Systems of the Year - 2024 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-pros-and-cons-of-madden-19-fantastic-modes-meet-repetition/"><u>The Pros and Cons of Madden 19 - Fantastic Modes Meet Repetition</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-iphone-6s-plus-and-android-phones-by-drfone-ios/"><u>Top IMEI Unlokers for iPhone 6s Plus and Android Phones</u></a></li>
 </ul></div>
 

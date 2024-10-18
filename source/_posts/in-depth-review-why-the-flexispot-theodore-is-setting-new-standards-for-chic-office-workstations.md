@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Review: Why the Flexispot Theodore Is Setting New Standards for Chic Office Workstations"
-date: 2024-10-11T21:41:45.940Z
-updated: 2024-10-12T18:06:12.606Z
+date: 2024-10-15T17:56:31.022Z
+updated: 2024-10-18T19:03:13.331Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Review: Why the Flexispot Theodore Is Setting New Standards for Chic Office Workstations"
@@ -37,16 +37,16 @@ Lifewire / Todd Braylor
 
 3.8
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -69,6 +69,13 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -86,10 +93,10 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: Impressive detection**
@@ -97,6 +104,13 @@ Lifewire / Todd Braylor
  The Passport S55 features Enhanced Radar Protection that delivers long-distance range for laser and radar bands, including K and Ka bands, widely used microwave frequencies for police radar guns. It reliably delivers on its promise of long-distance sensitivity. While testing the S55 in Highway mode I received Ka-band alerts over a mile and a half out from where I approached a highway patrol parked on the median of the interstate. This range was on par with much more expensive models.
 
  It reliably delivers on its promise of long-distance sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Not exactly enhanced**
 
@@ -106,25 +120,11 @@ Lifewire / Todd Braylor
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: You get what you pay for**
 
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
@@ -167,20 +167,18 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-vanguard-of-virtual-storage-top-choices/"><u>[New] 2024 Approved The Vanguard of Virtual Storage Top Choices</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-balance-quality-and-quickness-with-netflix-speed-modification-tips/"><u>[Updated] Balance Quality & Quickness with Netflix Speed Modification Tips</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/44cm5zplus656so55plusl6k2y44ks5bplusy44km44ga44gr77ya44ot44oh44kq44ke6zplusz5aow44ov44kh44kk44or55so44gu6yen6kab5oqa6kgt44cb44kz44o844oh44od44kv6kej6kqs44cn113/"><u>「基礎知識を忘れずに：ビデオや音声ファイル用の重要技術、コーデック解説」</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-fix-apple-id-verification-code-not-working-from-apple-iphone-14-pro-max-by-drfone-ios/"><u>How To Fix Apple ID Verification Code Not Working From Apple iPhone 14 Pro Max</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-motorola-edge-2023-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Motorola Edge 2023 Phone Password Without Factory Reset?</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-easy-tutorial-for-activating-icloud-from-iphone-14-plus-safe-and-legal-by-drfone-ios/"><u>In 2024, Easy Tutorial for Activating iCloud from iPhone 14 Plus Safe and Legal</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-inside-the-world-of-digital-performer-reviews/"><u>In 2024, Inside the World of Digital Performer Reviews</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-top-performing-flash-drives-to-choose-from/"><u>The Top Performing Flash Drives to Choose From</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-fitbit-charge-4-when-elegance-meets-utility/"><u>The Ultimate Guide to Fitbit Charge 4: When Elegance Meets Utility</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-highly-rated-and-economical-fossil-athletic-wear/"><u>The Ultimate Guide to Highly Rated & Economical Fossil Athletic Wear</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-selecting-a-premium-travel-wireless-router-2024-edition/"><u>The Ultimate Guide to Selecting a Premium Travel Wireless Router - 2024 Edition</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-omnicharges-omni-20-portable-power-bank-your-go-to-companion-for-effortless-charging-via-qi-wireless-technology/"><u>The Ultimate Review of Omnicharge's Omni 20 Portable Power Bank - Your Go-To Companion for Effortless Charging via Qi Wireless Technology</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-showdown-assessing-the-pros-and-cons-of-echo-dot-vs-homepod-mini/"><u>The Ultimate Showdown: Assessing the Pros & Cons of Echo Dot Vs. HomePod Mini</u></a></li>
-<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-xiaomi-13t-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Xiaomi 13T Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/topmate-c302-evaluation-an-economical-solution-to-laptop-overheating-issues/"><u>TopMate C302 Evaluation: An Economical Solution to Laptop Overheating Issues</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-top-10-independent-android-games-for-non-networked-natives/"><u>[New] In 2024, Top 10 Independent Android Games for Non-Networked Natives</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-innovative-zooctorial-conceptual-kits/"><u>[Updated] 2024 Approved Innovative Zooctorial Conceptual Kits</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Lava Blaze Curve 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/error-free-computing-how-to-address-and-repair-launchdll-not-detected-issues/"><u>Error-Free Computing: How To Address and Repair 'Launch.dll' Not Detected Issues</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-the-ultimate-5g-connectivity-with-the-samsung-galaxy-s20-fe-comprehensive-review/"><u>Experience the Ultimate 5G Connectivity with the Samsung Galaxy S20 FE - Comprehensive Review!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-timeless-elegance-and-modern-technology-skagen-falster-3-smartwatch-unveiled/"><u>Experience Timeless Elegance and Modern Technology - Skagen Falster 3 Smartwatch Unveiled</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/free-tailor-made-templates-for-concluding-audio/"><u>Free, Tailor-Made Templates for Concluding Audio</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/getting-secure-without-breaking-the-bank-dive-into-our-comprehensive-analysis-of-the-iseebell-doorbell/"><u>Getting Secure without Breaking the Bank: Dive Into Our Comprehensive Analysis of the ISeeBell Doorbell</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/google-tv-chromecast-unveiled-is-it-time-to-switch-from-firestick/"><u>Google TV Chromecast Unveiled: Is It Time to Switch From Firestick?</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-fix-d3dx933dll-is-missing-or-not-found-errors/"><u>How to Fix D3dx9_33.dll Is Missing or Not Found Errors</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-tecno-phantom-v-flip-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Tecno Phantom V Flip? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Oppo A2? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/increasing-click-rates-and-revenue-the-power-of-engaging-fb-animation-ads/"><u>Increasing Click Rates & Revenue The Power of Engaging FB Animation Ads</u></a></li>
 </ul></div>
 

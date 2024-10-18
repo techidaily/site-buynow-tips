@@ -1,7 +1,7 @@
 ---
 title: Affordable Excellence in Fitness Tracking - In-Depth Review of the Fitbit Versa Lite
-date: 2024-10-10T21:41:45.967Z
-updated: 2024-10-12T16:53:20.746Z
+date: 2024-10-14T20:17:27.791Z
+updated: 2024-10-18T16:45:13.715Z
 categories:
   - BestProducts
 description: This Article Describes Affordable Excellence in Fitness Tracking - In-Depth Review of the Fitbit Versa Lite
@@ -42,10 +42,10 @@ Lifewire / Jonno Hill
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
@@ -78,16 +78,16 @@ Lifewire / Jonno Hill
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
 
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup: Dead simple**
@@ -101,10 +101,10 @@ Lifewire / Jonno Hill
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: Fairly limited**
@@ -117,6 +117,19 @@ Lifewire / Jonno Hill
 
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
 
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
 
  Mohu also makes the[Mohu Blade](https://www.lifewire.com/mohu-blade-tv-antenna-review-4843106) , a powered antenna with a slightly more unique design for a minor premium of $40\. This antenna managed to reliably acquire an average of 69 channels in my tests, a big leap from the performance of the Mohu Leaf 30 TV Antenna. That having been said, the Blade does require a power source, and installation is slightly more cumbersome than that of the Leaf. If I wasn’t having any trouble getting the channels I watch with the Leaf, I probably wouldn’t upgrade to the Blade personally.
@@ -125,13 +138,6 @@ Lifewire / Jonno Hill
 
 **No fuss, good value.**
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -160,21 +166,24 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-best-browser-capture-tools-top-picks/"><u>[Updated] In 2024, Best Browser Capture Tools Top Picks</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-rotation-simplified-techniques-for-any-degree-updated-edition/"><u>[Updated] YouTube Rotation Simplified Techniques for Any Degree [Updated Edition]</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-full-circumference-video-rigging/"><u>2024 Approved Full-Circumference Video Rigging</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-guide-to-optimal-audio-changer-tools-for-vtubers/"><u>2024 Approved Guide to Optimal Audio Changer Tools for VTubers</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/clearing-windows-updates-cache-a-comprehensive-tutorial-for-windows-11-and-10-users/"><u>Clearing Windows Updates Cache: A Comprehensive Tutorial for WINDOWS 11 & 10 Users</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/hp-laptop-usb-dilemma-expert-tips-and-fixes-for-the-issue-thats-solved/"><u>HP Laptop USB Dilemma: Expert Tips and Fixes for the Issue That's Solved</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Tecno Phantom V Fold | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-critique-of-hitman-3-the-final-chapter-unveiled/"><u>In-Depth Critique of Hitman 3 - The Final Chapter Unveiled</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-sea-tech-external-blu-ray-usb-device-performance-highlights-and-shortcomings/"><u>In-Depth Look at the Sea Tech External Blu-Ray USB Device: Performance Highlights and Shortcomings</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-review-the-versatile-and-reliable-garmin-gpsmap-64st-handheld-gps-device/"><u>In-Depth Review: The Versatile & Reliable Garmin GPSMAP 64St Handheld GPS Device</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ipad-pro-vs-microsoft-surface-pro-an-in-depth-comparison-of-features/"><u>IPad Pro Vs. Microsoft Surface Pro: An In-Depth Comparison of Features</u></a></li>
-<li><a href="https://review-topics.techidaily.com/issues-playing-mov-videos-on-redmi-13c-5g-by-aiseesoft-video-converter-play-mov-on-android/"><u>Issues playing MOV videos on Redmi 13C 5G</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/j5-tactical-v1-pro-assessed-exceptional-resilience-in-a-compact-nightlight-design-review/"><u>J5 Tactical V1-Pro Assessed: Exceptional Resilience in a Compact Nightlight Design Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/kobo-libra-h2o-review/"><u>Kobo Libra H2O Review</u></a></li>
-<li><a href="https://driver-error.techidaily.com/mouse-troubleshoot-invisible-hand-in-windows/"><u>Mouse Troubleshoot - Invisible Hand in Windows</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/navigating-through-choices-the-essential-distinctions-between-ipad-and-ipad-air/"><u>Navigating Through Choices: The Essential Distinctions Between iPad & iPad Air</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-enriched-tv-experience-seamlessly-looping-online-content/"><u>2024 Approved Enriched TV Experience Seamlessly Looping Online Content</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-revolutionary-capturing-best-5-cameras-for-slow-mo/"><u>2024 Approved Revolutionary Capturing Best 5 Cameras for Slow Mo</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/efficiency-in-academia-the-chatgpt-technique/"><u>Efficiency in Academia: The ChatGPT Technique</u></a></li>
+<li><a href="https://program-issues.techidaily.com/hensbergen-jjm-et-al-2018c-glyphosate-in-aquatic-ecosntriments-a-review-of-occurrence-and-potential-impacts-on-aquatic-life-environ-toxicol-pharmacol-64pt-a428/"><u>Hensbergen JJM., Et Al (2018C). Glyphosate in Aquatic Ecosntriments: A Review of Occurrence and Potential Impacts on Aquatic Life. Environ Toxicol Pharmacol, 64(Pt A), 39-52.</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-14-pro-by-drfone-ios/"><u>How to Unlock Apple iPhone 14 Pro?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-your-tecno-spark-20-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Tecno Spark 20 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-unfolding-wonders-your-practical-guide-to-travel-vlogging/"><u>In 2024, Unfolding Wonders Your Practical Guide to Travel Vlogging</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-the-samsung-galaxy-a71-5g-the-wise-pick-over-pricier-phone-models-our-review-explains/"><u>Is the Samsung Galaxy A71 5G the Wise Pick Over Pricier Phone Models? Our Review Explains!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/jumpstart-your-digital-journey-upgrading-from-win7-to-10/"><u>Jumpstart Your Digital Journey: Upgrading From Win7 to 10</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/motorola-edgeplus-evaluation-not-quite-the-top-tier-standout/"><u>Motorola Edge+ Evaluation: Not Quite the Top-Tier Standout</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-the-best-electronic-canvas-premium-drawing-tablets-reviewed/"><u>Navigating the Best Electronic Canvas: Premium Drawing Tablets Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/pre-uploading-tips-for-checking-your-sites-appearance/"><u>Pre-Uploading Tips for Checking Your Site's Appearance</u></a></li>
+<li><a href="https://games-able.techidaily.com/preventive-actions-for-screen-driver-launch-issue-in-winos/"><u>Preventive Actions for Screen Driver Launch Issue in WinOS</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/s23-ultra-versus-s21-ultra-which-superphone-wins/"><u>S23 Ultra Versus S21 Ultra - Which Superphone Wins?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sony-xbr65x850f-in-depth-review-of-the-65-4k-smart-led-tv-great-value-for-money/"><u>Sony XBR65X850F: In-Depth Review of the 65 4K Smart LED TV - Great Value for Money</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-allure-of-the-ice-a-critical-look-at-nhl-19s-web-based-gameplay/"><u>The Allure of the Ice: A Critical Look at NHL '19’S Web-Based Gameplay</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-t6s-journey-a-pricey-option-for-novices/"><u>The T6's Journey: A Pricey Option for Novices?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-selections-for-speedy-facebook-video-transfers-and-streams/"><u>Top Selections for Speedy Facebook Video Transfers and Streams</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/unleashing-the-power-of-lower-thirds-in-final-cut-pro-x/"><u>Unleashing the Power of Lower Thirds in Final Cut Pro X</u></a></li>
 </ul></div>
 

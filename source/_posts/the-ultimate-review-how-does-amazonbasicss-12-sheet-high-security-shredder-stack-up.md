@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Review: How Does AmazonBasics's 12-Sheet High Security Shredder Stack Up?"
-date: 2024-10-07T18:06:32.750Z
-updated: 2024-10-12T18:43:15.435Z
+date: 2024-10-13T17:52:39.050Z
+updated: 2024-10-18T20:31:37.149Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate Review: How Does AmazonBasics's 12-Sheet High Security Shredder Stack Up?"
@@ -39,21 +39,22 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 4.2
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/AfRhNgqeOD7JfcVqpjzm5LwPSB4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -79,13 +80,6 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -93,6 +87,13 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
  With very large sides, the front is really just a small panel with light-up LED indicators showing connectivity details and which Ethernet ports are in use. There’s also a small WPS button beneath the LED panel for easy connectivity with a router. On the wider back panel are the four wired[Ethernet ports](https://www.lifewire.com/what-is-an-ethernet-port-817546) for plugging in devices such as game consoles and computers, as well as a USB 3.0 port, DC power port, and the power button itself.
 
  It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Avoid the app**
 
@@ -105,13 +106,6 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
  Over and over, the setup process wouldn’t complete… and then it finally did. I ran into similar issues with the other Netgear extenders, in which setup processes didn’t work as expected on the first or second time, but this was a much longer and more arduous ordeal. Finally, however, I got the Nighthawk AX8 up and running. From there, you’ll need to find a new location for the extender—roughly halfway between the router and your Wi-Fi dead zone is ideal, but play around with positioning if you’re not getting the results you seek.
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -139,6 +133,19 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: More than most**
 
  The Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender is listed at $250, although it’s being sold for $220 at multiple retailers as of this writing. That’s definitely on the higher end for an extender.
@@ -154,13 +161,6 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
  **Only for early adopters with Wi-Fi 6 routers and devices.**
 
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -188,24 +188,18 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-mystical-camera-pause-strategies/"><u>[New] In 2024, Mystical Camera Pause Strategies</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-rapid-renders-of-powerpoint-plays/"><u>[New] In 2024, Rapid Renders of PowerPoint Plays</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-tailoring-content-for-impactful-fb-slideshow-designs-for-2024/"><u>[Updated] Tailoring Content for Impactful FB Slideshow Designs for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-aesir-clash-in-the-shadow-of-ragnarok/"><u>2024 Approved Aesir Clash In the Shadow of Ragnarok</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-tecno-spark-20-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Tecno Spark 20</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-samsung-galaxy-note20-ultra-5g-smartphone-assessment/"><u>Comprehensive Samsung Galaxy Note20 Ultra 5G Smartphone Assessment</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/dive-into-durability-and-style-the-impressive-battery-features-of-the-new-moto-g-power/"><u>Dive Into Durability and Style: The Impressive Battery Features of the New Moto G Power</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/elevate-your-digital-art-game-with-the-xp-pen-artist-16-pro-a-thorough-assessment-of-its-drawing-tablet-functionality/"><u>Elevate Your Digital Art Game with the XP-Pen Artist 16 Pro – A Thorough Assessment of Its Drawing Tablet Functionality</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/embark-on-a-thrilling-historical-odyssey-with-assassins-creed-valhalla-the-ultimate-viking-experience/"><u>Embark on a Thrilling Historical Odyssey with 'Assassin's Creed: Valhalla' - The Ultimate Viking Experience</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/exploring-task-mining-enhancing-your-approach-to-workplace-efficiency-insights-from-the-abbyy-blog/"><u>Exploring Task Mining: Enhancing Your Approach to Workplace Efficiency - Insights From the ABBYY Blog</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-features-of-microsofts-expensive-all-in-one-desktop-the-surface-studio-2-review/"><u>Exploring the Features of Microsoft's Expensive All-in-One Desktop - The Surface Studio #2 Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/getting-to-grips-with-star-wars-squadrons-an-immersive-journey-through-galactic-warfare/"><u>Getting to Grips with Star Wars: Squadrons - An Immersive Journey Through Galactic Warfare</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/high-definition-protection-on-a-budget-our-comprehensive-guide-to-the-pruveeo-f5-camera/"><u>High Definition Protection on a Budget: Our Comprehensive Guide to the Pruveeo F5 Camera</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/high-quality-manfrotto-befree-tripod-reliability-reigns/"><u>High-Quality Manfrotto Befree Tripod: Reliability Reigns</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-to-enjoy-and-appreciate-every-moment-of-playing-pokemon-shining-pearl/"><u>How to Enjoy and Appreciate Every Moment of Playing 'Pokémon Shining Pearl'</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-lock-your-realme-narzo-60x-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Realme Narzo 60x 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-to-show-or-not-to-display-off-facebook-activities/"><u>In 2024, To Show or Not to Display Off-Facebook Activities</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/lg-bp550s-evolution-a-2023-perspective/"><u>LG BP550's Evolution - A 2023 Perspective</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-tecno-spark-10c-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Tecno Spark 10C Black and White | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/5-best-graphics-cards-for-4k-video-editing-and-rendering/"><u>5 Best Graphics Cards for 4K Video Editing and Rendering</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elite-rating-for-sleepers-a-detailed-review-of-the-bestselling-philips-somneo-alarm/"><u>Elite Rating for Sleepers: A Detailed Review of the Bestselling Philips Somneo Alarm</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/engage-directly-with-the-lenovo-9-inch-navigational-pad/"><u>Engage Directly With the Lenovo 9-Inch Navigational Pad</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-latest-samsung-galaxy-s21-model-less-is-more-approach-by-samsung/"><u>Evaluating the Latest Samsung Galaxy S21 Model: Less Is More Approach by Samsung</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-webex-insights-into-its-top-perks-and-pitfalls-for-effective-digital-teamwork/"><u>Evaluating Webex: Insights Into Its Top Perks and Pitfalls for Effective Digital Teamwork</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exclusive-samsung-galaxy-s20-fe-5g-analysis-the-ultimate-choice-for-enthusiastic-5g-users/"><u>Exclusive Samsung Galaxy S20 FE 5G Analysis - The Ultimate Choice for Enthusiastic 5G Users</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-brilliance-redefined-with-taotronics-latest-design-the-tt-dl16-lamp-reviewed/"><u>Experience Brilliance Redefined with TaoTronics' Latest Design - The TT-DL16 Lamp Reviewed!</u></a></li>
+<li><a href="https://os-tips.techidaily.com/get-started-with-apples-freeform-step-by-step-instructions-for-optimal-experience/"><u>Get Started with Apple’s Freeform: Step-by-Step Instructions for Optimal Experience</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-enter-and-utilize-dfu-mode-on-your-iphone/"><u>How to Enter and Utilize DFU Mode on Your iPhone?</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/how-to-halt-automatic-updates-on-your-documents-with-these-simple-techniques-for-onedrive-users/"><u>How to Halt Automatic Updates on Your Documents with These Simple Techniques for OneDrive Users</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/in-depth-analysis-and-insights-on-the-line-messaging-service/"><u>In-Depth Analysis and Insights on the Line Messaging Service</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/quick-start-easily-extract-and-download-popular-pornhub-content-in-various-formats-including-mp4-mov-and-avi-with-our-step-by-step-tutorial/"><u>Quick Start: Easily Extract & Download Popular PornHub Content in Various Formats Including MP4, MOV, and AVI with Our Step-by-Step Tutorial</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/steer-clear-of-the-dangerous-google-bard-app-its-infected-with-viruses/"><u>Steer Clear of the Dangerous Google Bard App – It's Infected with Viruses</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Guide to Lenovo X12 Detachable: Excelling as a 2-in-1 Device with an Exceptional Keyboard Design"
-date: 2024-10-09T17:50:19.908Z
-updated: 2024-10-12T21:32:01.027Z
+date: 2024-10-11T19:32:23.548Z
+updated: 2024-10-18T19:23:26.019Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Guide to Lenovo X12 Detachable: Excelling as a 2-in-1 Device with an Exceptional Keyboard Design"
@@ -37,22 +37,16 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -75,6 +69,13 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -82,13 +83,6 @@ Lifewire / Erika Rawes
  It doesn’t come with a stand, but it does include 3M double-sided adhesives you can use to attach the antenna to walls or other surfaces. It also comes with a 10-foot long coax cable, which is removable. The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup: Relatively easy**
 
@@ -101,13 +95,6 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels (in a rural area)**
 
@@ -125,20 +112,27 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
@@ -181,20 +175,19 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-cutting-edge-webcam-utilization-at-home/"><u>[New] Cutting-Edge Webcam Utilization at Home</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-facebook-cinematic-capture-tool/"><u>[New] In 2024, Facebook Cinematic Capture Tool</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-harmonizing-film-teasers-with-music-selections/"><u>2024 Approved Harmonizing Film Teasers with Music Selections</u></a></li>
-<li><a href="https://techtrends.techidaily.com/buddy-system-boost-enhancing-your-pokemon-expeditions-together/"><u>Buddy System Boost: Enhancing Your Pokémon Expeditions Together</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/error-404-unable-to-locate-pages-what-next/"><u>Error 404: Unable to Locate Pages – What Next?</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/expert-methods-for-capturing-and-streaming-sports-gems/"><u>Expert Methods for Capturing and Streaming Sports Gems</u></a></li>
-<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Asus ROG Phone 7 | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-make-the-most-of-your-iphone-xs-max-lock-screen-with-notifications-by-drfone-ios/"><u>How to Make the Most of Your iPhone XS Max Lock Screen with Notifications?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-oneplus-nord-3-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From OnePlus Nord 3 5G to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-clicking-game-on-macs-the-leading-mouse-picks-of-2024/"><u>Revolutionize Your Clicking Game on Macs: The Leading Mouse Picks of 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/stand-and-work-with-cubefits-terramat-a-comprehensive-evaluation/"><u>Stand and Work with CubeFit's TerraMat - A Comprehensive Evaluation</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/syma-107g-remote-controlled-helicopter-a-comprehensive-guide-to-cost-effective-indoor-flying/"><u>Syma 107G Remote Controlled Helicopter: A Comprehensive Guide to Cost-Effective Indoor Flying</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/t7-dslr-revolutionized-canons-latest-innovation/"><u>T7 DSLR Revolutionized: Canon's Latest Innovation</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-friendly-players-guide-to-game-swapping-on-xbox-one/"><u>The Friendly Player's Guide to Game Swapping on Xbox One</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-methods-for-tracking-user-progress-and-tailoring-personalized-learning-experiences-as-if-guiding-different-animals-through-their-unique-paths-in-the-wil103/"><u>The Methods for Tracking User Progress and Tailoring Personalized Learning Experiences as if Guiding Different Animals Through Their Unique Paths in the Wilderness?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-quick-guide-the-most-effective-ways-to-save-fb-story-videos/"><u>[New] 2024 Approved Quick Guide The Most Effective Ways to Save FB Story Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-facebook-video-management-made-simple-select-the-best-firefox-tools-and-extensions/"><u>[New] Facebook Video Management Made Simple Select the Best Firefox Tools & Extensions</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-sky-dominance-top-5-fpv-glasses-for-pilots/"><u>[New] Sky Dominance Top 5 FPV Glasses for Pilots</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-what-is-igtv-and-how-to-use-it-everything-you-need-to-know/"><u>[New] What Is IGTV and How to Use It Everything You Need to Know</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-comprehensive-evaluation-of-google-stadias-opportunities-for-advancement/"><u>A Comprehensive Evaluation of Google Stadia's Opportunities for Advancement</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-journey-into-tomorrow-a-comprehensive-review-of-the-worldbuilding-in-torment-tides-of-numenera/"><u>A Journey Into Tomorrow: A Comprehensive Review of the Worldbuilding in 'Torment: Tides of Numenera'</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/androids-best-artistic-tools-top-10-creative-graphics-apps/"><u>Android's Best Artistic Tools Top 10 Creative Graphics Apps</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-brother-mfc-j480dw-printer-software-upgrade-for-windows-pcs/"><u>Latest Brother MFC-J480DW Printer Software Upgrade for Windows PCs</u></a></li>
+<li><a href="https://win-blog.techidaily.com/mastering-stability-solving-team-fortress-2-game-crashes/"><u>Mastering Stability: Solving Team Fortress 2 Game Crashes</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/unexplained-shutdowns-in-windows-os/"><u>Unexplained Shutdowns in Windows OS</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-new-layers-of-tactical-rpg-genius-with-the-wasteland-2-directors-cut-review/"><u>Unveiling the New Layers of Tactical RPG Genius with The Wasteland 2: Director's Cut Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-clear-conversations-with-the-midland-gxt1000vp4-user-reviews-inside/"><u>Unveiling the Power of Clear Conversations with the Midland GXt1000VP4 - User Reviews Inside!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-the-hp-omen-obelisk-is-your-best-choice-in-high-powered-gaming-computers/"><u>Why the HP OMEN Obelisk Is Your Best Choice in High-Powered Gaming Computers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-the-nintendo-switch-reigns-supreme-in-handheld-game-systems-an-expert-review/"><u>Why the Nintendo Switch Reigns Supreme in Handheld Game Systems: An Expert Review</u></a></li>
 </ul></div>
 

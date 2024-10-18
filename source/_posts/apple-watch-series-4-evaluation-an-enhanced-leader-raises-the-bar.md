@@ -1,7 +1,7 @@
 ---
 title: "Apple Watch Series 4 Evaluation: An Enhanced Leader Raises the Bar"
-date: 2024-10-06T16:25:44.682Z
-updated: 2024-10-12T21:26:29.408Z
+date: 2024-10-14T18:44:17.369Z
+updated: 2024-10-18T17:17:25.857Z
 categories:
   - BestProducts
 description: "This Article Describes Apple Watch Series 4 Evaluation: An Enhanced Leader Raises the Bar"
@@ -46,6 +46,13 @@ Lifewire / Emily Isaacs
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/wuNd6MsZiivoQ99Xm0JHB9iB4Rs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_HeroSquare-99f80025b0254cbebe67ed22575a90c5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Emily Isaacs
 
 [View On Amazon $99](https://www.amazon.com/dp/B00NMVJYEW/?tag=lifewire-onsite-prod-20&ascsubtag=4780187%7Cnf95833ce2d2845368fd2b0eac089080a01%7CB00NMVJYEW) [View On Walmart $89](https://www.walmart.com/ip/Kinesis-KB800PB-us-Freestyle2-Ergonomic-Split-Keyboard-for-PC/41539324?slfpid=3) [View On Office Depot $113](https://www.officedepot.com/a/products/989638/Kinesis-Freestyle2-Ergonomic-Keyboard-For-PC/?cm%5Fmmc=PLA-%5F-Google-%5F-Computer%5FTablet%5FAccessories-%5F-989638&gclid=EAIaIQobChMIv7HKttKB6QIVUl8NCh2Afg94EAQYBCABEgJKIvD%5FBwE&gclsrc=aw.ds)
@@ -69,25 +76,11 @@ Lifewire / Emily Isaacs
 
 [The Best Ergonomic Keyboards of 2024](https://www.lifewire.com/best-ergonomic-keyboards-4147386)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design and Features: Freestyle2 breaks the mold**
 
  For people who are tethered to their[computers](https://www.lifewire.com/computer-and-laptop-reviews-4102643) , ergonomic keyboards are a must. These keyboards tend to be large thanks to the frequently employed swoop design that opens up the keys to provide additional spacing, so fingers feel less cramped, and a wrist-friendly position that prevents[repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) while typing. These keyboards are typically space hogs, taking up large portions of any surface that they’re placed on, often forcing users to reach further for[mice](https://www.lifewire.com/best-wireless-mice-6666207) . This can lead to shoulder injuries in place of wrist injuries—a trade-off no one wants.
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/C-YK_WPWu8Ujx1fwDLxvO6Epi-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_05-adcddc5fc05b415dbcd82396bc0ada77.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -98,6 +91,13 @@ Lifewire / Emily Isaacs
  Once charged, the battery life can last up to 300-plus hours of regular use.
 
  Clocking in at 2 pounds, it’s also lightweight which makes it easy to pack. Whether you’re commuting between the home and the office or you’re heading out of town for a vacation, it’s easy to break down and bring anywhere so long as there’s a flat surface to place it during use.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: For Apple products only**
 
@@ -122,16 +122,10 @@ Lifewire / Emily Isaacs
  The battery life on the Freestyle2 is excellent. It arrives with a partial charge, so it’s important to remember to fully charge it after receiving it. Once charged, the battery life can last up to 300 plus hours of regular use. The Freestyle2 does an excellent job of letting you know when its battery is getting low—battery lights will flash red to indicate when there are about four hours of battery life remaining. This ensures you’re never left hanging.
 
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Excellent for the features**
@@ -139,6 +133,13 @@ Lifewire / Emily Isaacs
  Full-size ergonomic keyboards tend to retail anywhere from $50 to $200, depending on the features involved. Generally retailing for about $100 on Amazon, the Freestyle2 sits comfortably at the front of this curve. While $100 may seem expensive for a keyboard, consider the features involved. Its travel-friendly build, adjustable setup options, extended battery life, and ability to switch quickly and smoothly between multiple connected devices make it an excellent choice for the features.
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/vncgu0FEgBJ69UL6H8BjQ2QoGRI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_03-9055476d1d974c8bbe9b1c39d479b300.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -159,13 +160,6 @@ Lifewire / Emily Isaacs
  **An ideal keyboard for Apple users with its compact design, portability, and long-lasting battery.**
 
  The Kinesis Freestyle2 Blue for Mac is a compact, user-friendly ergonomic keyboard that takes comfort and customization to the next level for Apple users thanks to its split, modular design. Its extended battery life of up to 300 plus hours combined with its ability to connect to multiple iOS devices at a time is a game-changer, making it well worth the splurge.
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -198,22 +192,16 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-selecting-the-perfect-screen-ultrawide-or-uhd-4k-for-2024/"><u>[New] Selecting the Perfect Screen UltraWide or UHD 4K for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-reference-to-youtube-video-aspect-ratios/"><u>[Updated] The Ultimate Reference to YouTube Video Aspect Ratios</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-experience-the-future-of-mobile-gaming-iphone-vr-leaderboard/"><u>2024 Approved Experience the Future of Mobile Gaming IPhone VR Leaderboard</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/alternativas-gratis-a-pinnacle-studio-top-5-opciones-ideales-para-windows-e-imac/"><u>Alternativas Gratis a Pinnacle Studio: Top 5 Opciones Ideales Para Windows E iMac</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-comprehensive-review-of-non-google-augmented-reality-accessories/"><u>In 2024, Comprehensive Review of Non-Google Augmented Reality Accessories</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-maximizing-sales-crafting-engaging-youtube-channel-trailers/"><u>In 2024, Maximizing Sales Crafting Engaging YouTube Channel Trailers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/taking-a-deeper-look-at-the-motorola-one-5g-ace-unmatched-5g-speeds-meet-robust-battery-life-in-this-comprehensive-review/"><u>Taking a Deeper Look at the Motorola One 5G Ace - Unmatched 5G Speeds Meet Robust Battery Life in This Comprehensive Review.</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-art-of-reliability-a-closer-look-at-the-innovative-design-that-makes-twelve-south-compass-pro-a-stabilizing-icon/"><u>The Art of Reliability: A Closer Look at the Innovative Design that Makes Twelve South Compass Pro a Stabilizing Icon</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-language-of-facebooks-emoji-keyboard/"><u>The Language of Facebook's Emoji Keyboard</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-little-dragon-giant-impact-insights-from-the-spyro-reimagined-collection-review/"><u>The Little Dragon, Giant Impact: Insights From the Spyro Reimagined Collection Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/transform-your-raw-photography-workflow-on-mac-or-linux-with-darktables-comprehensive-features/"><u>Transform Your RAW Photography Workflow on Mac or Linux With Darktable's Comprehensive Features</u></a></li>
-<li><a href="https://win-web3.techidaily.com/two-effective-methods-for-removing-a-host-from-vmware-vcenter/"><u>Two Effective Methods for Removing a Host From VMware vCenter</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-choosing-your-next-computer-apples-powerhouse-imac-reviewed/"><u>Ultimate Guide to Choosing Your Next Computer: Apple's Powerhouse iMac Reviewed!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unboxing-and-testing-the-samsung-cf591-monitor-for-gaming-performance-breakdown/"><u>Unboxing & Testing: The Samsung CF591 Monitor for Gaming Performance Breakdown</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unboxing-the-lenovo-thinkpad-x1-nano-a-comprehensive-review-of-this-slim-laptop-design/"><u>Unboxing the Lenovo ThinkPad X1 Nano: A Comprehensive Review of This Slim Laptop Design</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlocking-5g-potential-a-comprehensive-review-of-the-samsung-galaxy-s20-fe-for-mobile-mavericks/"><u>Unlocking 5G Potential: A Comprehensive Review of the Samsung Galaxy S20 FE for Mobile Mavericks</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-streaming-showdown-which-superior-broadcaster-tool-are-you-for-2024/"><u>[Updated] Streaming Showdown Which Superior Broadcaster Tool Are You for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-excavate-extravagance-treasure-hunting-maps-ranked/"><u>2024 Approved Excavate Extravagance Treasure Hunting Maps Ranked</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/breaking-down-the-differences-conventional-vs-mohu-blade-the-innovative-highly-effective-flat-antenna-for-your-home/"><u>Breaking Down the Differences: Conventional Vs. Mohu Blade - The Innovative, Highly Effective Flat Antenna for Your Home</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-the-samsung-galaxy-a20-affordable-quality-at-its-best/"><u>Comprehensive Analysis of the Samsung Galaxy A20 - Affordable Quality at Its Best</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-look-at-rayman-legends-the-pinnacle-of-two-dimensional-platforming-games/"><u>Comprehensive Look at Rayman Legends: The Pinnacle of Two-Dimensional Platforming Games</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-portable-and-economical-asus-vivobook-11/"><u>Comprehensive Review of the Portable and Economical Asus VivoBook 11</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-ultimate-7-destinations-for-free-movie-teasers-online/"><u>Discover the Ultimate 7 Destinations for Free Movie Teasers Online</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/effective-email-management-with-gmails-alias-feature-explained/"><u>Effective Email Management with Gmail's Alias Feature Explained</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-correcting-msvcr71dll-file-absence-errors/"><u>Step-by-Step Guide: Correcting MSVCR71.DLL File Absence Errors</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-psychology-of-engaging-social-media-stories/"><u>The Psychology of Engaging Social Media Stories</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-phone-shops-where-to-purchase-the-latest-smartphones/"><u>Top Phone Shops: Where to Purchase the Latest Smartphones</u></a></li>
 </ul></div>
 

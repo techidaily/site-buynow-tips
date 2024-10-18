@@ -1,7 +1,7 @@
 ---
 title: "'Battle for Neighboreville': A Comical Clash of Plants and Zombies - Game Review."
-date: 2024-10-07T17:04:07.651Z
-updated: 2024-10-12T21:16:23.077Z
+date: 2024-10-11T18:04:20.299Z
+updated: 2024-10-18T21:23:32.624Z
 categories:
   - BestProducts
 description: "This Article Describes 'Battle for Neighboreville': A Comical Clash of Plants and Zombies - Game Review."
@@ -38,22 +38,15 @@ Lifewire / Nick Jaynes
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/kUpys0K04ePH0SuEfAENz--MXSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
@@ -78,10 +71,10 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: All-plastic, but sturdy and subtle**
@@ -96,6 +89,13 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Fast charging for demanding devices**
 
  The best part of the Anker PowerDrive 2 is its charging. It has the ability to charge iPads simultaneously without getting overheated thanks to its PowerIQ and VoltageBoost technology. Each USB port can output a maximum 5V/2.4A, for a total of 24W. That’s in line with other car[chargers](https://www.lifewire.com/best-wireless-phone-chargers-4138571) we tested, but the PowerIQ technology can help identify device and deliver the fastest possible charge. This also gives you some overvoltage protection to make sure something like a smartwatch doesn’t fry when you plug it in.
@@ -105,6 +105,13 @@ Lifewire / Nick Jaynes
  The Anker PowerDrive 2 is the workhorse of the in-car USB charger market.
 
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Middle of the pack**
 
@@ -125,13 +132,6 @@ Lifewire / Nick Jaynes
  **The Anker PowerDrive 2 is the workhorse of the in-car USB charger market.**
 
  The price is fair, the charging is fast, and the design is unobtrusive. It’s hard to ask for much more.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -159,24 +159,20 @@ Lifewire / Nick Jaynes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-luxurious-asmr-sound-priced-right-top-picks-listed-here/"><u>[New] In 2024, Luxurious ASMR Sound, Priced Right - Top Picks Listed Here</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-pro-controller-101-mastering-steam-and-switch-integration/"><u>[Updated] Pro Controller 101 Mastering Steam and Switch Integration</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-step-up-your-photography-game-with-these-top-8-tablets/"><u>[Updated] Step Up Your Photography Game With These Top 8 Tablets</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/garmin-gpsmap-64st-review-a-well-rounded-handheld-gps/"><u>Garmin GPSMAP 64St Review: A Well-Rounded Handheld GPS</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-on-apple-iphone-7-plus-or-ipad-by-drfone-ios/"><u>How to Bypass Activation Lock on Apple iPhone 7 Plus or iPad?</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Lava Blaze 2 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-audiovisual-updates-integrating-sounds-with-statuses/"><u>In 2024, Audiovisual Updates Integrating Sounds with Statuses</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-itel-p55t-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Itel P55T Phone without Any Data Loss</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-midland-gxt1000vp4-unmatched-clarity-in-two-way-radio/"><u>In-Depth Analysis of the Midland GXT1000VP4 - Unmatched Clarity in Two-Way Radio</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/iphone-13-analysis-detailed-insights-and-verdict/"><u>IPhone 13 Analysis: Detailed Insights and Verdict</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/is-the-surface-studio-2-worth-its-price-a-detailed-analysis/"><u>Is the Surface Studio 2 Worth Its Price? A Detailed Analysis</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maximizing-ps3-storage-upgrading-hdd-size/"><u>Maximizing PS3 Storage: Upgrading HDD Size</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/nulaxy-km18-bluetooth-fm-transmitter-in-cars-trustworthy-legacy-device-evaluation-and-insights/"><u>Nulaxy KM18 Bluetooth FM Transmitter in Cars - Trustworthy Legacy Device Evaluation and Insights</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/optimisez-la-gestion-de-vos-credits-immobiliers-a-la-caisse-depargne-bretagne-pays-de-loire-avec-notre-solution-documentaire-complete-et-efficace/"><u>Optimisez La Gestion De Vos Crédits Immobiliers À La Caisse D'Epargne Bretagne Pays De Loire Avec Notre Solution Documentaire Complète Et Efficace</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/premier-choices-expertly-reviewed-storm-monitoring-apps-this-year/"><u>Premier Choices: Expertly Reviewed Storm Monitoring Apps This Year</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/prime-day-extravaganza-get-your-hands-on-hot-deals-for-benqs-finest-monitors-and-projectors/"><u>Prime Day Extravaganza: Get Your Hands on Hot Deals for BenQ's Finest Monitors and Projectors</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/professional-opinion-on-logitechs-top-tier-hd-webcam-c920-model/"><u>Professional Opinion on Logitech's Top-Tier HD Webcam - C920 Model</u></a></li>
-<li><a href="https://driver-download.techidaily.com/ryzen-5-2400g-latest-graphics-card-driver-download-fast-and-secure/"><u>Ryzen 5 2400G Latest Graphics Card Driver Download - Fast and Secure</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtube-channels-for-filmmakers-to-learn-filmmaking-tips-for-2024/"><u>YouTube Channels for Filmmakers to Learn Filmmaking Tips for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-scorching-speedways-ranking-the-top-5-virtual-race-titles/"><u>[New] In 2024, Scorching Speedways Ranking the Top 5 Virtual Race Titles</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-cutting-edge-livestreaming-options-outside-of-obs/"><u>[Updated] 2024 Approved Cutting Edge Livestreaming Options Outside of OBS</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-superior-video-editor-the-vimeo-edition/"><u>[Updated] 2024 Approved Superior Video Editor The Vimeo Edition</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-effortless-enchantment-make-your-mark-with-striking-templates-for-tiktok-for-2024/"><u>[Updated] Effortless Enchantment Make Your Mark with Striking Templates for TikTok for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-the-ultimate-video-editing-experience-for-vimeo-enthusiasts/"><u>[Updated] The Ultimate Video Editing Experience for Vimeo Enthusiasts</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-adding-unique-typography-fonts-in-ae/"><u>In 2024, Adding Unique Typography Fonts in AE</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-the-admin-account-access-issue-app-wont-launch-problem/"><u>Resolving the 'Admin Account Access Issue: App Won't Launch' Problem</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-ranking-smartwatches-in-2-section-1-advanced-problem-on-dental-material-properties/"><u>Top-Ranking Smartwatches in 2 # Section 1: Advanced Problem on Dental Material Properties</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-cell-phone-signal-amplifiers-find-your-perfect-match/"><u>Top-Rated Cell Phone Signal Amplifiers : Find Your Perfect Match</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ultimate-guide-resolving-maplestory-glitches-and-crashes-in-windows-10/"><u>Ultimate Guide: Resolving MapleStory Glitches & Crashes in Windows 10</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-guide-picking-the-perfect-tablet-by-dimensions-and-mass/"><u>Ultimate Selection Guide: Picking the Perfect Tablet by Dimensions & Mass</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-of-premium-power-inverters-available/"><u>Ultimate Selection of Premium Power Inverters Available</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-capabilities-of-google-nest-hello-a-deep-dive-into-biometric-security-and-smart-detection-technologies/"><u>Unveiling the Capabilities of Google Nest Hello - A Deep Dive Into Biometric Security & Smart Detection Technologies</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-capabilities-of-imo-messenger-a-complete-user-review-and-insights/"><u>Unveiling the Capabilities of Imo Messenger: A Complete User Review and Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-features-of-ring-battery-doorbell-plus-with-expert-review/"><u>Unveiling the Features of Ring Battery Doorbell Plus with Expert Review</u></a></li>
 </ul></div>
 
