@@ -1,7 +1,7 @@
 ---
 title: "The Mohu Blade Television Receiver: Evaluating Its Cutting-Edge Layout for Superior Indoor Viewing Experience"
-date: 2024-10-12T17:48:13.991Z
-updated: 2024-10-18T19:42:02.209Z
+date: 2024-10-17T13:23:46.533Z
+updated: 2024-10-24T00:48:01.158Z
 categories:
   - BestProducts
 description: "This Article Describes The Mohu Blade Television Receiver: Evaluating Its Cutting-Edge Layout for Superior Indoor Viewing Experience"
@@ -37,13 +37,6 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
@@ -69,13 +62,6 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -87,10 +73,10 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -103,6 +89,13 @@ Lifewire / Erika Rawes
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Almost two dozen channels**
 
  The Antop AT-127 supports UHF and VHF signals. Overall, it works pretty smoothly, though some channels might have look pixelated for a few seconds when you flip to them or take a second or two to fully load.
@@ -111,7 +104,33 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: Could be better**
 
@@ -138,13 +157,6 @@ Lifewire / Erika Rawes
 **Works great & looks even better.**
 
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -177,19 +189,22 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-best-beams-microphones-for-education/"><u>[New] 2024 Approved Best Beams Microphones for Education</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-free-your-cameras-potential-best-screens-recording-apps-reviewed/"><u>[Updated] 2024 Approved Free Your Camera's Potential Best Screens Recording Apps Reviewed</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-insightful-comparisons-top-android-applications-for-youtube-download/"><u>[Updated] Insightful Comparisons Top Android Applications for YouTube Download</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-complete-analysis-gopro-hero4-silver-edition/"><u>2024 Approved Complete Analysis GoPro HERO4 Silver Edition</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-fast-fixes-to-skyrocket-your-podcast-live/"><u>2024 Approved Fast Fixes to Skyrocket Your Podcast Live</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/creating-on-a-grand-scale-unveiling-the-artistry-and-functionality-in-huions-kamvas-gt-191-pen-display-review/"><u>Creating on a Grand Scale: Unveiling The Artistry & Functionality in Huion's Kamvas GT-191 Pen Display Review.</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/generative-ais-evolving-threat-spectrum/"><u>Generative AI's Evolving Threat Spectrum</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/mastering-content-for-more-subscribers/"><u>Mastering Content for More Subscribers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/navigating-the-world-of-mp4-edits-on-apple-devices/"><u>Navigating the World of MP4 Edits on Apple Devices</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-of-the-amplifi-hd-mesh-networking-solution-eliminate-your-homes-wi-fi-coverage-gaps/"><u>Review of the Amplifi HD Mesh Networking Solution - Eliminate Your Home's Wi-Fi Coverage Gaps</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-of-the-netgear-nighthawk-x10-ad7200-ultra-fast-wifi-performance-analysis/"><u>Review of the Netgear Nighthawk X10 (AD7200): Ultra-Fast WiFi Performance Analysis</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/scrutinizing-the-pros-and-cons-of-boses-audio-device/"><u>Scrutinizing the Pros and Cons of Bose's Audio Device</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/snapshot-of-essential-thoughts-before-buying-vr-equipment/"><u>Snapshot of Essential Thoughts Before Buying VR Equipment</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/step-up-your-game-a-meticulous-breakdown-of-the-oculus-quest-2s-stylish-and-functional-elite-armband-with-secure-case-combo/"><u>Step Up Your Game: A Meticulous Breakdown of the Oculus Quest 2’S Stylish and Functional Elite Armband with Secure Case Combo</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-5-best-zoom-transcription-software-free-and-paid/"><u>[New] 2024 Approved 5 Best Zoom Transcription Software [Free & Paid]</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-dissecting-ffmpeg-the-gateway-to-original-audio-retention/"><u>[New] In 2024, Dissecting FFmpeg The Gateway to Original Audio Retention</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-efficient-shortening-of-instagram-video-content-mac/"><u>[New] In 2024, Efficient Shortening of Instagram Video Content (Mac)</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-path-to-professionalism-morphvox-transformation-guide/"><u>[New] Path to Professionalism MorphVOX Transformation Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-maximizing-performance-optimal-settings-for-logitech-webcam/"><u>[Updated] 2024 Approved Maximizing Performance Optimal Settings for Logitech Webcam</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/20plus-secrets-to-insta-wonderful-videos/"><u>20+ Secrets to Insta-Wonderful Videos</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/audacity-version-35-introduces-new-features-cloud-storage-backup-and-seamless-device-synchronization/"><u>Audacity Version 3.5 Introduces New Features: Cloud Storage Backup & Seamless Device Synchronization</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-xbox-one-hits-you-should-play-again-with-xbox-series-xs-backwards-compatibility/"><u>Best Xbox One Hits You Should Play Again with Xbox Series X/S Backwards Compatibility</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/bundle-up-for-ultimate-entertainment-get-netflix-peacock-and-apple-tvplus-with-xfinitys-exclusive-offering-now/"><u>Bundle Up for Ultimate Entertainment - Get Netflix, Peacock & Apple TV+ With Xfinity's Exclusive Offering Now!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/diy-3d-printing-projects-things-its-better-left-unprinted/"><u>DIY 3D Printing Projects: Things It’s Better Left Unprinted</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/eco-friendly-shift-amazon-eliminates-plastic-air-pillows-for-sustainable-wrapping-options/"><u>Eco-Friendly Shift: Amazon Eliminates Plastic Air Pillows for Sustainable Wrapping Options</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/embracing-the-classics-how-i-prefer-retro-gaming-over-modern-titles/"><u>Embracing the Classics: How I Prefer Retro Gaming Over Modern Titles</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/free-or-paid-spotify-evaluating-the-benefits-to-decide-if-premium-membership-is-right-for-you/"><u>Free or Paid Spotify: Evaluating the Benefits to Decide if Premium Membership Is Right for You</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/how-i-successfully-silenced-unwanted-white-hissing-sound-from-my-audio-system/"><u>How I Successfully Silenced Unwanted White Hissing Sound From My Audio System</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-photo-editing-a-guide-to-using-print-command-in-photoshop/"><u>Mastering Photo Editing: A Guide to Using Print Command in Photoshop</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-recruiter-shorts-find-your-motivation-in-2024/"><u>Top Recruiter Shorts Find Your Motivation, In 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-xiaomi-redmi-note-12-pro-4g-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Xiaomi Redmi Note 12 Pro 4G Phone Password Without Factory Reset Full Guide Here</u></a></li>
 </ul></div>
 

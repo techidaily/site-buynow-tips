@@ -1,7 +1,7 @@
 ---
 title: "Evolution of a Brand: A Thorough Review and Contrast Between the S10+ & S20"
-date: 2024-08-15T09:51:31.470Z
-updated: 2024-08-16T09:51:31.470Z
+date: 2024-10-19T14:36:12.445Z
+updated: 2024-10-24T06:24:47.723Z
 categories:
   - BestProducts
 description: "This Article Describes Evolution of a Brand: A Thorough Review and Contrast Between the S10+ & S20"
@@ -40,8 +40,12 @@ Lifewire / Erika Rawes
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -75,7 +79,27 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup: Easier than most**
 
@@ -85,9 +109,6 @@ Lifewire / Erika Rawes
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Almost two dozen channels**
 
  The Antop AT-127 supports UHF and VHF signals. Overall, it works pretty smoothly, though some channels might have look pixelated for a few seconds when you flip to them or take a second or two to fully load.
@@ -98,9 +119,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Range: Could be better**
 
  My test home is in a rural area, and there’s a lot of tree cover on the property. The omnidirectional Antop AT-127 has a 40-mile range, which was enough to pick up local channels from neighboring cities.
@@ -114,16 +132,22 @@ Lifewire / Erika Rawes
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
  You can find indoor antennas for less than $15 (view on[Amazon](https://www.amazon.com/dp/B075ZQXB26/?tag=lifewire-onsite-prod-20&ascsubtag=4845583%7Cna0f30cabffec4337b279a8df3e4c99b015%7C) ). The[AmazonBasics](https://www.lifewire.com/amazonbasics-flat-tv-antenna-review-4845569) 35-mile range antenna is a good example, though it doesn’t come with a stand or have the easy-push connector. Aesth etically, the AmazonBasics antenna doesn’t hold a candle to the Antop antenna, but it does cost significantly less.
@@ -134,9 +158,6 @@ The ultimate burning program for all your needs!</a>
 
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  AT-127
@@ -153,14 +174,11 @@ The ultimate burning program for all your needs!</a>
 * Screen Resolution  1080p
 * Connectivity Options  Quick push “E-Z connect” F connector (coaxial cable)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -169,4 +187,26 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-requirements-paving-your-path-to-a-new-iphone/"><u>Exploring the Requirements: Paving Your Path to a New iPhone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/from-windows-11-32-bit-to-a-64-bit-operating-system/"><u>From Windows 11 (32-Bit) to a 64-Bit Operating System</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/1722989555725-get-call-of-duty-black-ops-4-running-perfectly-a-step-by-step-troubleshooting-tutorial/"><u>Get Call Of Duty: Black Ops 4 Running Perfectly - A Step-by-Step Troubleshooting Tutorial</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/get-premium-features-on-a-budget-with-lgs-lg-2cytnktv-series-the-ultimate-smart-tv-solution/"><u>Get Premium Features on a Budget with LG's LG 2CYTNKTV Series: The Ultimate Smart TV Solution</u></a></li>
+<li><a href="https://program-issues.techidaily.com/handling-common-browser-errors-when-ie-wont-show-the-webpage-anymore/"><u>Handling Common Browser Errors: When IE Won't Show the Webpage Anymore</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/he-has-been-working-in-this-industry-for-10-years/"><u>He Has Been Working in This Industry for 10 Years</u></a></li>
+<li><a href="https://win-blog.techidaily.com/illuminate-the-gameplay-eradicating-the-darkness-of-fortnites-pc-blackout-problem/"><u>Illuminate the Gameplay: Eradicating the Darkness of Fortnite's PC Blackout Problem</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/imperator-rome-evaluation-rise-to-power-or-face-defeat/"><u>Imperator: Rome Evaluation - Rise To Power Or Face Defeat</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-vivo-v27-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Vivo V27</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-and-user-experience-tips-for-google-maps-on-iphone/"><u>In-Depth Analysis and User Experience Tips for Google Maps on iPhone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-offworld-trading-company-mastering-the-ruthless-trade-game/"><u>In-Depth Analysis of Offworld Trading Company: Mastering the Ruthless Trade Game</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-imo-instant-messenger-experience/"><u>In-Depth Look at the Imo Instant Messenger Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-moto-g-stylus-evaluation-exceptional-performance-and-reliable-battery-with-added-precision/"><u>In-Depth Moto G Stylus Evaluation: Exceptional Performance & Reliable Battery with Added Precision</u></a></li>
+<li><a href="https://video-capture.techidaily.com/mastering-the-zoom-meeting-experience-tips-for-fluid-online-discussion/"><u>Mastering the Zoom Meeting Experience Tips for Fluid Online Discussion</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-elevate-your-edit-5-advanced-final-cut-pro-techniques-to-try-now/"><u>New 2024 Approved Elevate Your Edit 5 Advanced Final Cut Pro Techniques to Try Now</u></a></li>
+<li><a href="https://extra-support.techidaily.com/quick-click-compilation-top-10-fastest-phone-and-pc-apps-for-2024/"><u>Quick Click Compilation Top 10 Fastest Phone & PC Apps for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/roku-streambar-review/"><u>Roku Streambar Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-scope-scouting-discovering-profile-and-group-links/"><u>Social Scope Scouting: Discovering Profile & Group Links</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-steps-if-amazon-echo-alexa-stops-responding/"><u>Troubleshooting Steps If Amazon Echo (Alexa) Stops Responding</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "High Performance, Low Price: Exploring the Acer Predator Triton 300SE's Worth"
-date: 2024-10-13T19:22:51.433Z
-updated: 2024-10-18T17:31:31.519Z
+date: 2024-10-17T11:29:35.639Z
+updated: 2024-10-23T23:51:42.266Z
 categories:
   - BestProducts
 description: "This Article Describes High Performance, Low Price: Exploring the Acer Predator Triton 300SE's Worth"
@@ -46,6 +46,13 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/fvtiWpBnRJ1dR-89xJ_kOkkEUSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_Hero5x4-c5d70a06640a47aca3f64903cf5af851.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Andy Zahn
 
 [View On Amazon $687](https://www.amazon.com/dp/B08GZJM87M?tag=lifewire-onsite-prod-20&ascsubtag=5088869%7Cn39b75fce77a645f6a71bfee9a542bdee21%7CB08GZJM87M) [View On Walmart $529](https://www.walmart.com/ip/Microsoft-Surface-Laptop-Go-12-4-Windows-Computer-Intel-Core-i5-8GB-DDR-256GB-SSD-Ice-Blue-THJ-00024/911853593?slfpid=3)
@@ -71,13 +78,6 @@ Lifewire / Andy Zahn
 
  Most[Microsoft Surface](https://www.lifewire.com/microsoft-surface-series-4163521) products tend to be high end and expensive, but the Surface Laptop Go bucks this stereotype by offering an attractive and competent laptop at an affordable price point. This is a premium quality ultrabook designed to go head to head with the MacBook Air and other ultraportable laptops, but for a lot less money. I put it to the test for 20 hours, evaluating its design, screen quality, performance, battery life, and more.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Sleek and beautiful**
 
  The Surface Laptop Go is certainly a looker. Its solid metal and plastic construction feels both durable and lightweight, and it’s available in Ice Blue, Sandstone, and Platinum. I find Sandstone to be particularly attractive for making the Laptop Go stand out from the crowd. It’s also remarkably thin, and will fit in just about any bag.
@@ -85,10 +85,10 @@ Lifewire / Andy Zahn
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/DZ-_Yk02QL0fYrm0o3TDO7zXv3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_05-e2623904845848a3841272c93ab139f1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
@@ -104,13 +104,6 @@ Lifewire / Andy Zahn
  The 12.4-inch display on the Surface Laptop Go seems larger than the size would suggest, thanks to its 3:2 aspect ratio. Because of that aspect ratio, this laptop is purpose-built for productivity. In fact, it was the ideal device for typing out this article. The 1536x1024 resolution is quite sharp, and colors are sharp and accurate with great contrast. Due to the 3:2 aspect ratio, you get black bars on the top and bottom when watching movies and shows, but they still look great due to the quality of the screen.
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/kz6EW4svzivooWEtdVJ5TAnOYOs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_06-07315e6a9862481bba3820f745d49887.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -134,6 +127,19 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/dzb-7fUK5xGots6oe-9ZhkMnnTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_07-3d9500befc3a4b50baf014cc571210a5.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
  Another limiting factor is the storage capacity of the Surface Laptop Go. The configuration I tested only had 128GB of space on its solid-state drive, and the maximum configuration only comes with 256GB. You’re not going to be storing a lot of data locally on this machine forcing you to resort to cloud storage most of the time.
@@ -142,18 +148,18 @@ Lifewire / Andy Zahn
 
  With[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) and[Bluetooth 5.0](https://www.lifewire.com/bluetooth-5-4160255) , the Surface Laptop Go is equipped with a competent range of communications capabilities. I had no issues utilizing the full power of my home Wi-Fi network or connecting Bluetooth devices.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery Life: Long-lasting**
 
  A well-advertised feature of the Surface Laptop Go is its 13-hour battery life. I found this to be a pretty accurate estimate and was able to use it all day without having to recharge. It’ll comfortably fill out a workday or last for a long plane flight.
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/R8WVIj9pTzxwTOIwiZpDPRc6Bws=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_03-d503f456e6df4db4a3ad76a6a9a49e72.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -165,13 +171,6 @@ Lifewire / Andy Zahn
 
  In terms of bloatware, the laptop came with a few pre-installed apps: a Microsoft Office trial, Adobe Photoshop Express, and a few other odds and ends. However, it’s all easily removed if you so choose, and doesn’t really get in the way.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Reasonable Value**
 
  With an MSRP of $549, the Surface Laptop Go offers high-end build quality at a mid-range price point. It’s hard to find a laptop in this price range that looks this good and is so eminently usable. Of course, that price might be higher depending upon the configuration you go with.
@@ -179,20 +178,13 @@ Lifewire / Andy Zahn
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/_QEntMJEPlaXArgv2l576Qnr7MU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_04-21f4f7c4d0f54436bb1449bf36a42460.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Microsoft Surface Laptop Go vs. HP Pavilion 14 HD**
 
@@ -208,10 +200,24 @@ Lifewire / Andy Zahn
 
  The Microsoft Surface Laptop Go looks and feels like a much more expensive device. It’s thin and light, with a great keyboard and trackpad paired with fast and responsive components. This is an ideal option for anyone who needs an affordable ultra-portable laptop for work, school, or travel.
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Microsoft Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584)
 * [Google Pixelbook Go](https://www.lifewire.com/google-pixelbook-go-review-4797012)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -243,24 +249,18 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-optimizing-igtv-video-success-metrics/"><u>[New] In 2024, Optimizing IGTV Video Success Metrics</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-screen-sharing-showdown-obs-vs-twitch-studio-face-off/"><u>[New] Screen Sharing Showdown OBS vs Twitch Studio Face-Off</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-uncovering-secrets-in-instagram-story-watchers/"><u>[New] Uncovering Secrets in Instagram Story Watchers</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-unleashing-potential-in-ar-applying-lut-techniques/"><u>[Updated] 2024 Approved Unleashing Potential in AR Applying LUT Techniques</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-seamless-playlist-transfer-migrating-from-spotify-to-youtube-music-service/"><u>[Updated] In 2024, Seamless Playlist Transfer Migrating From Spotify to YouTube Music Service</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-american-karaoke-experience-quality-entertainment-below-150/"><u>Affordable American Karaoke Experience: Quality Entertainment Below $150</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-lenovo-tab-m10-hd-202n-review-ultimate-guide-for-web-browsing-and-media-streaming/"><u>Affordable Lenovo Tab M10 HD 202N Review: Ultimate Guide for Web Browsing & Media Streaming</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-temperature-readings-or-fragile-equipment-our-in-depth-tp67-analysis/"><u>Affordable Temperature Readings or Fragile Equipment? Our In-Depth TP67 Analysis</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-a-straightforward-approach-beginners-guide-to-creating-nfts/"><u>In 2024, A Straightforward Approach Beginner's Guide to Creating NFTs</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/make-a-difference-in-your-desktop-experience-explore-8-winbubble-tips/"><u>Make a Difference in Your Desktop Experience - Explore 8 WinBubble Tips</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/professional-techniques-for-superior-audacity-sessions-for-2024/"><u>Professional Techniques for Superior Audacity Sessions for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/simple-troubleshooting-steps-for-a-non-functioning-hangouts-microphone/"><u>Simple Troubleshooting Steps for a Non-Functioning Hangouts Microphone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/top-12-photo-viewer-apps-compared-best-choices-for-windows-11-and-macos/"><u>Top 12 Photo Viewer Apps Compared: Best Choices for Windows 11 & macOS</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-hidden-gem-of-tablets-a-comprehensive-review-of-the-apple-ipad-air-cued-for-savings-like-a-more-accessible-ipad-pro/"><u>Unveiling the Hidden Gem of Tablets: A Comprehensive Review of the Apple iPad Air Cued for Savings Like a More Accessible iPad Pro</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-perks-and-pitfalls-a-complete-assessment-of-dell-xps-13-latest-model/"><u>Unveiling the Perks and Pitfalls: A Complete Assessment of Dell XPS 13 Latest Model</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/why-m3-macbook-air-should-be-on-your-radar/"><u>Why M3 MacBook Air Should Be on Your Radar</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/why-tech-enthusiasts-love-the-samsung-galaxy-s20-fe-a-detailed-look-at-its-5g-capabilities/"><u>Why Tech Enthusiasts Love the Samsung Galaxy S20 FE – A Detailed Look at Its 5G Capabilities</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/why-the-ring-video-doorbell-2-is-a-must-have-for-your-home-safety-arsenal/"><u>Why the Ring Video Doorbell 2 Is a Must-Have for Your Home Safety Arsenal</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/would-you-benefit-from-chatgpt-plus-heres-why-you-should-consider-signing-up/"><u>Would You Benefit From ChatGPT Plus? Here's Why You Should Consider Signing Up!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-optimize-video-sharing-preferences-on-youtube/"><u>[Updated] Optimize Video Sharing Preferences on YouTube</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-a-guide-to-tailoring-your-hashtag-strategy-for-maximum-engagement-and-conversion-rates-on-facebook/"><u>2024 Approved A Guide to Tailoring Your Hashtag Strategy for Maximum Engagement and Conversion Rates on Facebook</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-procedure-of-ending-linkedin-services-and-deletion-process/"><u>2024 Approved Procedure of Ending LinkedIn Services and Deletion Process</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-most-recent-geforce-aturbidtrue)geforce(a)-210-drivers-specifically-tuned-for-windows-11/"><u>Get the Most Recent GeForce Aturbid=true>GeForce</A> 210 Drivers Specifically Tuned for Windows 11</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/get-up-in-style-on-a-budget-the-totobay-wake-up-light-2nd-gen-your-best-ally-for-a-gentle-awakening/"><u>Get Up in Style on a Budget: The Totobay Wake-Up Light (2Nd Gen) - Your Best Ally for a Gentle Awakening</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-unveiling-the-core-technology-behind-superior-screen-captures-by-recmeister/"><u>In 2024, Unveiling the Core Technology Behind Superior Screen Captures by Recmeister</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/master-the-quick-and-easy-photo-fixes-in-windows/"><u>Master the Quick & Easy Photo Fixes in Windows</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/methods-to-revert-windows-settings-after-restart/"><u>Methods to Revert Windows Settings After Restart</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/optimal-choice-for-avid-gamers-exploring-the-samsung-q60r-series-4k-qled-television/"><u>Optimal Choice for Avid Gamers? Exploring the Samsung Q60R Series 4K QLED Television</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-complete-guide-to-understanding-and-assessing-truecallers-performance/"><u>The Complete Guide to Understanding and Assessing TrueCaller's Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-selection-six-prime-websites-to-buy-your-next-television/"><u>The Ultimate Selection: Six Prime Websites to Buy Your Next Television</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/unlocking-secrets-how-to-bypass-dvd-copy-safeguards/"><u>Unlocking Secrets: How to Bypass DVD Copy Safeguards</u></a></li>
 </ul></div>
 

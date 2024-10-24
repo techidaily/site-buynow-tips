@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
-date: 2024-10-15T18:18:02.151Z
-updated: 2024-10-18T20:59:58.674Z
+date: 2024-10-21T11:50:58.528Z
+updated: 2024-10-24T06:12:40.396Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
@@ -69,14 +69,14 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/OXMiCXvzh8P7esVvbjPoSorzoxM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-2-7b14850c2ca84af39d5fd116ab483d5d.jpg)
 
- Lifewire / Jonno Hill
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Jonno Hill
 
 ## **Design** : **Nice looks and small footprint, with many reservations**
 
@@ -100,6 +100,13 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/gfeGQoUwG35q5t-JwO07Ax4jm5I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-3-f4e655ec9e684a47855e9ee7373ba4b6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 ## **Performance** :**Great components for gaming and productivity**
@@ -109,13 +116,6 @@ Lifewire / Jonno Hill
  The desktop scored an impressive 6,967 in the productivity-focused benchmarking application PCMark 10\. On the gaming front, the Omen managed a score of 10,740 in 3DMark’s Time Spy. In real-world use, this means more than 60fps at 4K in many popular titles like GTA V, but less than 60fps in others like Deus Ex: Mankind Divided. In other words, the Omen is mostly capable of 4K gameplay and is nearly always capable of 60+ fps in most common resolutions shy of 4K.
 
  The Omen comes equipped with a 1TB[NVMe SSD](https://www.lifewire.com/what-is-m2-833453) and 32GB of DDR4 2666 memory. This is definitely more RAM than games alone will call for, but it’s merely an adequate amount of RAM for some creative professionals working with more demanding software like Adobe After Effects. Keep in mind though, even those that don’t normally need a lot of RAM can still benefit from having more. Among other things, it gives you the luxury of keeping all of your browser tabs and background applications running without having to start juggling applications on and off, which can be helpful from a productivity standpoint.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Gaming** :**Great for the most demanding titles**
 
@@ -131,20 +131,14 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Pz9tV-mhJl_Cjm8HSqEQ_VZPbVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-5-cdbd9d78a8c14b8e8bce0113d12e9fcc.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Network** :**Great speeds, but software that doesn’t do much**
 
@@ -171,13 +165,20 @@ Lifewire / Jonno Hill
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/J3cZUfrEy-ALtFpRbDRhw7FZI8M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-4-f78d504d7bd348eca19b7e65b4d10289.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **HP OMEN Obelisk vs Corsair One Pro**
 
@@ -190,13 +191,6 @@ Lifewire / Jonno Hill
  **High performance and fantastic value, but upsetting thermals.**
 
  The HP OMEN Obelisk delivers fantastic value for gamers shopping for a high-performance, pre-built PC. HP has come a long way, and now offers a much more compelling solution that will appeal to a much broader set of buyers. That said, there is work to be done still, as the case suffers from poor airflow, poor thermals, and not a lot of meaningful ways to improve them.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -232,24 +226,22 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-views-essential-hashtags-for-trending-shorts/"><u>2024 Approved Boosting Views Essential Hashtags for Trending Shorts</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-what-lies-beneath-the-core-of-asmr-videos/"><u>2024 Approved What Lies Beneath The Core of ASMR Videos</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-unlock-from-iphone-se-2020-how-to-fix-it-by-drfone-ios/"><u>Apple ID Unlock From iPhone SE (2020)? How to Fix it?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/elevate-your-conversations-with-sennheiser/"><u>Elevate Your Conversations with Sennheiser</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/elite-selection-of-tracking-wristwear-the-premier-runners-chronographs-of-2024/"><u>Elite Selection of Tracking Wristwear - The Premier Runners' Chronographs of 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/essential-choices-premier-extended-pads-for-pc-users-rankings-and-insights-2eplus-years/"><u>Essential Choices: Premier Extended Pads for PC Users - Rankings and Insights (2E+ Years)</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-performance-and-user-experience-of-linksyss-universal-choice-ac1900-max-stream-router/"><u>Evaluating Performance & User Experience of Linksys's Universal Choice AC1900 Max-Stream Router</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-analysis-linksys-wrt1/"><u>Expert Analysis: Linksys WRT1</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-picks-for-the-ultimate-smart-speaker-comparison-of-2024/"><u>Expert Picks for the Ultimate Smart Speaker Comparison of 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-review-djis-phantom-4-pro-version-2-soaring-to-new-heights-in-drone-technology/"><u>Expert Review: DJI's Phantom 4 Pro Version 2 - Soaring to New Heights in Drone Technology</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-xiaomi-14-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Xiaomi 14 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-full-guide-to-bypass-honor-v-purse-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Honor V Purse FRP</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-realme-narzo-n53-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Realme Narzo N53 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-cyberpower-685avrg-ups-effective-and-efficient-protection-for-your-devices/"><u>In-Depth Analysis of the Cyberpower 685AVRG UPS: Effective and Efficient Protection for Your Devices</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-of-the-garmin-forerunner-265-fitness-tracker/"><u>In-Depth Evaluation of the Garmin Forerunner 265 Fitness Tracker</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/overcoming-school-blocks-for-fortnite-tips-and-tricks-revealed/"><u>Overcoming School Blocks for Fortnite - Tips and Tricks Revealed</u></a></li>
-<li><a href="https://win-dash.techidaily.com/seamless-microsoft-sculpt-ergonomic-keyboard-driver-enhancements-how-to-update-with-ease/"><u>Seamless Microsoft Sculpt Ergonomic Keyboard Driver Enhancements – How to Update with Ease</u></a></li>
-<li><a href="https://techidaily.com/this-is-how-you-can-recover-deleted-pictures-from-asus-rog-phone-7-by-fonelab-android-recover-pictures/"><u>This is how you can recover deleted pictures from Asus ROG Phone 7.</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-speaker-malfunctions-in-microsoft-presentations/"><u>Troubleshooting Speaker Malfunctions in Microsoft Presentations</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-future-vision-evolving-trends-in-multicam-video-technology-for-2024/"><u>[New] Future Vision Evolving Trends in Multicam Video Technology for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-effortless-steps-to-obtain-free-audio-for-videos-for-2024/"><u>[Updated] Effortless Steps to Obtain Free Audio for Videos for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1726218906170-wav-movavi/"><u>在線免費三維顯示影片轉化為WAV音效-用Movavi無限變換器</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-the-apc-back-ups-pro-1500va-exceptional-energy-capacity-and-versatile-outlet-configuration/"><u>Comprehensive Analysis of the APC Back-UPS Pro 1500VA: Exceptional Energy Capacity & Versatile Outlet Configuration</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-portable-sonos-reliability-and-quality/"><u>Discovering Portable Sonos: Reliability and Quality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-might-of-minimization-a-review-of-the-durable-and-potent-unihertz-atom-xl-phone/"><u>Discovering the Might of Minimization: A Review of the Durable and Potent Unihertz Atom XL Phone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elevating-your-drawing-experience-the-ultimate-review-of-the-spacious-and-vibrant-gt-191-tablet-by-huion/"><u>Elevating Your Drawing Experience - The Ultimate Review of the Spacious & Vibrant GT-191 Tablet by Huion</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-value-for-money-in-high-end-wifi-weather-stations-with-a-focus-on-the-ambient-ws-10002-review/"><u>Exploring Value for Money in High-End WiFi Weather Stations with a Focus on the Ambient WS-10002 Review</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixes-for-nier-automata-game-crashing-issues-on-pc/"><u>Fixes for Nier: Automata Game Crashing Issues on PC</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-13-pro-max-to-other-iphone-15-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 13 Pro Max To Other iPhone 15 devices? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Huawei Nova Y91? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-transforming-your-videos-with-captivating-youtube-thumbnails-using-a-mac/"><u>In 2024, Transforming Your Videos with Captivating Youtube Thumbnails, Using a Mac</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lenovos-p11-pro-tablet-revealed-exceptional-features-but-not-without-some-downsides/"><u>Lenovo's P11 Pro Tablet Revealed: Exceptional Features but Not Without Some Downsides</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/prime-choices-purchasing-your-dreams-in-youtube-ringtones-for-2024/"><u>Prime Choices Purchasing Your Dreams in YouTube Ringtones for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/spinning-stories-across-a-whole-cone-for-2024/"><u>Spinning Stories Across a Whole Cone for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-amplifi-experience-reviewed-effortlessly-overcome-wi-fi-coverage-gaps/"><u>The Amplifi Experience Reviewed: Effortlessly Overcome Wi-Fi Coverage Gaps</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleashing-power-and-efficiency-the-all-new-202n-macbook-pro-with-the-m1-processor-reviewed/"><u>Unleashing Power and Efficiency: The All-New 202N MacBook Pro with the M1 Processor Reviewed</u></a></li>
 </ul></div>
 

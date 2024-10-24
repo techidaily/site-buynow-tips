@@ -1,7 +1,7 @@
 ---
 title: "Patekfly 12 Flexible Tripod Review: A Quirky Little Assistant"
-date: 2024-08-15T09:52:52.893Z
-updated: 2024-08-16T09:52:52.893Z
+date: 2024-10-17T02:27:11.413Z
+updated: 2024-10-23T20:50:41.210Z
 categories:
   - BestProducts
 description: "This Article Describes Patekfly 12 Flexible Tripod Review: A Quirky Little Assistant"
@@ -37,14 +37,21 @@ Lifewire / Rebecca Isaacs
 4.6
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Ergodriven Topo Standing Desk Mat
 
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/GZTKidZtByl51GvkYiB-jNjEjbE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Ergodriven-Topo-Comfort-Mat-1-ccd96f7c454945c3b974a2f5cba4fe79.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
@@ -67,11 +74,15 @@ Lifewire / Rebecca Isaacs
  A standing desk isn’t complete without a standing desk mat, at least not if you value your comfort. We tried out the Topo by Ergodriven Standing Desk Mat, testing it for comfort, design, and performance. We decided to test it for a few hours a day over the course of a week to see how it worked.
 
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/KYfJPJ0jHZhmy15IUeGxDL8kmRw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ergodriven-Topo-Comfort-Mat-2-547d9823c4ac47cbb5a360040866172a.jpg)
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Simply modern**
 
@@ -79,11 +90,15 @@ Lifewire / Rebecca Isaacs
 
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/0MLp0JKyXodrqDxUdun30XlUicQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ergodriven-Topo-Comfort-Mat-3-5e85cbed72974e018684fe954f0ddf1b-75abe4f41eba41c3b202cdf74fbf3caa.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Performance: Flawed, but still solid**
 
  As we previously stated, one of the features of this mat is the massage mound in the center. When we first stepped onto the mat, we really disliked how we couldn’t shift without bumping the massage mound. It’s a great feature if you want to change your ankle stances or relieve your foot pain. However, if you’re standing on the mat for extended hours at a time, your feet are stuck off to the sides and you really can’t shift around as time progresses.
@@ -98,10 +113,6 @@ Lifewire / Rebecca Isaacs
 
  We also liked how the mat slides around on various surfaces, but it’s not too slippery. We hauled it around to various offices with tile and carpet. Each time we set it down, we could push it under the desk with ease if we needed to sit for extended lengths of time and pull it out just as easily when we wanted to stand.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ## **Price: Pretty steep for a mat**
 
  At around $100 on Amazon, the Topo is in the higher price range for a standing desk mat. We could find models that don’t have the massage mound in the center, however, the steep power wedges in the back make it a reasonable investment for anyone who really wants to stretch out their legs.
@@ -122,9 +133,6 @@ Lifewire / Rebecca Isaacs
 
  For a standing desk mat with some exercise features, the Ergodriven Topo is a fairly decent choice. While we think there are other, better mats out there, but the Topo does hide dirt better, and the deep rear wedges stretch the hamstrings more than most other models on the market. If you want a solid stretch, then the Ergodriven Topo is the best choice for you.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Topo Standing Desk Mat
@@ -135,14 +143,11 @@ Lifewire / Rebecca Isaacs
 * Warranty  Seven Years
 * Connectivity Options  None
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -151,4 +156,20 @@ Lifewire / Rebecca Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-real-time-broadcasting-obs-to-instagram/"><u>[New] 2024 Approved Real-Time Broadcasting OBS to Instagram</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-oppo-a59-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/avoid-tv-recorder-trap-reflect-before-you-buy/"><u>Avoid TV Recorder Trap: Reflect Before You Buy</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/capture-adventures-with-budget-friendly-coolpix-w100/"><u>Capture Adventures with Budget-Friendly Coolpix W100</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-apples-newest-giants-iphone-15-plus-versus-pro-max/"><u>Comparing Apple's Newest Giants: IPhone 15 Plus Versus Pro Max</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-the-budget-friendly-pruveeo-f5-full-hd-dash-cam/"><u>Comprehensive Analysis of the Budget-Friendly Pruveeo F5 Full HD Dash Cam</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/creative-ways-to-add-green-screen-effects-in-photoshop-for-2024/"><u>Creative Ways to Add Green Screen Effects In Photoshop for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exclusive-catalog-budget-friendly-image-treasuries-online-for-2024/"><u>Exclusive Catalog Budget-Friendly Image Treasuries Online for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-latest-version-of-your-hp-deskjet-3700-printers-software-for-smooth-performance/"><u>Get the Latest Version of Your HP DeskJet 3700 Printer's Software for Smooth Performance</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-ensure-a-smooth-fifa-20-experience-on-pc-expert-crash-prevention-tips/"><u>How to Ensure a Smooth FIFA 20 Experience on PC – Expert Crash-Prevention Tips</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/hp-beats-audio-driver-issue-in-windows-1187-solved/"><u>HP Beats Audio Driver Issue in Windows 11/8/7 [Solved]</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-7-main-takeaways-whistleblowers-leak-on-fb/"><u>The 7 Main Takeaways: Whistleblower's Leak on FB</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On OnePlus Nord CE 3 Lite 5G? | Dr.fone</u></a></li>
+</ul></div>
 

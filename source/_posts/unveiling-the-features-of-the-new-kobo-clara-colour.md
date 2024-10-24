@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Features of the New Kobo Clara Colour
-date: 2024-10-16T18:34:07.275Z
-updated: 2024-10-18T18:02:31.314Z
+date: 2024-10-18T23:23:57.380Z
+updated: 2024-10-23T22:57:04.305Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Features of the New Kobo Clara Colour
@@ -39,13 +39,6 @@ Lifewire / Emily Ramirez
 
 2.8
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
@@ -74,18 +67,25 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/U_vmwZDe5HbbungQ5L2hzf2LVto=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-4-b0d1cca56ec04a61b83e20d1cecf2aea.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Hardware: Some odd decisions**
 
@@ -94,6 +94,13 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process/Installation: Easy install, irritating setup**
 
@@ -105,13 +112,20 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
@@ -123,13 +137,6 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
  Lifewire / Emily Ramirez
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: Lots of options with mixed utility**
 
@@ -167,19 +174,6 @@ Lifewire / Emily Ramirez
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
-
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -219,24 +213,20 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-mastering-igtv-sharing-via-insta-stories/"><u>[Updated] 2024 Approved Mastering IGTV Sharing via Insta Stories</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-nokia-c12-plus-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Nokia C12 Plus</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-ways-to-clean-up-your-facebook-account/"><u>5 Ways to Clean Up Your Facebook Account</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/fire-up-your-choices-comparing-amazons-fire-and-samsung-tablets/"><u>Fire Up Your Choices: Comparing Amazon's Fire & Samsung Tablets</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/fitbit-sense-a-wellness-forward-alternative-to-the-apple-watch/"><u>Fitbit Sense: A Wellness-Forward Alternative to the Apple Watch</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/future-proof-energy-solutions-elite-power-inverter-choices/"><u>Future-Proof Energy Solutions: Elite Power Inverter Choices</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/gamers-guide-assessing-the-graphic-enhancements-of-ps4-pro-for-4k-output/"><u>Gamers' Guide: Assessing the Graphic Enhancements of PS4 Pro for 4K Output</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-to-install-and-benefit-from-the-robust-acurite-professional-weather-station-model-01036m/"><u>How to Install and Benefit From the Robust AcuRite Professional Weather Station - Model 01036M</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-motorola-moto-g73-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Motorola Moto G73 5G to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-realme-11x-5g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Realme 11X 5G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-xiaomi-civi-3-disney-100th-anniversary-edition-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Xiaomi Civi 3 Disney 100th Anniversary Edition Phone?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Realme V30T | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-samsung-un65nu8000fxza-evaluating-smart-features-and-cost-effectiveness/"><u>In-Depth Analysis of the Samsung UN65NU8000FXZA: Evaluating Smart Features and Cost Effectiveness</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-review-is-the-docooler-usb-20-and-12-megapixel-quality-worth-it/"><u>In-Depth Review: Is The Docooler USB 2.0 and 12 Megapixel Quality Worth It?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/is-the-newest-generation-apple-ipad-102-inch-worth-it-a-comprehensive-review/"><u>Is the Newest Generation Apple iPad 10.2-Inch Worth It? A Comprehensive Review.</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-performance-watches-find-your-perfect-match/"><u>Leading Performance Watches : Find Your Perfect Match</u></a></li>
-<li><a href="https://extra-information.techidaily.com/marketing-layers-deconstructing-strategys-packaging/"><u>Marketing Layers Deconstructing Strategy's Packaging</u></a></li>
-<li><a href="https://win11.techidaily.com/navigate-and-rectify-common-errors-using-snip-and-sketch-on-windows/"><u>Navigate and Rectify Common Errors Using Snip & Sketch on Windows.</u></a></li>
-<li><a href="https://app-tips.techidaily.com/transform-time-worn-images-with-these-3-powerful-applications-for-modernizing-classic-photos/"><u>Transform Time-Worn Images with These 3 Powerful Applications for Modernizing Classic Photos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-screensnappers-journey-navigating-the-latest-recorders/"><u>[New] ScreenSnapper's Journey Navigating the Latest Recorders</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-exploring-updates-to-sonys-s6500-model/"><u>2024 Approved Exploring Updates to Sony's S6500 Model</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-airpods-pro-vs-samsung-galaxy-buds-pro/"><u>Apple AirPods Pro Vs. Samsung Galaxy Buds Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/does-purging-facial-data-impact-user-safety-on-facebook/"><u>Does Purging Facial Data Impact User Safety on Facebook?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-features-of-mobvoi-ticwatch-pro-3-gps-maximizing-longevity-with-two-screens/"><u>Exploring the Features of Mobvoi TicWatch Pro 3 GPS - Maximizing Longevity with Two Screens</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-the-top-free-video-editors-for-avi-file-conversion/"><u>New In 2024, The Top Free Video Editors for AVI File Conversion</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-xiaomi-redmi-k70e-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Xiaomi Redmi K70E Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tablet-selection-guide-assessing-chipset-performance-and-efficiency/"><u>Tablet Selection Guide: Assessing Chipset Performance and Efficiency</u></a></li>
+<li><a href="https://win-answers.techidaily.com/tackle-your-naraka-gameplay-disruptions-with-effective-solutions/"><u>Tackle Your Naraka Gameplay Disruptions with Effective Solutions!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-cost-of-precision-with-the-ambient-ws-10002-wifi-weather-sensor-a-comprehensive-review/"><u>The Cost of Precision with the Ambient WS-10002 WiFi Weather Sensor - A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tp-link-archer-c9-the-ultimate-review-of-a-cost-effective-wireless-router/"><u>TP-Link Archer C9: The Ultimate Review of a Cost-Effective Wireless Router</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/transforming-twitter-video-links-to-audio-for-2024/"><u>Transforming Twitter Video Links to Audio for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-pc-audio-issues-fixing-reduced-speaker-output-in-windows-10/"><u>Troubleshooting PC Audio Issues: Fixing Reduced Speaker Output in Windows 10</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/truck-drivers-audio-choice-a-budget-friendly-high-performing-gadget-review/"><u>Truck Driver’s Audio Choice: A Budget-Friendly, High-Performing Gadget Review</u></a></li>
 </ul></div>
 

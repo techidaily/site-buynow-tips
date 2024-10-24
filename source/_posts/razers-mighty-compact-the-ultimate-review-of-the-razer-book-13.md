@@ -1,7 +1,7 @@
 ---
 title: "Razer's Mighty Compact: The Ultimate Review of the Razer Book 13"
-date: 2024-10-12T17:40:09.580Z
-updated: 2024-10-18T19:54:36.787Z
+date: 2024-10-23T10:12:06.257Z
+updated: 2024-10-24T08:07:29.555Z
 categories:
   - BestProducts
 description: "This Article Describes Razer's Mighty Compact: The Ultimate Review of the Razer Book 13"
@@ -41,10 +41,16 @@ Lifewire / Andrew Hayward
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## LG Gram 15.6-inch (2018)
@@ -83,10 +89,10 @@ Lifewire / Andrew Hayward
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Amazingly light, but not wholly convincing**
@@ -111,14 +117,14 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/1qu1WvdEgTzjUQ8QH_Lssx79xF0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Trackpad_05-f0d9dc63b03e4650a92e30747090889a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Just follow the directions**
 
@@ -136,6 +142,13 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Solid power for everyday tasks**
 
  With an 8th-gen Intel Core i5-8250U at 1.6Ghz and 8GB RAM onboard, the 2018 LG Gram runs on the same chipset as the Surface Laptop 2 and Dell XPS 13\. It provides solid power for everyday tasks, and we didn't run into any noticeable slowdown while moving around Windows 10, surfing the web, typing up documents, and loading up apps. It's not a powerhouse CPU, however, and creative professionals looking for a machine for photo or video editing, for example, will surely want more processing power and RAM to play with.
@@ -147,6 +160,19 @@ Lifewire / Andrew Hayward
  With an integrated Intel Graphics UHD 620 GPU inside, the LG Gram isn't built for intense gaming needs. However, it does OK with modern 3D games at low-to-medium settings. As has been the case with other laptops we've tried, battle royale shooter smash Fortnite defaulted to settings that looked nice but led to a very choppy frame rate in action, and we ultimately had to turn off all effects and hit low settings on nearly everything to make the game run smoothly. Switching to Rocket League, the car-soccer game ran decently with mid-to-high settings, but again we trimmed down a few settings for a speedier frame rate.
 
  As an aside, while the LG Gram often runs near-silently, there are extended periods of time in which there's an audible hum coming from the back. It's not the typical, very loud fan noise that pops up while gaming or heavy multitasking from some computers, but it can be a bit grating. We noticed it while charging the computer, but also while running on the battery—with no consistency on that front. It's a mild annoyance, but it's one we noticed whenever it emerged.
+
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Audio: It makes an impression**
 
@@ -160,14 +186,14 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/AhDZOG33ttJ8LfKQnzvHO7K-S8I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Closed_02-d40445064b4945729278aeae3d8ae1c0.jpg)
 
- Lifewire / Andrew Hayward
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Andrew Hayward
 
 ## **Battery: Seriously amazing**
 
@@ -177,25 +203,11 @@ Lifewire / Andrew Hayward
 
  With our typical workflow of browsing the web, chatting on Slack, typing up documents, and streaming a little bit of media, we typically saw 8-9 hours of uptime at 100% brightness.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software: Hello, Windows (but no Windows Hello)**
 
  The LG Gram 15.6-inch comes with Windows 10 Home preinstalled, and if you've used Windows over the years, then you should be pretty comfortable here. Windows 10 has lightly evolved the PC operating system with feature enhancements and tweaks without losing the classic, familiar DNA within, and it's the OS of choice for computer gaming and apps of all shapes and sizes. It's easy to use and understand, and runs well with the Intel Core i5 and an SSD onboard.
 
  Unfortunately, this entry-level model of the LG Gram 15.6-inch isn't able to take advantage of Windows Hello biometric security, as the camera above the display doesn't have the needed sensors for scanning your face. We missed the near-instantaneous facial recognition of the Surface Laptop 2, and having to type in a PIN number each time we opened up the lid. Pricier models of the laptop offer a fingerprint scanner, however.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Solidly priced, considering its strengths**
 
@@ -253,24 +265,16 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-how-to-captivate-with-instagrams-live-feature-for-2024/"><u>[New] How to Captivate with Instagram's Live Feature for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-one-step-shot-simplify-podcast-streaming/"><u>[New] In 2024, One Step Shot Simplify Podcast Streaming</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-interpreting-user-inactivity-could-it-be-a-blocked-status/"><u>[New] Interpreting User Inactivity Could It Be a Blocked Status?</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-rapid-process-converting-images-into-engaging-youtube-desktop-pics/"><u>[Updated] Rapid Process Converting Images Into Engaging YouTube Desktop Pics</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-comparing-leading-names-in-4k-yt-video-to-mp3-tools/"><u>2024 Approved Comparing Leading Names in 4K YT Video to MP3 Tools</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-2022-olympic-sprint-ice-key-moments-and-winners/"><u>In 2024, 2022 Olympic Sprint Ice Key Moments and Winners</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-locked-apple-iphone-se-2022-password-learn-the-best-methods-to-unlock-by-drfone-ios/"><u>In 2024, Forgot Locked Apple iPhone SE (2022) Password? Learn the Best Methods To Unlock</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/1723175714150-master-effortless-heat-management-with-the-new-idiot-proof-thermal-paste-applicator-from-x-apply-arriving-soon/"><u>Master Effortless Heat Management with the New 'Idiot-Proof' Thermal Paste Applicator From X-Apply - Arriving Soon!</u></a></li>
-<li><a href="https://extra-information.techidaily.com/optimal-data-recorder-for-sony-a7c-model/"><u>Optimal Data Recorder for Sony A7C Model</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/social-synergy-blueprint-for-ig-and-tiktok-pairing/"><u>Social Synergy Blueprint for IG & TikTok Pairing</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-smart-shower-systems/"><u>Top Rated Smart Shower Systems</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-streaming-gadgets-for-ultimate-viewing-in-2/"><u>Top Rated Streaming Gadgets for Ultimate Viewing in 2#</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-wi-fi-adapters-a-comprehensive-guide/"><u>Top Rated Wi-Fi Adapters : A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-ring-lighting-solutions-for-optimal-video-quality-in-202amo/"><u>Top-Rated Ring Lighting Solutions for Optimal Video Quality in 202Amo</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-samsung-galaxy-s24-phone-covers-ultimate-selection/"><u>Top-Rated Samsung Galaxy S24 Phone Covers: Ultimate Selection</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-security-solutions-for-home-and-business/"><u>Top-Rated Security Solutions for Home and Business</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-television-backlighting-options/"><u>Top-Rated Television Backlighting Options</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-video-capture-solutions/"><u>Top-Rated Video Capture Solutions</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-choosing-the-finest-sleeves-for-the-new-iphone-15-2023-edition/"><u>Ultimate Guide to Choosing the Finest Sleeves for the New iPhone 15 - 2023 Edition</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-flair-up-your-stories-and-feeds-instagrams-simplified-method-of-sharing-gifs/"><u>[Updated] Flair Up Your Stories & Feeds Instagram's Simplified Method of Sharing GIFs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-youtube-comment-management-turn-it-on-or-off/"><u>2024 Approved YouTube Comment Management Turn It On or Off</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exclusive-prime-day-offers-save-big-on-iphones-and-macbooks/"><u>Exclusive Prime Day Offers: Save Big on iPhones & MacBooks!</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/expert-strategies-for-fbx-gameplay-capture-for-2024/"><u>Expert Strategies for FBX Gameplay Capture for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-apple-iphone-13-to-factory-settings-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Reset Apple iPhone 13 to Factory Settings? | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-restore-sound-on-your-airpods-when-connected-to-pc-windows-1110/"><u>How to Restore Sound on Your AirPods when Connected to PC (Windows 11/10)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-swagtron-swagger-electric-scooter-unveiled-combining-fashion-forward-design-with-efficient-travel/"><u>The Swagtron Swagger Electric Scooter Unveiled: Combining Fashion-Forward Design with Efficient Travel</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-rotibox-heated-hat-and-bluetooth-earpiece-combo-for-ultimate-convenience/"><u>Top Rated Rotibox Heated Hat and Bluetooth Earpiece Combo for Ultimate Convenience!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-practical-side-of-the-acer-xfa240-in-our-latest-evaluation/"><u>Unveiling the Practical Side of the Acer XFA240 in Our Latest Evaluation</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/upgrade-your-3d-printing-process-save-time-and-money-with-the-149-elegoo-dip-n-cure-system/"><u>Upgrade Your 3D Printing Process: Save Time & Money With the $149 Elegoo Dip-N-Cure System</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/worldwide-standard-moco-keyboard-with-unfolding-design-wireless-bluetooth-functionality/"><u>Worldwide Standard MOCO Keyboard with Unfolding Design, Wireless Bluetooth Functionality</u></a></li>
 </ul></div>
 

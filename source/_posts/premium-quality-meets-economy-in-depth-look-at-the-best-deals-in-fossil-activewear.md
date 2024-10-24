@@ -1,7 +1,7 @@
 ---
 title: "Premium Quality Meets Economy: In-Depth Look at the Best Deals in Fossil Activewear"
-date: 2024-08-15T09:48:53.376Z
-updated: 2024-08-16T09:48:53.376Z
+date: 2024-10-20T14:39:29.227Z
+updated: 2024-10-24T08:07:06.156Z
 categories:
   - BestProducts
 description: "This Article Describes Premium Quality Meets Economy: In-Depth Look at the Best Deals in Fossil Activewear"
@@ -15,9 +15,6 @@ thumbnail: https://thmb.techidaily.com/8b607e0e604394629b363ae69329923c5b752c9a4
 
 ## inXile Entertainment Torment: Tides of Numenera
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/HYgHMUDMFh7JI98Hj0JMbI2wcpw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
 
 Lifewire / Kelsey Simon
@@ -39,11 +36,15 @@ Lifewire / Kelsey Simon
 
 2.7
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## inXile Entertainment Torment: Tides of Numenera
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
 
 Lifewire / Kelsey Simon
@@ -68,10 +69,14 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -81,14 +86,18 @@ Lifewire / Kelsey Simon
 
  You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Gameplay: Dialogue prompts and effort**
 
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -104,6 +113,13 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -114,9 +130,6 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ## **Price: Only worth it if you’re keen on the story**
 
  Torment: Tides of Numenera is still an expensive game, costing $50 on[Steam](https://www.lifewire.com/best-free-steam-games-4176308) when it’s not on sale. It’s a game created with a very specific type of player in mind―and I suspect most people are not going to like it.
@@ -125,9 +138,6 @@ Lifewire / Kelsey Simon
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## **Competition: Other story focused RPGs**
 
  There are quite a few other games available that are story-focused RPGs besides Tides of Numenera. Wasteland 2 (view on[Amazon](https://www.amazon.com/Wasteland-2-Directors-Cut-PlayStation-4/dp/B013CQHQFU/?tag=lifewire-onsite-prod-20&ascsubtag=5077302%7Cnac6eb02defc3413da4da5d4ed0dc77ea21%7C) ) is a very similar game, as it is made by the same developers, but where Numenera falls flat with its heavy-handed storytelling, Wasteland 2 stands apart with a fun, tactical combat system.
@@ -148,14 +158,11 @@ Lifewire / Kelsey Simon
 * ESRB Rating  M for Mature
 * Available Platforms  PC, MaxOS,Xbox One, PlayStation 4
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -164,4 +171,24 @@ Lifewire / Kelsey Simon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/egality-of-reproducing-your-watched-youtube-videos-for-2024/"><u>[New] Legality of Reproducing Your Watched YouTube Videos for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-fight-to-the-end-nintendos-top-10-fighters-for-2024/"><u>[Updated] Fight to the End Nintendo's Top 10 Fighters for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/blowing-the-competition-away-inside-look-at-the-explosive-power-of-apples-mac-mini-with-arm-based-m1-chip/"><u>Blowing the Competition Away: Inside Look at the Explosive Power of Apple's Mac Mini with ARM-Based M1 Chip</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/delivering-premium-tv-reception-at-a-great-value-in-depth-review-of-the-30-mohu-leaf-antenna/"><u>Delivering Premium TV Reception at a Great Value - In-Depth Review of the 30 Mohu Leaf Antenna!</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/eliminate-darkness-solutions-to-restore-facetime-screen-clarity/"><u>Eliminate Darkness: Solutions to Restore FaceTime Screen Clarity</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/guide-signing-up-for-chatgpt-whatsapp-and-telegram-without-using-your-mobile-number/"><u>Guide: Signing Up for ChatGPT, WhatsApp & Telegram without Using Your Mobile Number</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/imac-m1-review-a-visual-refresh-and-the-powerful-m1-chip/"><u>IMac M1 Review: A Visual Refresh and the Powerful M1 Chip</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-survivals-thrill-top-picks-for-heart-pounding-zombie-games/"><u>In 2024, Survival's Thrill Top Picks for Heart-Pounding Zombie Games</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-and-insights-on-the-garmin-forerunner-265-smartwatch/"><u>In-Depth Evaluation and Insights on the Garmin Forerunner 265 Smartwatch</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-city-streets-with-ease-on-a-gotrae-xg-v2-a-user-experience-analysis/"><u>Navigating City Streets with Ease on a Gotrae XG-V2: A User Experience Analysis</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722883607058-new-hard-drive-fresh-start-install-windows-11-with-ease/"><u>New Hard Drive, Fresh Start: Install Windows 11 with Ease</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/strategies-for-sustaining-viewer-interest-in-online-events-for-2024/"><u>Strategies for Sustaining Viewer Interest in Online Events for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-18-unbeatable-prime-day-bargains-on-laptops-from-brands-like-hp-apple-and-razer-exclusive-offers-for-savvy-shoppers/"><u>Top 18 Unbeatable Prime Day Bargains on Laptops From Brands Like HP, Apple & Razer - Exclusive Offers for Savvy Shoppers!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-comparison-how-the-samsung-galaxy-s23-ultra-stacks-up-against-the-s21-ultra/"><u>Ultimate Comparison: How the Samsung Galaxy S23 Ultra Stacks Up Against the S21 Ultra</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-of-mouse-alternatives-for-ios-devices/"><u>Ultimate Selection of Mouse Alternatives for iOS Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-charming-imperfections-in-the-asus-bw-16d1x-u-blu-ray-drive-a-reviewers-perspective/"><u>Unveiling the Charming Imperfections in the Asus BW-16D1X-U Blu-Ray Drive: A Reviewer's Perspective</u></a></li>
+</ul></div>
 

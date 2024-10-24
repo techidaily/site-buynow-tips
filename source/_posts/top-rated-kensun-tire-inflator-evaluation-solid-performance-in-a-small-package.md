@@ -1,7 +1,7 @@
 ---
 title: "Top-Rated Kensun Tire Inflator Evaluation: Solid Performance in a Small Package"
-date: 2024-08-15T09:53:05.042Z
-updated: 2024-08-16T09:53:05.042Z
+date: 2024-10-17T16:27:52.430Z
+updated: 2024-10-24T14:18:52.732Z
 categories:
   - BestProducts
 description: "This Article Describes Top-Rated Kensun Tire Inflator Evaluation: Solid Performance in a Small Package"
@@ -37,14 +37,15 @@ Lifewire / Jonno Hill
 
 4.3
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## ClearStream 2V Indoor/Outdoor HDTV Antenna
 
 ![ClearStream 2V HDTV Antenna](https://www.lifewire.com/thmb/q2B57F3c717qLOPlnokMF7al1pA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_HeroSquare-b07d5067648049ecb987e39b62796406.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
@@ -71,8 +72,12 @@ Lifewire / Jonno Hill
  If you live far enough from your local TV signal source that other indoor antennas have failed you, the ClearStream 2V Indoor/Outdoor HDTV Antenna might actually provide some help. Buyers should probably make sure that they can’t get away with a smaller, cheaper, simpler solution first, but if or when that fails, this antenna definitely gets the job done.
 
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/vY1j7QoS0FLwOKNhPlSfR3XMlmo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_02-e97897fe03b74f5faa2eefad3b3b7208.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
@@ -86,8 +91,12 @@ Lifewire / Jonno Hill
  As you’ll see later though, this is because the ClearStream 2V Indoor/Outdoor HDTV Antenna doesn’t really care about looks. Everything is 100% about function. There are, however, a few little elements from a design perspective that help make the ClearStream a somewhat thoughtful device nonetheless. Once assembled, all the parts fit together nicely like a lego set.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup: Buckle up**
 
  Setup of the ClearStream 2V Indoor/Outdoor HDTV Antenna has by far the most complicated setup of the antennas that I tested in our roundup. The instructions that come included have illustrations that show how everything fits together, but it isn’t outlined in the simplest manner possible.
@@ -96,9 +105,6 @@ Lifewire / Jonno Hill
 
  Once the entire device is assembled, the real work begins in my opinion. Now you have to figure out how and where to mount this beast of an antenna. Antenna’s Direct has you covered here, including a hefty bracket and swiveling mast that will help you mount the antenna to just about anywhere with a flat surface that you don’t mind screwing some bolts into.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Top tier**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna might be an unsightly space jail, but it sure gets good reception. I tested the antenna indoors along with the rest of the suite of indoor antennas, and in the same orientation. Perhaps it would have benefited from being placed outside, but in the interest of fairness I used the same method for all.
@@ -119,6 +125,13 @@ Lifewire / Jonno Hill
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna has a list price of $120 and a 90-day rolling average price on Amazon of $83\. This is significantly more than any of the other antennas I tested, some of which could be had for around $25\. If you live far enough that you need a better performing antenna, however, it could easily be worth every penny. I would only caution buyers to make sure they really do need this performance before pulling the trigger on this very large antenna.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **ClearStream 2V Indoor/Outdoor HDTV Antenna vs 1byone Digital Amplified Indoor HD TV Antenna**
 
  I figured it might be interesting to compare the cheapest antenna to the most expensive antenna. If you are living inside of a city, fairly close to a signal source, you can probably get away with a cheaper antenna like the $25 amplified antenna by manufacturer 1byone. This flat, simple antenna takes up far less space and still managed to get 59 channels. It also maintained a clear picture on all of the major network stations just fine.
@@ -130,14 +143,6 @@ Lifewire / Jonno Hill
 **Great performance for those that need it.**
  The ClearStream 2V Indoor/Outdoor HDTV Antenna isn’t the cheapest or best-looking antenna on the market, but it gets the job done better than any of the other antennas we tested. Buyers who know they need an antenna with better range and performance will find this to be a noticeable bump from cheaper indoor antennas.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  2V Indoor/Outdoor HDTV Antenna
@@ -149,14 +154,11 @@ Lifewire / Jonno Hill
 * Range  60 miles
 * Warranty  Lifetime parts
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -165,4 +167,26 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/updated-revolutionary-recording-methods-for-windows-10-games/"><u>[Updated] Revolutionary Recording Methods for Windows 10 Games</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-list-of-top-5-iphone-podcast-software/"><u>2024 Approved The Ultimate List of Top 5 iPhone Podcast Software</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/beste-wege-videos-von-vob-nach-mp4-zu-konvertieren-aktuelle-methoden-fur-2023/"><u>Beste Wege, Videos Von VOB Nach MP4 Zu Konvertieren - Aktuelle Methoden Für 2023</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/discovering-the-past-a-guide-on-accessing-archived-twitch-broadcasts/"><u>Discovering the Past: A Guide on Accessing Archived Twitch Broadcasts</u></a></li>
+<li><a href="https://driver-download.techidaily.com/hp-officejet-pro-8600-driver-download-for-windows/"><u>HP Officejet Pro 8600 Driver Download for Windows</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Lava Blaze 2 5G | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/indulge-in-the-best-gba-ios-simulation-tools-for-legends/"><u>Indulge in the Best GBA iOS Simulation Tools for Legends</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-through-the-best-routers-for-safe-family-surfing-2024-edition/"><u>Navigating Through the Best Routers for Safe Family Surfing: 2024 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/optimize-your-tech-collection-innovative-display-solutions-from-dell-expert-noise-reduction-headsets-and-crystal-clear-webcam-quality-for-professionals/"><u>Optimize Your Tech Collection: Innovative Display Solutions From Dell, Expert Noise Reduction Headsets & Crystal-Clear Webcam Quality for Professionals</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/practical-excellence-in-acer-xfa240-review-form-meets-function/"><u>Practical Excellence in Acer XFA240 Review - Form Meets Function</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reviewing-the-ambient-weather-ws-10002-wifi-sensor-a-look-at-its-quality-and-pricing-structure/"><u>Reviewing the Ambient Weather WS-10002-WiFi Sensor: A Look at Its Quality and Pricing Structure</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-a71-5g-smartphone-analysis-the-perfect-balance-between-affordability-and-high-end-features/"><u>Samsung Galaxy A71 5G Smartphone Analysis - The Perfect Balance Between Affordability and High-End Features</u></a></li>
+<li><a href="https://win-dash.techidaily.com/solved-common-issues-when-installing-the-samsung-printer-driver-for-windows-users/"><u>Solved: Common Issues When Installing the Samsung Printer Driver for Windows Users</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-perfect-blend-of-fashion-and-functionality-a-deep-dive-into-the-samsung-galaxy-watch-review/"><u>The Perfect Blend of Fashion and Functionality: A Deep Dive Into the Samsung Galaxy Watch Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-7-online-platforms-offering-free-movie-trailer-streaming/"><u>Top 7 Online Platforms Offering Free Movie Trailer Streaming</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-discounted-tribit-audio-gear-savvy-shoppers-guide-to-prime-day-offers/"><u>Top Discounted Tribit Audio Gear: Savvy Shoppers' Guide to Prime Day Offers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-evaluation-of-netgear-nighthawk-c7000-exceptional-wireless-router-insights/"><u>Ultimate Evaluation of Netgear Nighthawk C7000: Exceptional Wireless Router Insights</u></a></li>
+</ul></div>
 

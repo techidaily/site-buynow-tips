@@ -1,7 +1,7 @@
 ---
 title: Navigating Affordable Drones - Holy Stone HS170 Predator Mini RC Helicopter Uncovered
-date: 2024-10-12T18:43:43.794Z
-updated: 2024-10-18T21:08:53.151Z
+date: 2024-10-19T22:29:42.557Z
+updated: 2024-10-23T20:51:14.629Z
 categories:
   - BestProducts
 description: This Article Describes Navigating Affordable Drones - Holy Stone HS170 Predator Mini RC Helicopter Uncovered
@@ -41,13 +41,6 @@ Lifewire / Todd Braylor
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Todd Braylor
 
 [View On Amazon $280](https://www.amazon.com/dp/B019HF60EI/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7CB019HF60EI) [View On Walmart $140](https://www.walmart.com/ip/Escort-Passport-S55-High-Performance-Pro-Radar-and-Laser-Detector-w-DSP/49140972)
@@ -69,6 +62,13 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -86,10 +86,10 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: Impressive detection**
@@ -107,16 +107,10 @@ Lifewire / Todd Braylor
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
 <!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: You get what you pay for**
@@ -126,10 +120,10 @@ Lifewire / Todd Braylor
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
@@ -173,20 +167,16 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-unmasking-momentum-makers-seeking-out-niche-influencers-for-2024/"><u>[New] Unmasking Momentum Makers Seeking Out Niche Influencers for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-camera-kings-picks-selecting-the-very-best-6-4k-dslrs-for-2024/"><u>[Updated] Camera Kings' Picks Selecting the Very Best 6 4K DSLRs for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-decoding-twitter-archived-content-for-clarity-for-2024/"><u>[Updated] Decoding Twitter Archived Content for Clarity for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-prime-cameras-unwrapped-the-best-of-2024/"><u>[Updated] Prime Cameras Unwrapped The Best of 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-synchronize-your-surfing-master-multi-video-youtube-use/"><u>[Updated] Synchronize Your Surfing Master Multi-Video YouTube Use</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/5-crucial-considerations-to-make-when-selecting-a-fitness-monitor/"><u>5 Crucial Considerations to Make When Selecting a Fitness Monitor</u></a></li>
-<li><a href="https://win-dash.techidaily.com/amd-ryzen-5-2500u-speedy-driver-upgrade-tips-and-tricks-get-your-system-updated-now/"><u>AMD Ryzen 5 2500U: Speedy Driver Upgrade Tips & Tricks | Get Your System Updated Now</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ath-m50x-studio-gear-unmatched-audio-experience/"><u>ATH-M50x Studio Gear: Unmatched Audio Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/checking-the-legitimacy-of-fbs-safety-mail-address-securityfbcom/"><u>Checking the Legitimacy of FB's Safety Mail Address: security@fb.com</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/choosing-the-perfect-iphone-for-enhanced-mobile-gaming/"><u>Choosing the Perfect iPhone for Enhanced Mobile Gaming</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-seatechs-external-blu-ray-drive-with-usb-connectivity-a-mixed-bag-in-writing-quality/"><u>Comprehensive Analysis of SeaTech's External Blu-Ray Drive with USB Connectivity: A Mixed Bag in Writing Quality</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/personalized-smart-assistance-which-fits-you-best-alexa-or-google-assistant/"><u>Personalized Smart Assistance: Which Fits You Best, Alexa or Google Assistant?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-list-of-2024s-most-effective-health-monitoring-bracelets/"><u>The Ultimate List of 2024'S Most Effective Health Monitoring Bracelets</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-ion-audio-tailgater-plus-unmatched-hours-of-sound-bliss-powerful-bass-enhancement-at-your-fingertips/"><u>Unveiling the Ion Audio Tailgater Plus: Unmatched Hours of Sound Bliss, Powerful Bass Enhancement at Your Fingertips</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/1728485762988-windows-11-hdd/"><u>Windows 11 HDD自動バックアップ：最適な手順とコツ</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-direct-link-between-twitter-and-tumblr-videos/"><u>[New] In 2024, Direct Link Between Twitter and Tumblr Videos</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-tomtom-bandit-camera-update-the-ultimate-guide/"><u>[New] In 2024, TomTom Bandit Camera Update – The Ultimate Guide</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-essential-steps-to-record-impeccable-ios-travel-and-dialogue-podcasts/"><u>[Updated] In 2024, Essential Steps to Record Impeccable iOS Travel & Dialogue Podcasts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-a-creators-primer-to-understanding-major-content-providers/"><u>2024 Approved A Creator's Primer to Understanding Major Content Providers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-netgear-c3700-dual-band-cabledsl-modem-router/"><u>Comprehensive Evaluation of Netgear C3700 Dual-Band Cable/DSL Modem-Router</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-how-does-the-samsung-galaxy-fit-stand-up-to-active-lifestyles/"><u>Expert Review: How Does the Samsung Galaxy Fit Stand Up to Active Lifestyles?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/future-proof-internet-solutions-top-cable-modem-picks/"><u>Future-Proof Internet Solutions: Top Cable Modem Picks</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Realme GT 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/is-your-iphone-12-pro-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>Is Your iPhone 12 Pro in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-access-to-large-language-models-through-quoras-poe-interface/"><u>Mastering Access to Large Language Models Through Quora's POE Interface</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-definitive-list-of-premier-graphics-tablets-for-professionals-in-ebyte-2024/"><u>The Definitive List of Premier Graphics Tablets for Professionals in Ebyte 2024</u></a></li>
 </ul></div>
 

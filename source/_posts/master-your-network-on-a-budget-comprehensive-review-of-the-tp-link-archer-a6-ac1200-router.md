@@ -1,7 +1,7 @@
 ---
 title: "Master Your Network On a Budget: Comprehensive Review of the TP-Link Archer A6 AC1200 Router"
-date: 2024-10-14T20:31:11.947Z
-updated: 2024-10-18T18:09:19.269Z
+date: 2024-10-18T18:20:44.661Z
+updated: 2024-10-24T14:03:49.922Z
 categories:
   - BestProducts
 description: "This Article Describes Master Your Network On a Budget: Comprehensive Review of the TP-Link Archer A6 AC1200 Router"
@@ -40,13 +40,6 @@ Lifewire / Claire Cohen
 
 ![TP-Link AC1200 Wi-Fi Range Extender RE305](https://www.lifewire.com/thmb/C8f1R4cMjb3MUZ1ViPdvQ67Q7tE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4LW4043312-0cb211cf35c746879e5136b3f9d62b63.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Claire Cohen
 
 [View On Amazon $38](https://www.amazon.com/dp/B01N8ROH7G/?tag=lifewire-onsite-prod-20&ascsubtag=4589559%7Cn7c9facd8b2a7476ea5e744a63f18481911%7CB01N8ROH7G) [View On Walmart $38](https://www.walmart.com/ip/TP-Link-RE305-AC1200-Wi-Fi-Range-Extender-works-with-any-router-or-WiFi-system/981199634) [View On Best Buy $50](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Ftp-link-ac1200-dual-band-wi-fi-range-extender-white%2F6295316.p)
@@ -70,6 +63,13 @@ Lifewire / Claire Cohen
 
  We spent over a week testing it in our home, evaluating design, ease of setup and network performance.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design:** **Neither seen nor heard**
 
  The RE305 is quite small and unobtrusive, with a plastic white exterior and silver accents that’s meant to blend in, not stand out. At just 3.1 x 3.1 x 2.4 (LWH) inches unboxed and 6.4 ounces, it's one of the most diminutive Wi-Fi solutions on the market. That means it's simple to plug into a spare outlet anywhere your wireless signal needs bolstering.
@@ -81,6 +81,13 @@ Lifewire / Claire Cohen
  The RE305 is quite small and unobtrusive, with a plastic white exterior and silver accents that’s meant to blend in, not stand out.
 
  There's an[Ethernet port](https://www.lifewire.com/what-is-an-ethernet-port-817546) at the bottom of the device as well as a pinhole reset button, just in case it needs rebooted at any point. It's a bit awkward to hang an[Ethernet cord](https://www.lifewire.com/what-is-an-ethernet-cable-817548) from the extender depending on where you've placed it in your home, but it's a useful addition to bring Ethernet to a desktop, TV, or gaming console without having to put holes in your wall.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Simple and quick**
 
@@ -100,13 +107,6 @@ Lifewire / Claire Cohen
 
  There is one important pain point, however, to keep in mind during setup. The extender's administrative password utilizes a default "admin/admin" login, so you'll want to change that to keep unauthorized users out. It can be changed via the TP-Link Tether app, which isn't clearly lined out in the instructions. It isn't required, but if you want to keep your network as secure as possible, it's an important part of setup.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Connectivity and Network Performance:** **Strong, multi-device connectivity**
 
  Several devices were connected to our wireless network, including a MacBook Pro,[iPhone X](https://www.lifewire.com/iphone-x-4150706) , iPad Pro,[Nintendo Switch](https://www.lifewire.com/what-is-the-nintendo-switch-4148184) , and[PlayStation 4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) . When testing the wireless extender's range, at 10 feet to around 70 or so feet away from the router in a 2,100 square foot home, its signal was quite strong, with full bars on an iPhone X and iPad Pro in most areas. One bathroom on the first floor did suffer from occasionally spotty connectivity at around 1,500 feet away from the router.
@@ -114,13 +114,6 @@ Lifewire / Claire Cohen
  Out in the yard, there were occasionally drops in connection, particularly when trying to load YouTube videos or play online games via mobile devices. Speeds didn't usually waver, however, though we didn't quite get the full 300mbps our wired connection typically summons. The product advertises 867Mbps on a 5GHz connection and 300 Mbps on a 2.4Ghz connection, so it did provide what was promised, albeit with some dropouts over the five-day testing period.
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/Lyz1QcuQDPYlUp5pPBJiL0YKSag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-2-5c9241dcc9e77c0001a92785.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
 
@@ -137,13 +130,26 @@ Lifewire / Claire Cohen
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/bG-oXoYxR83gVSUH4vzz37hfYxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-1-5c92424b46e0fb000172f127.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: More of the same**
 
@@ -190,22 +196,19 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-top-10-best-flvto-alternatives-youtube-converter/"><u>[New] Top 10 Best Flvto Alternatives YouTube Converter</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-fraps-for-gamers-a-screen-record-review-for-2024/"><u>[Updated] Fraps for Gamers A Screen Record Review for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/1715859966576-2024-approved-silent-blades-and-righteous-honor-your-next-game-adventure-awaits/"><u>2024 Approved Silent Blades & Righteous Honor Your Next Game Adventure Awaits!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comparing-apples-latest-giants-iphone-15-plus-vs-pro-max-which-is-better/"><u>Comparing Apple's Latest Giants: IPhone 15 Plus Vs. Pro Max – Which Is Better?</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/definitive-advice-on-handling-and-correcting-ring-of-elysium-game-crashes/"><u>Definitive Advice on Handling and Correcting Ring of Elysium Game Crashes</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/elevate-your-smartphone-game-with-the-luxurious-skagen-falster-2-the-stylish-contender-to-apples-crown/"><u>Elevate Your Smartphone Game with the Luxurious Skagen Falster 2 – The Stylish Contender to Apple's Crown</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-the-latest-tech-with-the-new-apple-iphone-15-pro-a-comprehensive-hands-on-review/"><u>Experience the Latest Tech with the New Apple iPhone 15 Pro: A Comprehensive Hands-On Review</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-speedy-resizing-your-youtube-videos-for-mac-view/"><u>In 2024, Speedy Resizing Your Youtube Videos for Mac View</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-google-nest-hub-gen-2-a-comprehensive-overview-without-video-capabilities/"><u>In-Depth Analysis of the Google Nest Hub (Gen 2) - A Comprehensive Overview Without Video Capabilities</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/inside-look-at-samsung-galaxy-tab-a-2020-the-one-feature-thats-not-there/"><u>Inside Look at Samsung Galaxy Tab A (2020): The One Feature That's Not There</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/ioss-finest-virtual-ps2-games/"><u>IOS's Finest Virtual PS2 Games</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/navigating-through-innovation-top-rated-external-blu-ray-drive-brands/"><u>Navigating Through Innovation: Top Rated External Blu-Ray Drive Brands</u></a></li>
-<li><a href="https://win11.techidaily.com/overcoming-operation-failed-0x0000011b-in-windows/"><u>Overcoming Operation Failed 0X0000011B in Windows</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/razers-mighty-compact-the-ultimate-review-of-the-razer-book-13/"><u>Razer's Mighty Compact: The Ultimate Review of the Razer Book 13</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/secrets-of-sending-short-videos-to-youtube-tech-for-mobile-and-laptops-for-2024/"><u>Secrets of Sending Short Videos to YouTube - Tech for Mobile & Laptops for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/top-7-windows-pens-tabs-ideal-notetakers/"><u>Top 7 Windows Pens' Tabs: Ideal Notetakers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-j5-tacticals-v1-pro-flashlight-a-blend-of-strength-and-compact-design/"><u>Unveiling the Power of J5 Tactical's V1 Pro Flashlight: A Blend of Strength and Compact Design</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-gradual-transition-tactics-for-premiere-professionals-for-2024/"><u>[Updated] Gradual Transition Tactics for Premiere Professionals for 2024</u></a></li>
+<li><a href="https://win-news.techidaily.com/1-unveiling-the-latest-ai-features-of-microsoft-copilot-in-office-365-your-guide-to-optimization/"><u>1. Unveiling the Latest AI Features of Microsoft Copilot in Office 365: Your Guide to Optimization</u></a></li>
+<li><a href="https://driver-install.techidaily.com/access-control-anomalies/"><u>Access Control Anomalies</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/decelerating-music-dynamics-step-by-step-guide-in-premiere-pro/"><u>Decelerating Music Dynamics Step-by-Step Guide in Premiere Pro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/deliberating-over-macos-sonoma-installation/"><u>Deliberating Over MacOS Sonoma Installation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/futureproofing-your-internet-the-premier-long-distance-routers-launched/"><u>Futureproofing Your Internet: The Premier Long-Distance Routers Launched</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-crafting-softer-beats-with-ableton/"><u>In 2024, Crafting Softer Beats with Ableton</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-premier-advice-superior-iphone-audio-artists/"><u>In 2024, Premier Advice Superior iPhone Audio Artists</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Samsung Galaxy A25 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/introducing-the-ultimate-hd-digital-frame-nixplays-x15d-reviewed/"><u>Introducing the Ultimate HD Digital Frame - Nixplay’s X15D Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mini3-by-ddpai-a-unique-take-on-the-typical-dashcam-experience/"><u>Mini3 by Ddpai: A Unique Take on the Typical Dashcam Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/offworld-trading-company-tactics-for-building-your-intergalactic-empire/"><u>Offworld Trading Company Tactics for Building Your Intergalactic Empire</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-premier-selection-of-mesh-wi-fi-systems-for-seamless-internet-experience/"><u>The Premier Selection of Mesh Wi-Fi Systems for Seamless Internet Experience</u></a></li>
 </ul></div>
 

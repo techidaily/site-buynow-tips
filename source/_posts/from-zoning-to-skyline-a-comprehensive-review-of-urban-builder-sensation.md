@@ -1,7 +1,7 @@
 ---
 title: "From Zoning to Skyline: A Comprehensive Review of Urban Builder Sensation"
-date: 2024-10-17T19:00:34.998Z
-updated: 2024-10-18T18:09:03.996Z
+date: 2024-10-21T07:06:32.876Z
+updated: 2024-10-23T16:05:17.265Z
 categories:
   - BestProducts
 description: "This Article Describes From Zoning to Skyline: A Comprehensive Review of Urban Builder Sensation"
@@ -40,16 +40,16 @@ Lifewire / Jeremy Laukkonen
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Amazon Luna
 
 ![Amazon Luna](https://www.lifewire.com/thmb/NT3lnZ3hOwaGUbS2tHARE7zRT1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_Hero_Square-cced3e5a3d3e4d24af1b85a59c76932d.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -93,10 +93,10 @@ Lifewire / Jeremy Laukkonen
 ![Amazon Luna](https://www.lifewire.com/thmb/jNDwaMGOVuF5UIISPsmdb5uQdGU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_04-985a4419a93945d2879b09d61fafae5a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -110,13 +110,6 @@ Lifewire / Jeremy Laukkonen
  In terms of ports, the Luna controller includes a USB-C port for charging and connectivity and a 3.5mm port for plugging in your favorite set of headphones or earbuds. At the back, you’ll find a removable battery cover, as the controller is powered by two AA batteries.
 
  Overall, the Luna controller has quickly become one of my favorite alternatives to the Xbox One or Xbox Series X/S controller; the only real issues being the mushy d-pad and the texture of the analog sticks. I ended up snapping on some performance thumb grips, which worked great.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Setup Process: Quick and easy
 
@@ -153,10 +146,10 @@ Lifewire / Jeremy Laukkonen
  If you have a slow internet connection or suffer from poor connectivity, then it’s likely that the brief issues I experienced could be amplified to an unacceptable point. If you have a decent connection, live closer to a major metropolitan area than I do, and have more than 10Mbps of downstream bandwidth available, the service should work just fine.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Software: Dozens of games, but the library is a bit thin with a lot of holes
@@ -171,19 +164,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Amazon Luna](https://www.lifewire.com/thmb/NBB1N6qtwbtdjrUgwr1YaBaTuBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_02-37837bf860d244d3ab11ff01f37c609c-db472e204ada4ccca88e7510eacfae34.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Jeremy Laukkonen
 
  For some reason, the fighting category is populated by titles like the rogue-like shooter Everspace and the co-op brawler River City Girls. No actual fighting games, though. The horror category was empty until Amazon scored Resident Evil 7 Gold Edition and also saddled gorefest pixel art platformer Valfaris with the horror tag.
@@ -195,6 +175,19 @@ Lifewire / Jeremy Laukkonen
  Luna comes with a price tag of $4.95 per month during the beta period, with the insinuation that it will increase later on. It’s uncertain as to whether or not the price will actually go up, but right now it’s a pretty good deal. The only real caveat is that the attractive price tag is balanced by a somewhat thin library. Go ahead and check the library before you sign up. If you see more than a handful of games you’re interested in, then Luna is absolutely worth the price of admission.
 
  The Luna controller has a heftier price tag of $50, but that’s actually pretty reasonable if you compare it to other wireless controllers. It’s cheaper than a lot of the other options, and you can use it via Wi-Fi with Luna, or via Bluetooth or USB-C to play non-Luna games on your PC. All in all, it’s a good controller that’s priced competitively.
+
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Amazon Luna vs. Microsoft Game Pass Ultimate
 
@@ -219,6 +212,13 @@ Lifewire / Jeremy Laukkonen
 * [Xbox Series X|S Controller](https://www.lifewire.com/xbox-series-x-or-s-controller-review-5113227)
 * [Sony DualSense Wireless Controller](https://www.lifewire.com/sony-dualsense-wireless-controller-review-feel-the-quality-5101639)
 * [Xbox One Elite Controller](https://www.lifewire.com/xbox-one-elite-controller-review-4770957)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -250,15 +250,21 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-complete-guide-to-windows-movie-maker-60-downloading/"><u>[New] Complete Guide to Windows Movie Maker 6.0 Downloading</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-unleashing-potential-with-the-q500-drone/"><u>[Updated] 2024 Approved Unleashing Potential with the Q500 Drone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-mac-for-iphone-13-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock on Mac For iPhone 13?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Xiaomi Redmi 13C 5G? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/how-to-save-photo-from-video-in-windows-10-photos-app-for-2024/"><u>How to Save Photo From Video in Windows 10 Photos App for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-samsung-qn55q60rafxza-smart-television-with-advanced-4k-capabilities/"><u>In-Depth Analysis of the Samsung QN55Q60RAFXZA Smart Television with Advanced 4K Capabilities</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-hisense-40h5590f-smart-features-on-a-budget/"><u>In-Depth Look at the Hisense 40H5590F - Smart Features on a Budget</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/innovation-meets-reliability-canon-speedlite-430ex-iii-rt/"><u>Innovation Meets Reliability - Canon Speedlite 430EX III-RT</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/innovative-netatmo-weather-gadgetry-perfect-for-tech-savvy-forecasters/"><u>Innovative Netatmo Weather Gadgetry - Perfect for Tech Savvy Forecasters</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-unwanted-sounds-gone-learn-how-to-remove-background-noise-in-fcp/"><u>Updated In 2024, Unwanted Sounds? Gone! Learn How to Remove Background Noise in FCP</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-pro-action-recorder-guide-top-15-camcorder-list/"><u>[New] Pro Action Recorder Guide Top 15 Camcorder List</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-screenscout-quest-uncovering-affordable-tiktok-visuals-without-a-cost-for-2024/"><u>[New] ScreenScout Quest Uncovering Affordable TikTok Visuals Without a Cost for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-drive-more-viewers-to-your-videos-top-growth-hacks/"><u>[Updated] Drive More Viewers to Your Videos Top Growth Hacks</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-capturing-slide-decks-via-webcam-a-step-by-step-guide/"><u>[Updated] In 2024, Capturing Slide Decks via Webcam A Step-by-Step Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-mastering-multitasking-ideas-with-podcasts/"><u>[Updated] In 2024, Mastering Multitasking Ideas with Podcasts</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-friends-first-gaming-metaverses-10-best-picks/"><u>2024 Approved Friends First Gaming Metaverse’s 10 Best Picks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-bose-sportwireless-hp-reliability/"><u>Comprehensive Analysis of Bose SportWireless HP Reliability</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-test-drive-of-the-netgear-nighthawk-x4-wireless-mesh-router-system/"><u>Comprehensive Test Drive of the Netgear Nighthawk X4 Wireless Mesh Router System</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/delving-into-the-bose-quiet-control-30-review-revelations/"><u>Delving Into the Bose Quiet Control 30 Review Revelations</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-ideal-e-commerce-platforms-for-purchasing-televisions/"><u>Discover the Ideal E-Commerce Platforms for Purchasing Televisions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-strength-of-minuscules-with-a-review-on-apples-ipad-mini/"><u>Discovering the Strength of Minuscules with a Review on Apple's iPad Mini</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/google-nest-wi-fi-review-speedy-seamless-mesh-networking/"><u>Google Nest Wi-Fi Review: Speedy, Seamless Mesh Networking</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-12-mini-3-ways-to-unlock-by-drfone-ios/"><u>In 2024, How To Unlock Apple iPhone 12 mini 3 Ways To Unlock</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-home-climate-sensors-reviewed-find-your-perfect-match/"><u>Leading Home Climate Sensors Reviewed – Find Your Perfect Match</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-ways-to-recover-deleted-files-from-honor-100-pro-by-fonelab-android-recover-data/"><u>Possible ways to recover deleted files from Honor 100 Pro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlocking-ultra-hd-viewing-with-tcls-budget-friendly-50s425-50-inch-roku-tv-a-thorough-review/"><u>Unlocking Ultra HD Viewing with TCL's Budget-Friendly 50S425 50-Inch Roku TV - A Thorough Review!</u></a></li>
 </ul></div>
 

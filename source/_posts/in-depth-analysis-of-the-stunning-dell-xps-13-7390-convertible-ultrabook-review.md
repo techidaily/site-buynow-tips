@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of the Stunning Dell XPS 13 7390 Convertible Ultrabook Review
-date: 2024-08-15T09:44:45.261Z
-updated: 2024-08-16T09:44:45.261Z
+date: 2024-10-21T05:37:08.208Z
+updated: 2024-10-23T18:21:06.045Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of the Stunning Dell XPS 13 7390 Convertible Ultrabook Review
@@ -13,14 +13,8 @@ thumbnail: https://www.lifewire.com/thmb/UBWVgDMY_2jwPREuMsZw9yednD8=/400x300/fi
 
 1.4
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Docooler USB 2.0 12 Megapixel
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/9tSqTK9OEckACvQEhU5iBbHvMfM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_HERO_1LW4065141_7_Final_Square-bd507bc5d1d646f9a0d8d7466601f569.jpg)
 
 Lifewire / James Huenink
@@ -44,14 +38,8 @@ Lifewire / James Huenink
 
 1.4
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Docooler USB 2.0 12 Megapixel
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/23qFdg2CyjsEX1uFEK5ESBb8kO0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_HERO_1LW4065141_7_Final_Square-bd507bc5d1d646f9a0d8d7466601f569.jpg)
 
 Lifewire / James Huenink
@@ -85,10 +73,6 @@ Lifewire / James Huenink
 
  The base looks like a binder clip with a hinge on the back end. The front of the camera houses the focus ring, which twists to focus in or out but doesn’t turn very smoothly. When we used it for the first time, it didn’t feel like it was supposed to rotate at all. Just like everything else, the focus ring feels like it will crack or fall out at any moment. One side of the clip has a squishy pad to keep the camera from slipping when it’s mounted on a smooth surface. The two are connected by a ball joint, which allows the camera to spin around 360 degrees and tilt approximately 15 degrees forward or backward or side to side.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/a_8Gd66JN0RtfWzKKcRq95S8EmY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_6_Final_Horiz-1dd3a45479614483b0f4f5883f27094a.jpg)
 
  Lifewire / James Huenink
@@ -100,8 +84,12 @@ DbSchema database designer for all databases, schema design in the team, schema 
  It was easy to set up when we clipped it to a laptop, but terrible when we tried to put it on our HD TV. Every time we moved the computer or the USB cable, the camera slid, twisted, or fell off the TV. The ball joint, which connects the camera to the base, didn’t move smoothly, so we struggled to point the Docooler USB 2.0 12 Megapixel in the right direction, and we were too worried about breaking the plastic to try and force it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Camera Quality: Not even close to advertised**
 
  The Docooler USB 2.0 12 Megapixel is advertised as a 12 megapixel camera capable of HD video, but it wasn’t even close to that. We tested the resolution by taking photos through photobooth, and they were only 640 x 480, or .31 megapixels. We tested the video resolution by using an online webcam testing tool, and it showed exactly the same results. The manufacturer claims the camera has 38 times more resolution than it actually does. We should have known that the manufacturer’s claims were too good to be true given the $8 asking price, but claiming a disparity that huge is really brazen.
@@ -115,8 +103,12 @@ DbSchema database designer for all databases, schema design in the team, schema 
  Lifewire / James Huenink
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance: Underwhelming performance in video and audio**
 
  We used[Photobooth](https://www.lifewire.com/how-to-turn-on-camera-on-mac-4175436) and[Skype](https://www.lifewire.com/how-to-make-hd-skype-calls-3426508) to test out the video and audio performance using the webcam for recording and[conference calls](https://www.lifewire.com/top-free-web-conferencing-tools-2377241) . It was difficult to position the Docooler USB 2.0 12 Megapixel correctly, because by the time we clipped it on and sat down, the camera had slipped out of position. This happened several times before we finally resigned ourselves to using a tilted camera in our calls.
@@ -129,9 +121,23 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  The audio performance of the Docooler USB 2.0 12 Megapixel was also lackluster. The built-in microphone produced poor quality sound, and when we tested it on Skype, voices were both muffled and echoey. People on the other end could understand what we were saying, but it was an unpleasant experience.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Cheap price, even cheaper webcam**
 
  The Docooler USB 2.0 12 Megapixel is the most inexpensive webcam you can buy, ranging from $8 up to around $15, but there’s a reason it’s priced so low. The image and audio quality are both terrible, and the camera is difficult to use.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Falls short**
 
@@ -164,14 +170,11 @@ DbSchema database designer for all databases, schema design in the team, schema 
 * Frame rate  30fps
 * What’s Included  Docooler USB 2.0 12 Megapixel, Quick Start Guide
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -180,4 +183,26 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-professional-insights-crafting-youtube-trailers-using-filmora/"><u>[New] 2024 Approved Professional Insights Crafting YouTube Trailers Using Filmora</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-enhance-your-tv-experience-mastering-fb-live-and-roku-for-2024/"><u>[New] Enhance Your TV Experience Mastering FB Live and Roku for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-screensaviors-guide-global-and-regional-channels-led-by-you/"><u>[New] ScreenSaviors Guide Global and Regional Channels Led by You</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/combining-style-with-functionality-a-comprehensive-review-of-the-swagtron-swagger-electric-scooter/"><u>Combining Style with Functionality: A Comprehensive Review of the Swagtron Swagger Electric Scooter</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-prescription-sunglasses-fighting-digital-screen-hazards/"><u>Comprehensive Analysis: Prescription Sunglasses Fighting Digital Screen Hazards</u></a></li>
+<li><a href="https://win-blog.techidaily.com/comprehensive-solution-how-to-stop-ring-of-elysium-from-crashing/"><u>Comprehensive Solution: How To Stop Ring of Elysium From Crashing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-star-wars-squadrons-gameplay-analysis-and-space-battle-experience/"><u>Comprehensive Star Wars Squadrons Gameplay Analysis & Space Battle Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/deciding-on-digital-pages-a-detailed-comparison-between-ipads-kindles-and-nooks/"><u>Deciding on Digital Pages: A Detailed Comparison Between iPads, Kindles and Nooks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decoding-value-an-in-depth-review-of-the-newly-launched-amazon-fire-hd-8-tablet/"><u>Decoding Value: An In-Depth Review of the Newly Launched Amazon Fire HD 8 Tablet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-best-in-economy-laptops-an-in-depth-review-of-acer-aspire-e-15/"><u>Discovering the Best in Economy Laptops: An In-Depth Review of Acer Aspire E 15</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/effortless-security-for-your-macbook-unveiling-the-benefits-of-a-basic-and-budget-friendly-procase-case/"><u>Effortless Security for Your MacBook: Unveiling the Benefits of a Basic & Budget-Friendly ProCase Case</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elite-performance-analysis-for-philips-somneo-series-alarm-clocks/"><u>Elite Performance Analysis for Philips Somneo Series Alarm Clocks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/empire-crafting-in-imperator-rome-mastery-or-misfortune/"><u>Empire Crafting in Imperator: Rome: Mastery or Misfortune?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-tecno-pop-8-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Tecno Pop 8 Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581875041-italian-numbers-made-easy-count-to-1000-and-beyond-in-italian/"><u>Italian Numbers Made Easy – Count to 1000 and Beyond in Italian</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/portable-playtime-revolutionized-unpacking-the-nintendo-switch-lite-experience/"><u>Portable Playtime Revolutionized: Unpacking the Nintendo Switch Lite Experience</u></a></li>
+<li><a href="https://blog-min.techidaily.com/step-by-step-guide-customizing-your-linux-environment-with-a-windows-10-aesthetic/"><u>Step-by-Step Guide: Customizing Your Linux Environment with a Windows 10 Aesthetic</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/virtual-frontiers-five-incredible-upcoming-psvr-games/"><u>Virtual Frontiers Five Incredible Upcoming PSVR Games</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/vob-vobconverterpro/"><u>すぐに始められる免責付きのオンラインVOB変換サービス - VobConverterPro</u></a></li>
+</ul></div>
 

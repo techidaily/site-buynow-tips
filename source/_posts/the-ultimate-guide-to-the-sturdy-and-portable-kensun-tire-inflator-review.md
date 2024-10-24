@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to the Sturdy & Portable Kensun Tire Inflator Review
-date: 2024-10-17T18:51:54.515Z
-updated: 2024-10-18T19:04:00.487Z
+date: 2024-10-19T06:51:11.276Z
+updated: 2024-10-24T14:20:57.954Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Guide to the Sturdy & Portable Kensun Tire Inflator Review
@@ -39,9 +39,23 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -67,10 +81,10 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: A lot of power packed into a small frame**
@@ -91,13 +105,6 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Plenty of power for all your needs**
 
  Time and again, the Beatit Jump Starter D11 was able to get a car with a very[depleted battery](https://www.lifewire.com/car-batteries-are-made-to-die-534765) started. Even after repeated testing the unit’s own battery only dropped down to 85% capacity.
@@ -105,13 +112,6 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
  Charging a phone with a jump starter seems like overkill, and the unit’s ability to charge at 1,200mAh confirms that impression. At such an elevated level of charging your phone or other device will likely get its battery topped off in very little time. With 18,000mAh of capacity you can fully charge a modern phone at least twice, and still leave the unit with the juice it needs in order to start a car.
 
  Lifewire / Tony Mitera
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
@@ -126,6 +126,13 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
 
  At that price point, it packs a ton of value into its diminutive size.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
@@ -142,19 +149,6 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 **For the price, it's perfect.**
 
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
-
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -187,14 +181,19 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-prime-tools-elevating-digital-collaboration/"><u>[New] In 2024, Prime Tools Elevating Digital Collaboration</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-quickly-setup-snapchat-app-on-your-mac-os-x/"><u>[New] Quickly Setup Snapchat App on Your Mac OS X</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-unlock-your-youtube-personality-top-6-creator-categories/"><u>[New] Unlock Your YouTube Personality Top 6 Creator Categories</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722718590374-discover-the-best-features-of-rexings-v1-dash-cam-an-affordable-option-with-stealth-mode/"><u>Discover the Best Features of Rexing's V1 Dash Cam - An Affordable Option with Stealth Mode</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-compact-powerhouse-in-depth-analysis-of-aphaca-bt6-9s-car-bluetooth-radio-capabilities/"><u>Unveiling the Compact Powerhouse: In-Depth Analysis of Aphaca BT6 9'S Car Bluetooth Radio Capabilities</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-strengths-of-the-linksys-velop-a-detailed-router-review/"><u>Unveiling the Strengths of the Linksys Velop - A Detailed Router Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-stunning-picture-quality-of-the-lg-65-c-series-oled-a-comprehensive-guide-for-enthusiasts/"><u>Unveiling the Stunning Picture Quality of the LG 65 C Series OLED - A Comprehensive Guide for Enthusiasts</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-top-sports-gaming-triumph-a-critical-review-of-fifa-19/"><u>Unveiling the Top Sports Gaming Triumph: A Critical Review of FIFA 19</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/win-a-free-wonderfox-upgrade-premium-video-editing-software/"><u>Win a Free WonderFox Upgrade: Premium Video Editing Software</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-customer-commendations-boosting-brands/"><u>[New] In 2024, Customer Commendations Boosting Brands</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-quick-and-easy-creating-beautifully-detailed-slow-motion-videos-in-mobile-apps/"><u>2024 Approved Quick and Easy Creating Beautifully Detailed Slow Motion Videos in Mobile Apps</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-comprehensive-guide-to-benchmarking-graphics-cards-identifying-winners-and-losers/"><u>A Comprehensive Guide to Benchmarking Graphics Cards: Identifying Winners & Losers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/essential-gimbal-selection-tips-for-aerial-photography-for-2024/"><u>Essential Gimbal Selection Tips for Aerial Photography for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/fake-game-ads-everything-you-need-to-know/"><u>Fake Game Ads: Everything You Need to Know</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-fix-auto-lock-greyed-out-on-apple-iphone-7-drfone-by-drfone-ios/"><u>In 2024, How To Fix Auto Lock Greyed Out on Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/is-a-step-up-worth-it-ps5-versus-enhanced-ps4-pro/"><u>Is a Step Up Worth It? PS5 Versus Enhanced PS4 Pro</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/soundwave-success-adding-audio-to-your-instastory-for-2024/"><u>Soundwave Success Adding Audio to Your InstaStory for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/turning-on-or-off-your-pcs-network-discovery-setting-for-windows-10-users/"><u>Turning On or Off Your PC's Network Discovery Setting for Windows 10 Users</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/virtual-reality-simplifies-the-art-of-creating-3d-models-a-surprisingly-simple-guide/"><u>Virtual Reality Simplifies the Art of Creating 3D Models: A Surprisingly Simple Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-i-stand-alone-against-the-ps5-dualsense-controversy/"><u>Why I Stand Alone Against the PS5 DualSense Controversy</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-purchasing-early-access-games-isnt-a-guarantee-of-quality-gaming-experience/"><u>Why Purchasing Early Access Games Isn't a Guarantee of Quality Gaming Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-youll-prefer-playing-with-pcsx2-over-ps5-ps2-emulation-a-comprehensive-guide/"><u>Why You'll Prefer Playing with PCSX2 over PS5 PS2 Emulation - A Comprehensive Guide</u></a></li>
+<li><a href="https://win-docs.techidaily.com/1728498188983-windows-11/"><u>Windows 11易學：使用两种不同方法创建系统还原点</u></a></li>
 </ul></div>
 

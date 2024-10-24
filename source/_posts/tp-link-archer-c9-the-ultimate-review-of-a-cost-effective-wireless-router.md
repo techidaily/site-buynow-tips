@@ -1,7 +1,7 @@
 ---
 title: "TP-Link Archer C9: The Ultimate Review of a Cost-Effective Wireless Router"
-date: 2024-10-13T16:48:50.366Z
-updated: 2024-10-18T19:02:22.579Z
+date: 2024-10-18T01:49:50.933Z
+updated: 2024-10-23T17:35:22.052Z
 categories:
   - BestProducts
 description: "This Article Describes TP-Link Archer C9: The Ultimate Review of a Cost-Effective Wireless Router"
@@ -40,6 +40,13 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/o0LkMzwRLq9UDT8tBDJerDIsp8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
@@ -64,10 +71,16 @@ Lifewire / Erika Rawes
  The TP-Link Archer C80 is an affordable[long range router](https://www.lifewire.com/best-long-range-routers-4122554) that should be ideal for medium-sized homes. With 3x3[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , parental controls, and remote control using TP-Link’s Tether app, the Archer C80 has a few admirable features for a router under $100, but it also lacks some of the things we’ve come to expect in a router in this price range (like smart assistant compatibility and no USB port). I tested the TP-Link Archer C80 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment when compared to other budget routers on the market.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Basic, but effective**
@@ -77,6 +90,13 @@ Lifewire / Erika Rawes
  The matte black color scheme allows it to blend in with other devices, so you’ll barely notice it on a desk or workstation. The surface is textured, with recesses to hide the venting. The texturing is both a blessing and a curse because it causes the C80 to collect a little extra dust, but it also hides fingerprints and smudges.
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/Ep4Dk2l5q44AgM0S3cs9My3AE3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_03-a367c45b39474785856cb986e82c88dc.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -102,27 +122,20 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Range: Even better than advertised**
 
  TP-Link advertises the C80 as a router for three-bedroom homes. However, that estimate understates the router’s range capabilities. My home is a two-story, 3,000 square-foot residence with five-bedrooms, and I was able to maintain a stable Wi-Fi connection in every corner. Every closet, bathroom, and bedroom got a steady signal, and I experienced no dead zones whatsoever. Even in the garage, front yard, and backyard, the signal remained strong. It was only when I attempted to use multiple gaming and streaming devices at one time that I experienced any sort of lag.
 
  Every closet, bathroom, and bedroom maintained a signal, and I experienced no dead zones whatsoever.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: TP-Link Tether app**
 
@@ -134,13 +147,6 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **Price: Around 100 bucks**
@@ -148,10 +154,10 @@ Lifewire / Erika Rawes
  The TP-Link Archer C80 sells for $100, which is a reasonable price for the unit considering it offers fast speeds, dual-band connectivity, and technologies like MU-MIMO to enhance performance.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **TP-Link Archer C80 vs. TP-Link Archer A9**
@@ -199,14 +205,21 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-low-cost-high-performance-capturing-adrenaline-in-motion/"><u>[New] 2024 Approved Low-Cost, High-Performance Capturing Adrenaline in Motion</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-solve-audio-absence-in-twitch-style-tweets/"><u>[New] In 2024, Solve Audio Absence in Twitch-Style Tweets</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-maximize-ps5-space-premier-top-10-hdds/"><u>[New] Maximize PS5 Space Premier Top 10 HDDs</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-mini-2-and-air-2s-luts-free-trial-then-paid-upgrade/"><u>[Updated] Mini 2 & Air 2S LUTS - Free Trial, Then Paid Upgrade</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-understanding-imovies-editing-edge/"><u>In 2024, Understanding iMovie's Editing Edge</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-d-link-powerline-av-2000-streamlined-installation-and-swift-network-speed/"><u>Ultimate Guide to D-Link Powerline AV 2000: Streamlined Installation & Swift Network Speed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-ipad-showdown-side-by-side-feature-comparison/"><u>Ultimate iPad Showdown: Side-by-Side Feature Comparison</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlock-advanced-features-with-linksys-wrt3200acm-the-premier-choice-for-enthusiasts-home-networking-solutions/"><u>Unlock Advanced Features with Linksys WRT3200ACM - The Premier Choice for Enthusiasts' Home Networking Solutions</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-nokia-31-the-ultimate-introduction-to-mobile-technology/"><u>Unveiling the Nokia 3.1: The Ultimate Introduction to Mobile Technology</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unlocking-true-tints-and-shades-in-photos/"><u>[Updated] Unlocking True Tints and Shades in Photos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-webcam-experience-pioneering-high-definition-video-capture/"><u>[Updated] WebCam Experience Pioneering High-Definition Video Capture</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-iphone-lens-wizardry-secrets-to-selecting-perfect-positions/"><u>2024 Approved IPhone Lens Wizardry Secrets to Selecting Perfect Positions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-excellence-comprehensive-review-of-the-google-pixel-e-4a-5g/"><u>Affordable Excellence: Comprehensive Review of the Google Pixel E 4a 5G</u></a></li>
+<li><a href="https://article-tips.techidaily.com/best-free-premiere-pro-templates-2023/"><u>Best Free Premiere Pro Templates 2023</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-hearing-tech-for-drivers-an-affordable-bluetooth-headset-unpacked/"><u>Budget Hearing Tech for Drivers: An Affordable Bluetooth Headset Unpacked</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/canon-mf8200c-printer-drivers-available-now-compatible-with-windows-operating-systems/"><u>Canon MF8200C Printer Drivers Available Now - Compatible with Windows Operating Systems</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-all-in-one-laptop-asus-vivobook-11-small-and-inexpensive-edition/"><u>Comprehensive Review of The All-in-One Laptop - Asus VivoBook 11: Small and Inexpensive Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-innovative-design-and-capabilities-of-the-apple-iphone-15-pro-through-our-live-demo/"><u>Discover the Innovative Design and Capabilities of the Apple iPhone 15 Pro Through Our Live Demo</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/from-studio-to-stage-stream-your-mp3-tunes-on-youtube-for-2024/"><u>From Studio to Stage Stream Your MP3 Tunes on YouTube for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-nokia-c210-to-mac-drfone-by-drfone-android/"><u>How to Mirror Nokia C210 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/navigating-the-social-media-landscape-with-facebook-twitter-instagram-and-youtube/"><u>Navigating the Social Media Landscape with Facebook, Twitter, Instagram & YouTube</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/rings-latest-innovation-a-thorough-assessment-of-the-doorbell-plus-features/"><u>Ring's Latest Innovation: A Thorough Assessment of the Doorbell Plus Features</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-5-alternative-editors-beyond-youtubes-limits-for-2024/"><u>Top 5 Alternative Editors Beyond Youtube's Limits for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-cable-modem-and-router-sets/"><u>Top Rated Cable Modem and Router Sets</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unraveling-the-battle-of-wireless-routers-is-tp-links-archer-ax6000-faster-than-nighthawk-ax12/"><u>Unraveling The Battle of Wireless Routers: Is TP-Link's Archer AX6000 Faster than Nighthawk AX12?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Analysis of SeaTech's External Blu-Ray Drive with USB Connectivity: A Mixed Bag in Writing Quality"
-date: 2024-10-17T21:06:09.188Z
-updated: 2024-10-18T19:35:48.067Z
+date: 2024-10-20T08:51:02.762Z
+updated: 2024-10-24T02:30:51.382Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Analysis of SeaTech's External Blu-Ray Drive with USB Connectivity: A Mixed Bag in Writing Quality"
@@ -40,16 +40,22 @@ Lifewire / Jeremy Laukkonen
 
 4.2
 
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Amazon Luna
 
 ![Amazon Luna](https://www.lifewire.com/thmb/NT3lnZ3hOwaGUbS2tHARE7zRT1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_Hero_Square-cced3e5a3d3e4d24af1b85a59c76932d.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -77,16 +83,10 @@ Lifewire / Jeremy Laukkonen
  Luna is an impressive service with what seems like solid underlying tech right out of the gate. The biggest questions seem to be how and when Amazon will go about filling holes in the library, how well the service will work when they eventually roll out 4K streaming, and whether we’ll see better Android support in the future.
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Design and Controls: Decent enough app and a nearly flawless controller
@@ -94,6 +94,13 @@ Lifewire / Jeremy Laukkonen
  Luna isn’t a traditional game console, so there isn’t much design to speak of in terms of hardware. The two important elements here are the Luna app, which operates as an Android app on Fire TV and a web app in[Chrome](https://www.lifewire.com/what-is-google-chrome-4687647) and[Safari](https://www.lifewire.com/what-is-safari-4173608) , and the controller that’s technically optional.
 
 ![Amazon Luna](https://www.lifewire.com/thmb/c10USyUEVgaFrdeWRUBgX6MNpOQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_05-7314cf2ae25a4f428d93f40cc56fb5d1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -117,6 +124,13 @@ Lifewire / Jeremy Laukkonen
 
  Overall, the Luna controller has quickly become one of my favorite alternatives to the Xbox One or Xbox Series X/S controller; the only real issues being the mushy d-pad and the texture of the analog sticks. I ended up snapping on some performance thumb grips, which worked great.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Setup Process: Quick and easy
 
  Luna is just about as easy to use as a gaming service can be. To use Luna, there’s zero setup involved. If you’re playing on Windows, macOS, iOS, or Android, you can just connect a compatible controller, navigate to the Luna website, and start playing. The Fire TV app is similarly easy to get up and running.
@@ -124,6 +138,13 @@ Lifewire / Jeremy Laukkonen
  If you’re using the optional Luna controller, there is a bit of additional setup to work through. You can choose to have your controller automatically linked to your Amazon account when you buy it, which simplifies setup a bit, but it’s a fairly straightforward process either way.
 
 ![Amazon Luna](https://www.lifewire.com/thmb/6427gP-MSnqe4st8hfuI-7yxlos=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_03-f12a92bc606e43caa77b445a2fdcf1c1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -163,19 +184,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Amazon Luna](https://www.lifewire.com/thmb/NBB1N6qtwbtdjrUgwr1YaBaTuBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_02-37837bf860d244d3ab11ff01f37c609c-db472e204ada4ccca88e7510eacfae34.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Jeremy Laukkonen
 
  For some reason, the fighting category is populated by titles like the rogue-like shooter Everspace and the co-op brawler River City Girls. No actual fighting games, though. The horror category was empty until Amazon scored Resident Evil 7 Gold Edition and also saddled gorefest pixel art platformer Valfaris with the horror tag.
@@ -206,25 +214,11 @@ Lifewire / Jeremy Laukkonen
 
  Amazon Luna is an impressive game streaming service that works surprisingly well whether or not you buy the optional controller. It isn’t perfect, and you’re likely to experience hiccups here and there, but it’s an extremely affordable way to experience dozens of games, many of which would otherwise require an expensive gaming PC or console, without any kind of initial investment. The future of the service remains uncertain, and the precedent of locking Ubisoft games behind an expensive additional paywall isn’t a great sign, but Amazon has a chance to make a real splash in the gaming world with Luna.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Xbox Series X|S Controller](https://www.lifewire.com/xbox-series-x-or-s-controller-review-5113227)
 * [Sony DualSense Wireless Controller](https://www.lifewire.com/sony-dualsense-wireless-controller-review-feel-the-quality-5101639)
 * [Xbox One Elite Controller](https://www.lifewire.com/xbox-one-elite-controller-review-4770957)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -256,20 +250,22 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-tips.techidaily.com/plants-vs-zombies-battle-for-neighborville-hilarious-combat-action-reviewed/"><u>'Plants Vs. Zombies: Battle for Neighborville': Hilarious Combat Action Reviewed!</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-fps-titans-ranking-gamings-elite-shooters/"><u>[Updated] 2024 Approved FPS Titans Ranking Gaming's Elite Shooters</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-building-a-youtubing-brand-from-scratch-with-these-8-courses/"><u>[Updated] Building a YouTubing Brand From Scratch with These 8 Courses</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-guide-shutting-down-igtv/"><u>[Updated] In 2024, Guide Shutting Down IGTV</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-unleash-your-twitter-potential-premium-video-upload-tools/"><u>[Updated] Unleash Your Twitter Potential Premium Video Upload Tools</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-elite-set-of-android-photoshoppers/"><u>2024 Approved The Elite Set of Android Photoshoppers</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-full-guide-to-bypass-infinix-smart-7-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Infinix Smart 7 FRP</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-oneplus-11r-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked OnePlus 11R Phone?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-the-soundtrack-strategy-addmpy-in-videos-on-fb/"><u>In 2024, The Soundtrack Strategy Addmpy in Videos on FB</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/motorola-edgeplus-reviewed-fails-to-reach-apex-of-mobile-excellence/"><u>Motorola Edge+ Reviewed: Fails to Reach Apex of Mobile Excellence</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/navigating-graphic-design-careers-successfully/"><u>Navigating Graphic Design Careers Successfully</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/navigating-the-best-parental-control-routers-available-this-year/"><u>Navigating the Best Parental Control Routers Available This Year</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/next-level-compact-discs-the-best-to-buy/"><u>Next-Level Compact Discs: The Best to Buy</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/rethinking-budget-phones-with-our-oneplus-nord-n10-5g-review-what-you-need-to-know/"><u>Rethinking Budget Phones with Our OnePlus Nord N10 5G Review: What You Need to Know</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/retro-meets-modern-a-comprehensive-review-of-the-new-ratchet-and-clank-adventure/"><u>Retro Meets Modern - A Comprehensive Review of the New Ratchet & Clank Adventure</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-a-step-by-step-tutorial-for-speech-transcription-in-word-for-2024/"><u>[New] A Step-by-Step Tutorial for Speech Transcription in Word for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-guide-to-toolwiz-photosapp-for-photographers/"><u>[New] The Ultimate Guide to Toolwiz PhotosApp for Photographers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-real-time-game-capture-aps4-strategies-in-obs/"><u>[Updated] In 2024, Real-Time Game Capture APS4 Strategies in OBS</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-simplified-protocol-effortless-video-conversion-and-dvd-making/"><u>2024 Approved Simplified Protocol Effortless Video Conversion and DVD Making</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/amazon-fire-hd-8-8th-gen-review/"><u>Amazon Fire HD 8 (8Th Gen) Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/beachside-tech-essential-items-for-tranquility/"><u>Beachside Tech: Essential Items for Tranquility</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-high-speed-internet-cable-modems-expert-reviews-and-picks/"><u>Best High-Speed Internet Cable Modems: Expert Reviews and Picks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/bluetooth-brawl-airpods-pro-clash-with-buds-pro-edition-samsung/"><u>Bluetooth Brawl: AirPods Pro Clash with Buds Pro Edition (Samsung)</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/bypassing-windows-update-obstacle-uptime-failure-code-0x80246007/"><u>Bypassing Windows Update Obstacle: Uptime Failure, Code 0X80246007</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/effective-fixes-to-stop-the-abrupt-endings-in-phoenix-point-a-comprehensive-guide/"><u>Effective Fixes to Stop the Abrupt Endings in Phoenix Point – A Comprehensive Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-personalize-twitter-video-thumbnail/"><u>In 2024, Personalize Twitter Video Thumbnail</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/jacos-smartpro-digital-tyre-inflator-reviewed-an-unmatched-blend-of-power-and-portability/"><u>Jaco's SmartPro Digital Tyre Inflator Reviewed: An Unmatched Blend of Power and Portability</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-virtualdub-mpeg2-the-ultimate-video-compression-solution/"><u>New VirtualDub MPEG2 The Ultimate Video Compression Solution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-clearstream-2v-all-weather-hd-tv-antenna-exceptional-signal-in-an-aesthetic-design/"><u>Review of ClearStream 2V All-Weather HD TV Antenna: Exceptional Signal in an Aesthetic Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-viewing-experience-with-the-cost-effective-amazonbasics-antenna/"><u>Revolutionize Your Viewing Experience with the Cost-Effective AmazonBasics Antenna</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/solve-your-logitech-g933s-sound-issues-with-these-simple-fixes/"><u>Solve Your Logitech G933's Sound Issues with These Simple Fixes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unraveling-essential-factors-of-high-end-laptops/"><u>Unraveling Essential Factors of High-End Laptops</u></a></li>
 </ul></div>
 

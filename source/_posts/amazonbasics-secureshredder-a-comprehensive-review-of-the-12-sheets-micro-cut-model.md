@@ -1,7 +1,7 @@
 ---
 title: "AmazonBasics SecureShredder: A Comprehensive Review of the 12-Sheets Micro-Cut Model"
-date: 2024-08-15T09:46:43.667Z
-updated: 2024-08-16T09:46:43.667Z
+date: 2024-10-21T16:04:52.864Z
+updated: 2024-10-24T14:04:47.374Z
 categories:
   - BestProducts
 description: "This Article Describes AmazonBasics SecureShredder: A Comprehensive Review of the 12-Sheets Micro-Cut Model"
@@ -15,9 +15,6 @@ thumbnail: https://thmb.techidaily.com/477c1794ef618005849cb90b5c598de4a419e5c1f
 
 ## TCL 50S425 50-inch 4K Smart LED Roku TV
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/xdZO-ddLXgWQIKHYaUynllKab-w=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_HeroSquare-beccb9820dfd4a878196fac8bdf1d541.jpg)
 
 Lifewire / Yoona Wagener
@@ -41,9 +38,6 @@ Lifewire / Yoona Wagener
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ## TCL 50S425 50-inch 4K Smart LED Roku TV
 
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/3k1MkB4svn07bDvaUq6CGgLhZl8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_HeroSquare-beccb9820dfd4a878196fac8bdf1d541.jpg)
@@ -74,6 +68,13 @@ Lifewire / Yoona Wagener
 
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/8IJD6mxL-mHDn0MMWWRd5yZERlc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_04-bbd6d026c9ec48df9f12c934b7def674.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
 ## **Design: Lightweight and straightforward**
@@ -88,16 +89,10 @@ Lifewire / Yoona Wagener
 
  There are some unfortunate design quirks. The remote’s directional buttons are quite loud. They don’t require a hard press to activate, but they make an audible clicking sound. This is slightly jarring since the other buttons are nearly silent when pressed. Another drawback is the LED status indicator located in the bottom center of the display. By default this light is always on. You can turn this indicator off, but it will continue to blink and flash during other operations, which we sometimes found distracting.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/cT13RJhaMjC05v7eMym3vtM8M0s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_05-70fc23cf6c2b4a13ac9d46f9372010ef.jpg)
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## **Setup Process** :**Up and running in minutes**
 
  Setting up the 50-inch TCL Roku TV is a breeze. We opted to forego mounting the television, but the user manual indicates that this model is compatible with a VESA 200 x 200 wall mount with M6 x 12mm screws.
@@ -109,9 +104,12 @@ Lifewire / Yoona Wagener
  Additionally, if you plan to use a set-top cable box or antenna, the user manual offers straightforward instructions for doing so. You also have the option of enabling the Smart TV experience when you use antenna TV mode. This setting uses automatic content recognition (ACR) to make viewing recommendations based on what you view through your antenna or connected HDMI devices.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Image Quality: Clear and vivid without any tweaking**
 
  One of the biggest draws of a 4K TV is the[4K resolution](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) , which offers four times the resolution quality of a standard high definition TV. This pixel resolution is also commonly referred to as Ultra HD (UHD). This Roku TV also comes with HDR, or High Dynamic Range, which is commonly bundled with 4K resolution in the newest smart TVs.[HDR improves image quality](https://www.lifewire.com/dolby-vision-and-hdr10-4060427) by intensifying the contrast between white and black areas on the screen while achieving a solid balance, so nothing looks too dark or too bright. It also broadens the palette of available colors, especially in combination with Wide Color Gamut (WCG).
@@ -133,8 +131,12 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Audio Quality: Solid but not spellbinding**
 
  While the TCL Roku TV offers impressive picture quality, the sound is less noteworthy. The two built-in 8-watt speakers offer decent volume levels, but there’s no advanced audio settings menu in this model. You do have control over aspects like sound mode and volume mode. The default sound mode is “normal,” which is appropriate for everyday viewing. But you can also select options for higher treble, more bass, movie, or music mode. As for volume modes, you can either turn on leveling, to balance the contrast between lows and highs in audio, or enable night mode, which sets a threshold for how high the volume can go.
@@ -143,10 +145,14 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  In our testing experience in a small room, the internal speakers were more than adequate without the need for additional speakers. If you do want another layer of dimension to your audio, you might consider opting for the Roku[wireless speakers](https://www.lifewire.com/wireless-speakers-and-home-theater-1846770) designed specifically for Roku TV sets.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/oA3AbTZysdVWZbOWuuVGOa56_8c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_02-04183ae8dcd44b778b4da0e7706d5df2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
 
@@ -185,8 +191,12 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * [LG 27UD58-B 27-Inch 4K UHD IPS Monitor](https://www.lifewire.com/lg-27ud58-b27-inch-4k-uhd-ips-monitor-review-4778916)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  50S425 50-inch 4K Smart LED Roku TV
@@ -204,14 +214,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Connectivity Options  Wi-Fi, Ethernet
 * Warranty  1 year
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -220,4 +227,24 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-content-hub-hierarchy-stand-out-amongst-titans-vimeo-youtube-and-dailymotion/"><u>[New] Content Hub Hierarchy Stand Out Amongst Titans – Vimeo, YouTube & Dailymotion?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-from-novice-to-pro-paving-the-way-in-graphics-careers-for-2024/"><u>[New] From Novice to Pro Paving the Way in Graphics Careers for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-mirthful-methods-building-humor-in-a-click/"><u>[New] Mirthful Methods Building Humor in a Click</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-the-recorders-report-card-best-in-class-rated-for-2024/"><u>[New] The Recorder's Report Card Best in Class Rated for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-humor-image-tinkerer/"><u>2024 Approved Top Humor Image Tinkerer</u></a></li>
+<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-honor-x7b-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Honor X7b to iPhone | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/audio-ambiance-weaving-music-into-instagram-moments/"><u>Audio Ambiance Weaving Music Into Instagram Moments</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-fujitsu-scansnap-ix1400-assessment-the-ultimate-solution-for-home-office-and-smb-document-management/"><u>Comprehensive Fujitsu ScanSnap iX1400 Assessment: The Ultimate Solution for Home Office & SMB Document Management</u></a></li>
+<li><a href="https://article-posts.techidaily.com/high-fidelity-performance-desktops/"><u>High Fidelity Performance Desktops</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/outdoor-sealoc-tv-experience-in-depth-review-of-the-4k-55-coastal-silver-display-perfect-for-open-air-viewing/"><u>Outdoor Sealoc TV Experience: In-Depth Review of the 4K, 55 Coastal Silver Display Perfect for Open Air Viewing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/premium-performance-unleashed-in-depth-microsoft-surface-studio-2-assessment/"><u>Premium Performance Unleashed: In-Depth Microsoft Surface Studio 2 Assessment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reliable-performance-unveiling-the-ultimate-portability-of-dbpowers-newest-jump-starter-rated-at-6000mah-experts-reviews/"><u>Reliable Performance: Unveiling the Ultimate Portability of DBPOWER's Newest Jump Starter, Rated at 6000mAh - Experts Reviews!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tech-upgrade-essentials-acquire-a-new-dell-monitor-high-quality-anc-audio-gear-and-superior-webcam-for-unmatched-performance/"><u>Tech Upgrade Essentials: Acquire a New Dell Monitor, High-Quality ANC Audio Gear & Superior Webcam for Unmatched Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-best-game-selection-to-keep-you-occupied-when-youre-feeling-dull/"><u>The Best Game Selection to Keep You Occupied When You're Feeling Dull</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-finest-7-cell-phones-and-plans-tailored-for-elders/"><u>The Finest 7 Cell Phones & Plans Tailored for Elders</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ideal-choice-for-mac-fans-a-comprehensive-review-of-freestyle2-in-blue/"><u>The Ideal Choice for Mac Fans: A Comprehensive Review of Freestyle2 in Blue</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-mighty-sunbriteveranda-a-sturdy-55-inch-4k-tv-designed-to-withstand-the-elements-outdoors/"><u>The Mighty SunBriteVeranda: A Sturdy 55-Inch 4K TV Designed to Withstand the Elements Outdoors</u></a></li>
+</ul></div>
 

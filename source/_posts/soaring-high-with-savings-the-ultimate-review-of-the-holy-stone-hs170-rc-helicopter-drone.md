@@ -1,7 +1,7 @@
 ---
 title: "Soaring High with Savings: The Ultimate Review of the Holy Stone HS170 RC Helicopter Drone"
-date: 2024-08-15T09:51:56.159Z
-updated: 2024-08-16T09:51:56.159Z
+date: 2024-10-19T00:20:35.970Z
+updated: 2024-10-23T22:00:35.312Z
 categories:
   - BestProducts
 description: "This Article Describes Soaring High with Savings: The Ultimate Review of the Holy Stone HS170 RC Helicopter Drone"
@@ -38,9 +38,6 @@ Lifewire / James Huenink
 
 1.4
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ## Docooler USB 2.0 12 Megapixel
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/23qFdg2CyjsEX1uFEK5ESBb8kO0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_HERO_1LW4065141_7_Final_Square-bd507bc5d1d646f9a0d8d7466601f569.jpg)
@@ -67,11 +64,15 @@ Lifewire / James Huenink
  80’s movies promised a lot of cool future tech that hasn’t appeared. We’re not riding on hoverboards, nor do our cars fly. The one thing we did get is inexpensive and simple[video calling](https://www.lifewire.com/apps-for-free-video-chat-3426695) . The Docooler USB 2.0 12 Megapixel promises to make that a reality with an HD camera for the lowest cost in its class. Can this dirt-cheap[camera](https://www.lifewire.com/best-digital-cameras-under-100-3897833) deliver on its promise to connect us in HD?
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/YIcu00ga1PIrZWJzNk-mS5C4z-A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_5_Final_Horiz-23ef27f359f24e919ebb2f47f9089957.jpg)
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / James Huenink
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Flimsy and difficult to use**
 
@@ -81,16 +82,27 @@ Lifewire / James Huenink
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/a_8Gd66JN0RtfWzKKcRq95S8EmY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_6_Final_Horiz-1dd3a45479614483b0f4f5883f27094a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup process: Awkward to position**
 
  It takes almost no time to get the Docooler USB 2.0 12 Megapixel up and running. We just plugged the USB cord into the computer and it worked.
 
  It was easy to set up when we clipped it to a laptop, but terrible when we tried to put it on our HD TV. Every time we moved the computer or the USB cable, the camera slid, twisted, or fell off the TV. The ball joint, which connects the camera to the base, didn’t move smoothly, so we struggled to point the Docooler USB 2.0 12 Megapixel in the right direction, and we were too worried about breaking the plastic to try and force it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Camera Quality: Not even close to advertised**
 
@@ -116,16 +128,10 @@ Lifewire / James Huenink
 
  The audio performance of the Docooler USB 2.0 12 Megapixel was also lackluster. The built-in microphone produced poor quality sound, and when we tested it on Skype, voices were both muffled and echoey. People on the other end could understand what we were saying, but it was an unpleasant experience.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Cheap price, even cheaper webcam**
 
  The Docooler USB 2.0 12 Megapixel is the most inexpensive webcam you can buy, ranging from $8 up to around $15, but there’s a reason it’s priced so low. The image and audio quality are both terrible, and the camera is difficult to use.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: Falls short**
 
 **_Logitech C270_ :** The Logitech C270 is a low-cost webcam that goes for $40 MSRP, though you can frequently find it for approximately $20\. For $10 more than the Docooler, you get a big upgrade. It has 720p video calling and takes photos at 3MP. The microphone filters out background noise, so it shouldn’t have the same echo effects as the Docooler Web Cam. Even though it’s twice the price, you get a lot more camera for your ten bucks.
@@ -141,8 +147,12 @@ Lifewire / James Huenink
  The Docooler USB 2.0 12 Megapixel is one of the most inexpensive cameras on the market for a reason. This camera doesn’t come close to delivering what it promises, meaning it's not worth even the trifle you'd pay for it.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  USB 2.0 12 Megapixel
@@ -160,14 +170,11 @@ Lifewire / James Huenink
 * Frame rate  30fps
 * What’s Included  Docooler USB 2.0 12 Megapixel, Quick Start Guide
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -176,4 +183,24 @@ Lifewire / James Huenink
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-minimovie-magician/"><u>[New] In 2024, MiniMovie Magician</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-spinning-jujutsu-kaisen-stories-on-tiktok-for-2024/"><u>[New] Spinning Jujutsu Kaisen Stories on TikTok for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-comprehensive-but-concise-guide-to-keyers-techniques/"><u>[Updated] 2024 Approved Comprehensive but Concise Guide to Keyers' Techniques</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-video-to-music-selecting-the-cheapest-online-converters/"><u>[Updated] 2024 Approved From Video to Music Selecting the Cheapest Online Converters</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-aggregating-the-top-5-mac-clipping-applications/"><u>2024 Approved Aggregating the Top 5 Mac Clipping Applications</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decoding-the-value-an-insightful-reveal-on-the-google-pixelbook-gos-exceptional-quality-and-higher-pricing/"><u>Decoding the Value: An Insightful Reveal on The Google Pixelbook Go's Exceptional Quality & Higher Pricing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-best-in-budget-vr-gaming-a-comprehensive-look-at-the-oculus-quest-2/"><u>Discovering the Best in Budget VR Gaming: A Comprehensive Look at the Oculus Quest 2</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-jackery-powerbar-charging-solution-featuring-a-unique-inbuilt-ac-outlet/"><u>Evaluating Jackery PowerBar Charging Solution - Featuring a Unique Inbuilt AC Outlet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-tp-links-ac1200-wi-fi-range-extender-re305-features-benefits-and-user-experiences/"><u>Evaluating TP-Link's AC1200 Wi-Fi Range Extender (RE305): Features, Benefits, and User Experiences</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-lightning-speed-with-google-nest-wifi-your-ultimate-guide-to-seamless-wi-fi-coverage/"><u>Experience Lightning Speed with Google Nest Wifi – Your Ultimate Guide to Seamless Wi-Fi Coverage</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-of-google-home-camera-system-enhanced-user-recognition-tech-and-automated-package-detection-functionality/"><u>Expert Review of Google Home Camera System: Enhanced User Recognition Tech & Automated Package Detection Functionality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-cutting-edge-portability-with-samsungs-latest-galaxy-chromebook-model/"><u>Expert Review: Cutting-Edge Portability with Samsung's Latest Galaxy Chromebook Model</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-best-under-100-video-doorbells-the-comprehensive-review-of-remobell/"><u>Exploring the Best Under-$100 Video Doorbells: The Comprehensive Review of RemoBell</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-mastering-youtube-autoplay-on-mobile-devices/"><u>In 2024, Mastering YouTube Autoplay on Mobile Devices</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/to-use-or-not-to-use-evaluating-local-attorneys-pros-and-cons/"><u>To Use or Not to Use? Evaluating Local Attorneys' Pros and Cons</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/ultimate-energy-kits-for-hero5-official-and-alternative-products/"><u>Ultimate Energy Kits for Hero5 - Official & Alternative Products</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-guide-choosing-the-optimal-hd-dvd-remasterer-for-crystal-clear-viewing-experience/"><u>Ultimate Guide: Choosing the Optimal HD DVD Remasterer for Crystal Clear Viewing Experience</u></a></li>
+</ul></div>
 

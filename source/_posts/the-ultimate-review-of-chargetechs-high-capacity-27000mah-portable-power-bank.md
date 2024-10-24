@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Review of ChargeTech's High Capacity 27000mAh Portable Power Bank
-date: 2024-08-15T09:46:45.682Z
-updated: 2024-08-16T09:46:45.682Z
+date: 2024-10-17T17:15:21.540Z
+updated: 2024-10-24T08:47:14.376Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Review of ChargeTech's High Capacity 27000mAh Portable Power Bank
@@ -15,9 +15,6 @@ thumbnail: https://www.lifewire.com/thmb/hzO1WhES9AW27Zh7Tx8JI5riDaY=/400x300/fi
 
 ## Netgear AC1200 Wireless WiFi Range Extender (EX6200)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/5uYQ7n2CL2KkI81CwaUI6k-kg6I=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-2LW4043312-1-5c924aa1c9e77c0001e11e41.jpg)
 
 Lifewire / Fred Meyer
@@ -85,18 +82,26 @@ Lifewire / Fred Meyer
  For example, our[router](https://www.lifewire.com/what-is-a-router-2618162) sits in the living room entertainment center against one wall. On the opposite side of the wall sits an entertainment center in our bedroom. Now, we could run an Ethernet cord around the wall, through the bedroom door, and to the entertainment center, which would be around 60 feet or so, or we could drill through the wall and install an Ethernet socket. However, with the EX6200 we didn’t have to do either. Since it's right on the other side of the wall, we can set up the EX6200 and get the full signal to hardwire our TV,[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) , and Xbox One, which gives better speed and reliability than if we used them with WiFi-only.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup Process: A familiar process**
 
  Getting the EX6200 up and running is the same process used with pretty much every wireless extender on the market. Pull the thing out of the box, plug it in within 10-15 feet of your Wi-Fi router, and hit the WPS button. Then head over to your router and hit the corresponding WPS button on it. Voila! You're good to go.
 
  Alternatively, you can either plug into one of the Ethernet ports, or connect via the temporary network the EX6200 creates when you first turn it on. Check the manual for the web address to access the extender's interface (<www.mynetext.net>), and the bottom of the router for the default username and password (change this immediately), log in and follow the wizard that loads to get connected.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/Lny9pSzLcp1hItabWfQAbx8cAoc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-2-5c924b5846e0fb0001f8d14a.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Fred Meyer
 
@@ -112,16 +117,17 @@ Lifewire / Fred Meyer
 
  All-in-all, the Netgear Genie software isn't going to blow your mind, but it's straightforward, and since most network configuration settings are done at the router, you don't need a ton of options.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/C3GG9BATc7pjzGQZsIXmC4hlBTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-4-5c924c5046e0fb000146ae2c-e8aa858c433c410696d08b615cdee234.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Fred Meyer
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Connectivity: Hardwire everything**
 
  The Netgear AC1200 Wireless WiFi Range Extender (EX6200) has dual-band Wi-Fi, boasting two antennas. It transmits and receives on the 2.4GHz and 5GHz bands and is compatible with Wi-Fi b/g/n/ac devices. The EX6200 is pretty run-of-the-mill when it comes to wireless connectivity, and its AC1200 rating (300Mbps+900Mbps) puts it roughly in the mid-range category. It's not a speed demon, but it's more than adequate for most applications.
@@ -136,16 +142,10 @@ Lifewire / Fred Meyer
 
  If you have a wired connection to the internet, but no spare router, you can use the EX6200 in Access Point mode and it'll allow you to connect via Wi-Fi. However, unlike a router, it doesn't have a built-in DHCP server (Dynamic Host Configuration Protocol which provides an[IP address](https://www.lifewire.com/what-is-an-ip-address-2625920) ) so you'll still need a device that can handle that task somewhere in your network.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/ZHlEjP4KLtEcUqCvuXTg1eZBnFg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-3-5c924c8f46e0fb0001770187-2a10c24af5834857aeb7b4cfcd1cc6a9.jpg)
 
 Lifewire / Fred Meyer
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Network Performance: Adequate but not spectacular**
 
  Again, the EX6200 is a mid-range unit with a great design and a few bonuses, so don't buy it thinking you're going to get high-end performance. We found the unit performed adequately, but didn't exceed expectations. Most of the time, the EX6200 hovered around 500 to 700 Mbps up to the 50 feet mark. By the time we had reached 75 feet that speed had more than halved to 200-250 Mbps. At 85-90 feet the speed had dropped to 50 to 70 Mbps and we started experiencing intermittent disconnects.
@@ -154,12 +154,16 @@ Lifewire / Fred Meyer
 
  From our testing, we'd say the sweet spot for the EX6200 is 50 feet or less. Your results, of course, may vary depending on how many walls you place between yourself and the device and their composition. One area we did find the EX6200 excelled in is verticality. It seems like a lot of plug-in models have their range dramatically affected by height, but the EX6200 transmitted to the second floor into a room around 40 feet away in a straight line and we saw speeds around 300 to 350 Mbps.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ## **Price: A solid balance**
 
  At $99.99 (MSRP) the EX6200 isn't exactly cheap. You can get extenders for $30 or lower that get the job done, but that's all they'll do. We found that the EX6200 struck a good balance between price and features, and is an excellent extender for most use cases.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Middle of the road choice**
 
@@ -179,6 +183,13 @@ Lifewire / Fred Meyer
 
 * [Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/eero-pro-mesh-wi-fi-system-review-4797008)
 * [TP-Link AC1200 RE305](https://www.lifewire.com/tp-link-ac1200-wifi-range-extender-re305-review-4589559)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -200,14 +211,11 @@ Lifewire / Fred Meyer
 * Number of Wired Ports  Five
 * Range  85 Feet Maximum
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -216,4 +224,26 @@ Lifewire / Fred Meyer
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-collection-8-amazing-3d-websites-with-gold/"><u>[New] The Ultimate Collection 8 Amazing 3D Websites with Gold</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-unveiling-techniques-to-extract-fb-content/"><u>[New] Unveiling Techniques to Extract FB Content</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-exclusive-list-of-top-web-based-sound-capturers-2023/"><u>[Updated] Exclusive List of Top Web-Based Sound Capturers 2023</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-pinnacle-promotion-reels/"><u>[Updated] In 2024, Pinnacle Promotion Reels</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-premier-selection-of-iphone-x876-compatible-gif-apps-for-2024/"><u>[Updated] Premier Selection of iPhone X/8/7/6-Compatible GIF Apps for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-premier-radio-systems-for-officers/"><u>2024'S Premier Radio Systems for Officers</u></a></li>
+<li><a href="https://win-unique.techidaily.com/1728480366282-usb/"><u>如何成功地將外部USB重置回电脑原始状态：实用方法及步骤说明</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/battle-royale-showdown-diving-into-fortnites-latest-fun-filled-season/"><u>Battle Royale Showdown: Diving Into Fortnite's Latest Fun-Filled Season</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-performance-of-tp-link-archer-c80-budget-friendly-sub-100-speeds/"><u>Evaluating the Performance of TP-Link Archer C80: Budget-Friendly Sub-$100 Speeds</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-dell-xps-13-9310-laptop-ultra-thin-design-meets-powerful-performance/"><u>Exploring the Dell XPS 13 (9310) Laptop: Ultra-Thin Design Meets Powerful Performance</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-a-quick-look-at-grading-techniques-in-ps/"><u>In 2024, A Quick Look at Grading Techniques in PS</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-sony-xperia-1-v-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Sony Xperia 1 V to Mac? | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/master-plan-ultimate-guide-to-a-memorable-labor-day-celebration-curated-by-experts-at-zdnet/"><u>Master Plan: Ultimate Guide to a Memorable Labor Day Celebration, Curated by Experts at ZDNET</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-through-stars-and-empires-an-in-depth-review-of-stellaris-your-gateway-to-galactic-glory/"><u>Navigating Through Stars and Empires: An In-Depth Review of Stellaris, Your Gateway to Galactic Glory</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/redefining-office-chic-with-functionality-insightful-review-of-the-stylish-flexispot-theodore-standing-desk-solution/"><u>Redefining Office Chic with Functionality: Insightful Review of the Stylish Flexispot Theodore Standing Desk Solution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revamped-and-ready-to-battle-a-critical-look-at-fortnites-new-exciting-chapter/"><u>Revamped and Ready to Battle: A Critical Look at Fortnite's New Exciting Chapter!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-capabilities-detailed-evaluation-of-the-tp-link-re505x-range-extender/"><u>Unveiling the Capabilities: Detailed Evaluation of the TP-Link RE505X Range Extender</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/unveiling-the-secrets-of-mp4-video-files-a-comprehensive-guide/"><u>Unveiling the Secrets of MP4 Video Files: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-why-the-huawei-p30-pro-remains-my-preferred-choice-detailed-review/"><u>Unveiling Why the Huawei P30 Pro Remains My Preferred Choice: Detailed Review</u></a></li>
+</ul></div>
 
