@@ -1,7 +1,7 @@
 ---
 title: "The Mohu Blade Television Receiver: Evaluating Its Cutting-Edge Layout for Superior Indoor Viewing Experience"
-date: 2024-10-17T13:23:46.533Z
-updated: 2024-10-24T00:48:01.158Z
+date: 2024-10-27T09:29:53.152Z
+updated: 2024-10-30T01:12:55.470Z
 categories:
   - BestProducts
 description: "This Article Describes The Mohu Blade Television Receiver: Evaluating Its Cutting-Edge Layout for Superior Indoor Viewing Experience"
@@ -62,6 +62,13 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -71,13 +78,6 @@ Lifewire / Erika Rawes
  The antenna comes with a stand for placement on a desk or entertainment center. It also comes with double-sided adhesives, so you can hang it on a wall or window. The adhesives are extremely sticky—when I pulled the antenna off of my wall, the paint came off along with it.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -89,13 +89,6 @@ Lifewire / Erika Rawes
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
-<!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Almost two dozen channels**
 
  The Antop AT-127 supports UHF and VHF signals. Overall, it works pretty smoothly, though some channels might have look pixelated for a few seconds when you flip to them or take a second or two to fully load.
@@ -105,32 +98,13 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Range: Could be better**
 
@@ -140,6 +114,13 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
@@ -147,6 +128,13 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
@@ -189,22 +177,22 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-5-best-zoom-transcription-software-free-and-paid/"><u>[New] 2024 Approved 5 Best Zoom Transcription Software [Free & Paid]</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-dissecting-ffmpeg-the-gateway-to-original-audio-retention/"><u>[New] In 2024, Dissecting FFmpeg The Gateway to Original Audio Retention</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-efficient-shortening-of-instagram-video-content-mac/"><u>[New] In 2024, Efficient Shortening of Instagram Video Content (Mac)</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-path-to-professionalism-morphvox-transformation-guide/"><u>[New] Path to Professionalism MorphVOX Transformation Guide</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-maximizing-performance-optimal-settings-for-logitech-webcam/"><u>[Updated] 2024 Approved Maximizing Performance Optimal Settings for Logitech Webcam</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/20plus-secrets-to-insta-wonderful-videos/"><u>20+ Secrets to Insta-Wonderful Videos</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/audacity-version-35-introduces-new-features-cloud-storage-backup-and-seamless-device-synchronization/"><u>Audacity Version 3.5 Introduces New Features: Cloud Storage Backup & Seamless Device Synchronization</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/best-xbox-one-hits-you-should-play-again-with-xbox-series-xs-backwards-compatibility/"><u>Best Xbox One Hits You Should Play Again with Xbox Series X/S Backwards Compatibility</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/bundle-up-for-ultimate-entertainment-get-netflix-peacock-and-apple-tvplus-with-xfinitys-exclusive-offering-now/"><u>Bundle Up for Ultimate Entertainment - Get Netflix, Peacock & Apple TV+ With Xfinity's Exclusive Offering Now!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/diy-3d-printing-projects-things-its-better-left-unprinted/"><u>DIY 3D Printing Projects: Things It’s Better Left Unprinted</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/eco-friendly-shift-amazon-eliminates-plastic-air-pillows-for-sustainable-wrapping-options/"><u>Eco-Friendly Shift: Amazon Eliminates Plastic Air Pillows for Sustainable Wrapping Options</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/embracing-the-classics-how-i-prefer-retro-gaming-over-modern-titles/"><u>Embracing the Classics: How I Prefer Retro Gaming Over Modern Titles</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/free-or-paid-spotify-evaluating-the-benefits-to-decide-if-premium-membership-is-right-for-you/"><u>Free or Paid Spotify: Evaluating the Benefits to Decide if Premium Membership Is Right for You</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/how-i-successfully-silenced-unwanted-white-hissing-sound-from-my-audio-system/"><u>How I Successfully Silenced Unwanted White Hissing Sound From My Audio System</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-photo-editing-a-guide-to-using-print-command-in-photoshop/"><u>Mastering Photo Editing: A Guide to Using Print Command in Photoshop</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/top-recruiter-shorts-find-your-motivation-in-2024/"><u>Top Recruiter Shorts Find Your Motivation, In 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlock-xiaomi-redmi-note-12-pro-4g-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Xiaomi Redmi Note 12 Pro 4G Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-affluent-online-broadcasting-houses/"><u>[Updated] 2024 Approved Affluent Online Broadcasting Houses</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-expert-advice-to-recover-missing-thumbnails-from-videos/"><u>[Updated] 2024 Approved Expert Advice to Recover Missing Thumbnails From Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-craft-your-best-youtubing-exit-tips-from-industry-leaders/"><u>[Updated] Craft Your Best YouTubing Exit - Tips From Industry Leaders</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-echo-generator-blueprint-for-2024/"><u>[Updated] Echo Generator Blueprint for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-mend-error-non-playing-vids-in-chrome/"><u>[Updated] Mend Error Non-Playing Vids in Chrome</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-de-jelling-drone-mobility-captures/"><u>2024 Approved De-Jelling Drone Mobility Captures</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-checklist-important-considerations-when-shopping-for-vr-technology/"><u>A Checklist: Important Considerations When Shopping for VR Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-karaoke-options-across-the-us-quality-entertainment-under-150-reviewed/"><u>Best Karaoke Options Across the US – Quality Entertainment Under $150 Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/breakthrough-earbuds-best-of-the-year-2024/"><u>Breakthrough Earbuds - Best of the Year 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparative-analysis-of-tablet-computers-based-on-processor-quality/"><u>Comparative Analysis of Tablet Computers Based on Processor Quality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-the-sumind-bt70b-fm-bluetooth-receiver-your-drivers-tech-ally/"><u>Comprehensive Guide to the Sumind BT70B FM Bluetooth Receiver - Your Driver's Tech Ally</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-netatmo-weather-station-analysis-ideal-smart-weather-device-for-mobile-enthusiasts/"><u>Comprehensive Netatmo Weather Station Analysis: Ideal Smart Weather Device for Mobile Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-how-the-netgear-nighthawk-rax80-revolutionizes-home-networking-with-wi-fi-6-capabilities/"><u>Comprehensive Review: How the Netgear Nighthawk RAX80 Revolutionizes Home Networking with Wi-Fi 6 Capabilities</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-latest-intel-network-drivers-compatible-with-windows-11-10-and-7-free-download/"><u>Get Your Latest Intel Network Drivers Compatible with Windows 11, 10 & 7 – Free Download!</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/latest-and-greatest-seamlessly-install-the-new-logitech-m325-driver/"><u>Latest and Greatest: Seamlessly Install the New Logitech M325 Driver</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/leading-edge-insights-discover-6-uses-for-ais-code-maestro/"><u>Leading-Edge Insights - Discover 6 Uses for AI's Code Maestro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ws-2902a-ambient-weather-station-overview-and-analysis-exceptional-value-with-rich-functionality/"><u>WS-2902A Ambient Weather Station Overview & Analysis - Exceptional Value with Rich Functionality</u></a></li>
 </ul></div>
 

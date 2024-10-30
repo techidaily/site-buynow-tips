@@ -1,7 +1,7 @@
 ---
 title: "Kindle Oasis (2019) Review: A Paper-Like Reading Experience"
-date: 2024-10-21T04:27:36.172Z
-updated: 2024-10-24T00:03:46.978Z
+date: 2024-10-24T23:12:24.227Z
+updated: 2024-10-29T17:39:37.085Z
 categories:
   - BestProducts
 description: "This Article Describes Kindle Oasis (2019) Review: A Paper-Like Reading Experience"
@@ -67,24 +67,18 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/U_vmwZDe5HbbungQ5L2hzf2LVto=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-4-b0d1cca56ec04a61b83e20d1cecf2aea.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
 
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Hardware: Some odd decisions**
 
@@ -93,6 +87,13 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process/Installation: Easy install, irritating setup**
 
@@ -106,13 +107,6 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Audio: Excellent sound**
 
  Once the EQ effects are turned off, the Sound Blaster ZxR provides beautiful sound. While it wasn’t quite as clean or crisp as an enthusiast audiophile amplifier, such as the OPPO HA-1, it was solid for a system that costs a quarter of the HA-1’s price. On the HD-800s, the bass came across slightly muddy, but the ZxR provides solid quality for consumer-grade headphones like the Sennheiser GSP300 or the Sony MDR-7506\. As our our[headphone buying guide](https://www.lifewire.com/headphones-buying-guide-4172763) suggests, most headphones under $250 will not be sensitive enough to meaningfully distinguish between the ZxR and the HA-1.
@@ -121,14 +115,14 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
- Lifewire / Emily Ramirez
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Emily Ramirez
 
 ## **Software: Lots of options with mixed utility**
 
@@ -138,22 +132,16 @@ Lifewire / Emily Ramirez
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
 
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
 
@@ -175,23 +163,17 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
-
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -231,19 +213,18 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-aural-archive-discussion-and-judgment/"><u>[New] 2024 Approved Aural Archive Discussion & Judgment</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-device-capture-to-viral-content-youtubes-upload-guide/"><u>[New] 2024 Approved From Device Capture to Viral Content YouTube's Upload Guide</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-pushing-boundaries-with-intova-x-action-tech-for-2024/"><u>[New] Pushing Boundaries with Intova X Action Tech for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-instantaneous-inspector-of-images-on-windows/"><u>[Updated] Instantaneous Inspector of Images on Windows</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-optimizing-zoom-video-fidelity-comprehensible-guides/"><u>[Updated] Optimizing Zoom Video Fidelity Comprehensible Guides</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-pro-gopro-filming-techniques-unveiled/"><u>[Updated] Pro-Gopro Filming Techniques Unveiled</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Realme C67 4G | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ensuring-your-furry-friends-well-being-with-the-secure-automated-petsafe-feeder/"><u>Ensuring Your Furry Friend’s Well-Being with the Secure, Automated PetSafe Feeder</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/garmin-forerunner-745-review/"><u>Garmin Forerunner 745 Review</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/guida-alla-connettivita-garantire-la-sincronizzazione-vlc-chromecast-quando-ottiene-errori-o-non-risponde/"><u>Guida Alla Connettività: Garantire La Sincronizzazione VLC-Chromecast Quando Ottiene Errori O Non Risponde</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-activity-watches-for-health-enthusiasts-2024s-picks/"><u>Leading Activity Watches for Health Enthusiasts: 2024'S Picks</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lg-k51-phone-analysis-stunning-design-vs-sluggish-performance/"><u>LG K51 Phone Analysis: Stunning Design Vs. Sluggish Performance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-and-insights-on-taotronics-trendy-tt-dl16-led-lampsphere/"><u>Review and Insights on TaoTronics' Trendy TT-DL16 LED Lampsphere</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-definitive-verdict-on-apple-iphone-xs-max-a-blend-of-luxury-and-performance/"><u>The Definitive Verdict on Apple iPhone XS Max: A Blend of Luxury and Performance</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-simplified-guide-to-recording-pc-screens-for-hp-users/"><u>[New] 2024 Approved Simplified Guide to Recording PC Screens for HP Users</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-leading-youtube-themes-for-captivating-opens-for-2024/"><u>[Updated] Leading YouTube Themes for Captivating Opens for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-samsung-galaxy-watch-active-enhancing-your-wellbeing-journey/"><u>Comprehensive Review of the Samsung Galaxy Watch Active - Enhancing Your Wellbeing Journey</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/connecting-your-epson-printer-to-the-internet-a-comprehensive-wifi-setup-tutorial/"><u>Connecting Your Epson Printer to the Internet: A Comprehensive WiFi Setup Tutorial</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-ultimate-android-headphones-galaxy-buds-pro/"><u>Discover the Ultimate Android Headphones: Galaxy Buds Pro</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/eliminating-chatgpts-monopoly-on-conversation/"><u>Eliminating ChatGPT's Monopoly on Conversation</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-infinix-zero-30-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Infinix Zero 30 5G FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-makeup-inspiration-videos/"><u>In 2024, Makeup Inspiration Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-master-the-art-of-social-media-stardom-with-these-9-strategies/"><u>In 2024, Master the Art of Social Media Stardom with These 9 Strategies</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/performance-breakdown-how-the-functional-yet-ugly-duckling-design-of-clearstream-2vs-tv-antenna-stacks-up/"><u>Performance Breakdown: How the Functional Yet Ugly-Duckling Design of ClearStream 2V's TV Antenna Stacks Up</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/test-drive-exploring-features-of-the-innovative-ampage-andes-1500-portable-generator/"><u>Test Drive: Exploring Features of the Innovative Ampage Andes 1500 Portable Generator</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-picks-for-microsoft-onenote-why-you-need-to-try-the-revolutionary-onetastic-add-in/"><u>Top Picks for Microsoft OneNote: Why You Need to Try the Revolutionary Onetastic Add-In</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unique-book-trail-showcases-for-2024/"><u>Unique Book Trail Showcases for 2024</u></a></li>
 </ul></div>
 

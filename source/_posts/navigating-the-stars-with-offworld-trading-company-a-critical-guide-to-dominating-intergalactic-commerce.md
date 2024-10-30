@@ -1,7 +1,7 @@
 ---
 title: "Navigating the Stars with Offworld Trading Company: A Critical Guide to Dominating Intergalactic Commerce"
-date: 2024-10-22T03:34:19.302Z
-updated: 2024-10-24T01:04:44.916Z
+date: 2024-10-28T18:39:55.521Z
+updated: 2024-10-30T10:12:15.626Z
 categories:
   - BestProducts
 description: "This Article Describes Navigating the Stars with Offworld Trading Company: A Critical Guide to Dominating Intergalactic Commerce"
@@ -36,16 +36,16 @@ Lifewire / Kelsey Simon
 
 2.7
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -65,18 +65,18 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -85,19 +85,6 @@ Lifewire / Kelsey Simon
  I did continue forward, even though I was already disinterested, hoping the game would become more gripping. After the memory room, you’ll wake to another platform where a being tells you you’ve suffered a great injury and they are in your mind. He tries to explain who you are but before he gets too far, you’ll be attacked by something called the Sorrow. Eventually, you’ll wake in the real world, enter the game’s main city, and be able to talk to the wealth of characters living there. You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
 
  You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
-
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Gameplay: Dialogue prompts and effort**
 
@@ -119,13 +106,6 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -144,6 +124,13 @@ Lifewire / Kelsey Simon
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Competition: Other story focused RPGs**
 
  There are quite a few other games available that are story-focused RPGs besides Tides of Numenera. Wasteland 2 (view on[Amazon](https://www.amazon.com/Wasteland-2-Directors-Cut-PlayStation-4/dp/B013CQHQFU/?tag=lifewire-onsite-prod-20&ascsubtag=5077302%7Cnac6eb02defc3413da4da5d4ed0dc77ea21%7C) ) is a very similar game, as it is made by the same developers, but where Numenera falls flat with its heavy-handed storytelling, Wasteland 2 stands apart with a fun, tactical combat system.
@@ -155,6 +142,13 @@ Lifewire / Kelsey Simon
  **A text-heavy RPG that doesn’t live up to its predecessor.**
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -179,22 +173,24 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-comprehensive-rotational-view-analysis/"><u>[New] In 2024, Comprehensive Rotational View Analysis</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-deciphering-the-magic-behind-magixs-pixel-editor/"><u>2024 Approved Deciphering the Magic Behind MAGIX's Pixel Editor</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/2024-approved-effortless-video-downloads-at-fingertips-select-from-these-top-chrome-plugins/"><u>2024 Approved Effortless Video Downloads at Fingertips Select From These Top Chrome Plugins</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-nubia-red-magic-8s-proplus-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Nubia Red Magic 8S Pro+ Without Power Button | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/compare-deals-look-out-for-bundle-offers-that-include-accessories-like-a-case-screen-protector-or-headphones-at-a-reduced-price-when-purchasing-your-phone.m157/"><u>Compare Deals: Look Out for Bundle Offers that Include Accessories Like a Case, Screen Protector, or Headphones at a Reduced Price when Purchasing Your Phone.</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-lenovo-yoga-a940-laptop-review-features-performance-and-price-analysis/"><u>Comprehensive Lenovo Yoga A940 Laptop Review: Features, Performance & Price Analysis</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/crafting-visual-narratives-with-the-leading-frames/"><u>Crafting Visual Narratives with the Leading Frames</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-to-pick-the-right-tablet-a-focus-on-display-dimensions-and-portability/"><u>How To Pick The Right Tablet: A Focus On Display Dimensions & Portability</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-essence-of-burst-in-gopro-filming-techniques/"><u>In 2024, The Essence of Burst in GoPro Filming Techniques</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/microsoft-surface-pro-7-reviewed-a-comforting-update-with-steady-performance-gains/"><u>Microsoft Surface Pro 7 Reviewed – A Comforting Update with Steady Performance Gains</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/pro-tips-for-conquering-photo-and-video-importers-on-windows-10/"><u>Pro-Tips for Conquering Photo & Video Importers on Windows 10</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-google-pixel-8-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Google Pixel 8 Device Top 5 Picks to Remove Android Locks</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-revolutionary-featherweight-lg-gram-17-a-detailed-performance-analysis/"><u>The Revolutionary Featherweight LG Gram 17: A Detailed Performance Analysis</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-considerations-when-choosing-a-performance-laptop/"><u>Top Considerations When Choosing a Performance Laptop</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-portable-laptop-power-solutions/"><u>Top-Rated Portable Laptop Power Solutions</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/transform-viewing-habits-the-top-6-choices-for-cost-free-and-online-short-film-downloads/"><u>Transform Viewing Habits The Top 6 Choices for Cost-Free & Online Short Film Downloads</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/1723053241983-ultimate-buyers-guide-selecting-the-perfect-tablet-by-dimensions-and-mass/"><u>Ultimate Buyer's Guide: Selecting the Perfect Tablet by Dimensions and Mass</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-exclusive-mac-hd-scribing-plus-auditory-logging-solution/"><u>[New] In 2024, Exclusive Mac HD Scribing + Auditory Logging Solution</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-seconds-needed-for-playback-20mb-video-example/"><u>[Updated] Seconds Needed for Playback - 20Mb Video Example</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-premium-fourteen-high-res-full-frame-selection/"><u>2024 Approved Premium Fourteen High Res Full Frame Selection</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-technical-insights-for-superior-ppt-recording-quality/"><u>2024 Approved Technical Insights for Superior PPT Recording Quality</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-lg-24lh4830-smart-led-tv-great-quality-without-breaking-the-bank/"><u>Affordable LG 24LH4830 Smart LED TV: Great Quality Without Breaking the Bank</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/amazon-echo-show-10-3rd-gen-review/"><u>Amazon Echo Show 10 (3Rd Gen) Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/amazon-kindle-2019-unveiled-your-wallet-friendly-gateway-to-digital-reading/"><u>Amazon Kindle (2019) Unveiled: Your Wallet-Friendly Gateway to Digital Reading</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/an-overview-of-overwatchs-entertaining-team-shooter-features-and-competitive-mode/"><u>An Overview of Overwatch's Entertaining Team Shooter Features & Competitive Mode</u></a></li>
+<li><a href="https://article-files.techidaily.com/androids-video-reversion-secrets-unveiled/"><u>Android's Video Reversion Secrets Unveiled</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/sive-guide-10-immersive-youtube-vr-films-for-2024/"><u>Exclusive Guide 10 Immersive YouTube VR Films for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unlocking-the-secrets-to-becoming-an-exceptional-interviewer/"><u>In 2024, Unlocking The Secrets To Becoming An Exceptional Interviewer</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/kinemaster-editors-unite-building-fluid-sequences-together-for-2024/"><u>Kinemaster Editors Unite Building Fluid Sequences Together for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mastering-ais-language-through-prompt-crafting-and-workforce-insights/"><u>Mastering AI's Language Through Prompt Crafting & Workforce Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1722988964881-unlocking-blistering-speeds-with-the-netgear-nighthawk-rax120-your-ultimate-guide/"><u>Unlocking Blistering Speeds with the Netgear Nighthawk RAX120 - Your Ultimate Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-samsung-galaxy-tab-s4-a-review-of-its-features-as-a-top-tier-tablet/"><u>Unveiling the Samsung Galaxy Tab S4: A Review of Its Features as a Top-Tier Tablet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-top-chargers-for-rechargeable-batteries-expert-picks/"><u>Unveiling the Top Chargers for Rechargeable Batteries - Expert Picks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/urban-development-meets-martian-wilderness-a-laughingly-chaotic-adventure/"><u>Urban Development Meets Martian Wilderness: A Laughingly Chaotic Adventure</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/walletwise-wagging-camera-study/"><u>WalletWise Wagging Camera Study</u></a></li>
 </ul></div>
 

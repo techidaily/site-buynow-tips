@@ -1,7 +1,7 @@
 ---
 title: Get Free, Crisp TV Channels with AmazonBasics' Flat Antenna – The Savvy Shopper’s Guide
-date: 2024-10-21T03:48:32.759Z
-updated: 2024-10-24T06:22:54.831Z
+date: 2024-10-27T05:37:36.180Z
+updated: 2024-10-29T20:56:41.983Z
 categories:
   - BestProducts
 description: This Article Describes Get Free, Crisp TV Channels with AmazonBasics' Flat Antenna – The Savvy Shopper’s Guide
@@ -37,15 +37,22 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -68,13 +75,6 @@ Lifewire / Erika Rawes
  _We purchased AmazonBasics Flat TV Antenna so our expert reviewer could thoroughly test and assess it. Keep reading for our full product review._
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Design: It’s all in the name (basic)**
 
@@ -105,10 +105,10 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: 35 miles**
@@ -119,18 +119,18 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -175,20 +175,20 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-empower-your-video-creation-blending-youtube-and-imovie-for-impressive-results/"><u>[New] Empower Your Video Creation Blending YouTube and iMovie for Impressive Results</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-the-key-to-online-success-mastering-backlink-construction/"><u>[New] In 2024, The Key to Online Success Mastering Backlink Construction</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-secrets-of-effective-iptv-broadcasting-capture/"><u>[Updated] Secrets of Effective IPTV Broadcasting Capture</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-premiere-ready-text-configurations/"><u>2024 Approved Premiere-Ready Text Configurations</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/conversion-de-videos-de-4k-a-1080p-con-facilidad-en-tu-computadora-windows-o-mac/"><u>Conversión De Vídeos De 4K a 1080P Con Facilidad en Tu Computadora Windows O Mac</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Oppo Find X6 | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/struggling-with-slow-ping-in-online-gaming-heres-why-and-how-to-fix-it/"><u>Struggling with Slow Ping in Online Gaming? Here's Why and How to Fix It</u></a></li>
-<li><a href="https://change-location.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Vivo Y55s 5G (2023)? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-overlooked-rise-and-fall-of-chromecast-how-google-let-it-die/"><u>The Overlooked Rise and Fall of Chromecast: How Google Let It Die</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-14-cooperative-mobile-apps-fun-multiplayer-experiences-on-android/"><u>Top 14 Cooperative Mobile Apps: Fun Multiplayer Experiences on Android</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/transforming-paperbacks-into-digital-top-three-methods/"><u>Transforming Paperbacks Into Digital: Top Three Methods</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-unresponsive-file-explorer-on-your-pc-windows-solutions-for-a-smooth-experience/"><u>Troubleshooting Unresponsive File Explorer on Your PC: Windows # Solutions for a Smooth Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unleash-power-play-with-budget-friendly-asus-rog-ally-at-only-400/"><u>Unleash Power Play with Budget-Friendly ASUS ROG Ally at Only $400</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlock-the-secrets-spotifys-plan-to-charge-for-access-to-song-lyrics/"><u>Unlock the Secrets: Spotify's Plan to Charge for Access to Song Lyrics</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-free-techniques-to-change-your-characters-voice-and-sound-identity-in-free-fire-gaming/"><u>[New] 2024 Approved Free Techniques to Change Your Character's Voice and Sound Identity in Free Fire Gaming</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/treamline-your-browsing-with-these-7-android-centric-adblockers-for-2024/"><u>[New] Streamline Your Browsing with These 7 Android-Centric AdBlockers for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-elevate-your-youtube-presence-with-expert-idevice-screen-techniques-for-2024/"><u>[Updated] Elevate Your YouTube Presence with Expert iDevice Screen Techniques for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-revolutionizing-video-praise-with-innovative-approaches/"><u>2024 Approved Revolutionizing Video Praise with Innovative Approaches</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/bluetooth-beats-on-a-tiny-turntable-review-sony-lx310bt/"><u>Bluetooth Beats on a Tiny Turntable - Review: Sony LX310BT</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/choosing-between-the-classics-an-in-depth-look-at-nintendos-lite-vs-oled-variants/"><u>Choosing Between the Classics: An In-Depth Look at Nintendo's Lite Vs. OLED Variants</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-past-to-present-smith-v-jones-case-study-on-subsequent-purchasers-and-urban-planning-implications/"><u>Comparing Past to Present: Smith V. Jones Case Study on Subsequent Purchasers and Urban Planning Implications</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-samsungs-new-in-ear-earbuds-the-galaxy-budsplus/"><u>Comprehensive Evaluation of Samsung's New In-Ear Earbuds – The Galaxy Buds+</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-razer-blade-stealth-nix-redefining-ultp-innovation/"><u>Comprehensive Evaluation of the Razer Blade Stealth Nix: Redefining ULTP Innovation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-and-assessment-of-rcas-powerful-doorbell-surveillance-device/"><u>Comprehensive Guide & Assessment of RCA's Powerful Doorbell Surveillance Device</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/download-our-free-tool-for-instant-amr-to-mp3-conversion-save-time-upgrade-sound-quality/"><u>Download Our FREE Tool for Instant AMR to MP3 Conversion – Save Time, Upgrade Sound Quality!</u></a></li>
+<li><a href="https://win11.techidaily.com/enhancing-user-interaction-with-menu-bar-icons/"><u>Enhancing User Interaction with Menu Bar Icons</u></a></li>
+<li><a href="https://some-skills.techidaily.com/ultimate-visuals-top-18-camcorders-for-4k-content-for-2024/"><u>Ultimate Visuals - Top 18 Camcorders for 4K Content for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unlocking-the-power-of-music-in-engaging-video-content/"><u>Unlocking the Power of Music in Engaging Video Content</u></a></li>
+<li><a href="https://driver-error.techidaily.com/1721105019442-windows-pc-no-response-when-trying-to-mute-or-disable-bluetooth/"><u>Windows PC: No Response when Trying to Mute or Disable Bluetooth</u></a></li>
 </ul></div>
 

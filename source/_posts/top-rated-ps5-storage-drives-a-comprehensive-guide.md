@@ -1,7 +1,7 @@
 ---
 title: Top Rated PS5 Storage Drives - A Comprehensive Guide
-date: 2024-10-17T17:21:15.994Z
-updated: 2024-10-18T19:31:56.988Z
+date: 2024-10-24T01:11:28.295Z
+updated: 2024-10-30T05:01:52.046Z
 tags:
   - buying-guides
 categories:
@@ -60,6 +60,13 @@ Western Digital
 Best External PS5 SSD  
 [$315 at Amazon](https://www.amazon.com/WD%5FBlack-Drive-Portable-External-Compatible/dp/B07YFGTDV4?tag=hotoge-20&ascsubtag=UUhtgUeUpU208593&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F756323%2Fbest-ps5-ssd%2F&asc%5Fcampaign=Commerce)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  What to Look For in a PS5 SSD in 2023
 
  Not every SSD is compatible with the PS5, and any storage options you choose should have a specific list of traits to work inside the Sony console. This can be confusing if you're new to SSDs and have never had to buy one or install one yourself.
@@ -111,13 +118,6 @@ Western Digital
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Best PS5 SSD Overall
 
 #####  WD SN850
@@ -133,16 +133,10 @@ The WDSN850X PS5 SSD brings express speeds to the PS5 at an affordable price.
 ![Person holding corsair ps5 ssd](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/corsair-PS5-SSD.jpg) 
 
 <!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Corsair
@@ -164,13 +158,6 @@ Corsair
  The Corsair MP600 PRO LPX is available in [500GB](https://www.amazon.com/Corsair-MP600-NVMe-PCIe-Gen4/dp/B09Q2NL53M?tag=hotoge-20&ascsubtag=UUhtgUeUpU208593&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F756323%2Fbest-ps5-ssd%2F&asc%5Fcampaign=Commerce), [1TB](https://www.amazon.com/Corsair-MP600-NVMe-PCIe-Gen4/dp/B09Q2MW21F?tag=hotoge-20&ascsubtag=UUhtgUeUpU208593&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F756323%2Fbest-ps5-ssd%2F&asc%5Fcampaign=Commerce), [2TB](https://www.amazon.com/Corsair-MP600-NVMe-PCIe-Gen4/dp/B09Q2NCFS7?tag=hotoge-20&ascsubtag=UUhtgUeUpU208593&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F756323%2Fbest-ps5-ssd%2F&asc%5Fcampaign=Commerce), and [4TB](https://www.amazon.com/Corsair-MP600-NVMe-PCIe-Gen4/dp/B09Q2N9QGQ?tag=hotoge-20&ascsubtag=UUhtgUeUpU208593&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F756323%2Fbest-ps5-ssd%2F&asc%5Fcampaign=Commerce) models, with the 1TB model offering a great balance of specs and price.
 
 ![Corsair MP600 PRO LPX 2TB SSD Tag](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/corsair-mp600-pro-lpx-2tb-ssd-tag.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
 
@@ -204,7 +191,27 @@ Sabrent
 
 ![sabrent rocket 4 plus](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/10/sabrent-rocket-4-plus.png) 
 
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Best 4TB SSD
 
@@ -217,10 +224,10 @@ While the company may not be as popular as others on this list, the 4TB Rocket 4
 [$450 at Amazon](https://www.amazon.com/Sabrent-Internal-Extreme-Performance-SB-RKT4P-4TB/dp/B08VF99PV8?tag=hotoge-20&ascsubtag=UUhtgUeUpU208593&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F756323%2Fbest-ps5-ssd%2F&asc%5Fcampaign=Commerce) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##  Best Fast PS5 SSD: [Seagate FireCuda 530](https://www.amazon.com/Seagate-FireCuda-Internal-Solid-State/dp/B0977LW48F?tag=hotoge-20&ascsubtag=UUhtgUeUpU208593&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F756323%2Fbest-ps5-ssd%2F&asc%5Fcampaign=Commerce) 
@@ -245,6 +252,13 @@ Seagate
 
 ![seagate firecuda](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/10/seagate-firecuda.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
 
 Best Fast PS5 SSD
@@ -258,13 +272,6 @@ The Seagate FireCuda 530 is a blazing-fast SSD that will handle any PS5 game or 
 ##  Best 8TB PS5 SSD: [Addlink A95 8TB SSD](https://www.amazon.com/Addlink-Storage-Expansion-Maximum-Internal/dp/B0CJ2MN7NC?tag=hotoge-20&ascsubtag=UUhtgUeUpU208593&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F756323%2Fbest-ps5-ssd%2F&asc%5Fcampaign=Commerce) 
 
 ![Addlink A95 8TB SSD](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/10/98919ff9-0296-418c-ada7-82ae5374-1.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Addlink
 
@@ -285,10 +292,10 @@ Addlink
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Best 8TB SSD
@@ -348,22 +355,15 @@ The WD\_Black P50 Game Drive beats out the competition with incredibly fast spee
  No, you do not technically need a heat sink with your SSD. A [test run by Tom's Hardware](https://tools.techidaily.com) found that removing the SSD cover, even without a heat sink in place, was enough heat dissipation to maintain comfortable temperatures while in use. However, a heat sink will certainly aid in keeping your SSD cool, calm, and collected during long or resource-hungry gaming sessions.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How many SSD slots does the PS5 have?
 
  The PS5 offers one SSD expansion slot with support for up to 8TB of storage.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Can an external SSD play PS5 games?
 
@@ -388,16 +388,16 @@ The WD\_Black P50 Game Drive beats out the competition with incredibly fast spee
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-mastering-time-lapse-photography-on-samsung-phones/"><u>[New] 2024 Approved Mastering Time-Lapse Photography on Samsung Phones</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-elevated-engagement-awards-on-video-realms/"><u>[New] Elevated Engagement Awards on Video Realms</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-crafting-unique-ps3-gameplay-presentations-with-screen-recordings-for-2024/"><u>[Updated] Crafting Unique PS3 Gameplay Presentations with Screen Recordings for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-applecareplus-suitability-is-it-a-reliable-safety-net-for-your-tech-gear/"><u>Evaluating AppleCare+ Suitability: Is It a Reliable Safety Net for Your Tech Gear?</u></a></li>
-<li><a href="https://win-lab.techidaily.com/how-to-fix-unavailable-issues-with-emeditors-scriptgroups-in-your-editing-sessions/"><u>How to Fix 'Unavailable' Issues with EmEditor's ScriptGroups in Your Editing Sessions</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Oppo A2? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/sub-100-wireless-revolution-with-tp-link-archer-c80-a-review-for-tech-savvy-shoppers/"><u>Sub $100 Wireless Revolution with TP-Link Archer C80: A Review for Tech Savvy Shoppers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-future-of-gaming-playstation-s4-pro-and-its-revolutionary-4k-performance/"><u>The Future of Gaming: PlayStation S4 Pro and Its Revolutionary 4K Performance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-new-frontier-in-console-gaming-an-inside-look-at-the-sony-playstation-5/"><u>The New Frontier in Console Gaming - An Inside Look at the Sony PlayStation 5</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-philips-hf3520-alarm-clock-a-reliable-budget-friendly-option-assessed/"><u>The Philips HF3520 Alarm Clock - A Reliable, Budget-Friendly Option Assessed</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/videokassetten-auf-dvd-kopieren-und-ubertragen-schnell-lernen-wie-man-vhs-digitalisiert/"><u>Videokassetten Auf DVD Kopieren Und Übertragen - Schnell Lernen, Wie Man VHS Digitalisiert</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-achieving-professionalism-with-zoom-filter-applications-for-2024/"><u>[New] Achieving Professionalism with Zoom Filter Applications for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-apple-vs-android-the-face-id-and-galaxy-recognition-race/"><u>[New] Apple Vs. Android The Face ID and Galaxy Recognition Race</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-free-high-quality-desktop-video-encoding-software/"><u>[New] Free, High-Quality Desktop Video Encoding Software</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unleash-creativity-in-youtube-short-video-production/"><u>[New] Unleash Creativity in YouTube Short Video Production</u></a></li>
+<li><a href="https://discover-help.techidaily.com/1728495530725-aomei-fonebackupios/"><u>AOMEI FoneBackupでシームレスiOSデバイスバックアップ手順: 携帯情報安全化のヒント</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-ranking-top-performing-exterior-blu-ray-burners-of-2024/"><u>Comprehensive Ranking: Top-Performing Exterior Blu-Ray Burners of 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-lenovo-thinkpad-x1-titanium-yoga-why-its-a-must-have-for-traditional-thinkpad-lovers/"><u>Comprehensive Review of the Lenovo ThinkPad X1 Titanium Yoga: Why It's a Must-Have for Traditional ThinkPad Lovers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/docooler-12-megapixel-usb-cam-a-comprehensive-evaluation-and-truth-behind-performance-claims/"><u>Docooler 12 Megapixel USB Cam: A Comprehensive Evaluation & Truth Behind Performance Claims</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/edit-and-enhance-photos-effortlessly-using-apples-preview-software/"><u>Edit and Enhance Photos Effortlessly Using Apple’s Preview Software</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/get-ahead-with-chatgpt-explore-top-notch-open-source-solutions-while-you-wait/"><u>Get Ahead with ChatGPT: Explore Top-Notch Open Source Solutions While You Wait</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-vivo-t2x-5g-get-deleted-photos-back-with-ease-and-safety-by-fonelab-android-recover-photos/"><u>How to Vivo T2x 5G Get Deleted photos Back with Ease and Safety?</u></a></li>
 </ul></div>
 

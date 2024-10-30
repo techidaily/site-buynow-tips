@@ -1,7 +1,7 @@
 ---
 title: Microsoft Surface Go Review
-date: 2024-10-23T00:25:23.148Z
-updated: 2024-10-24T13:42:04.063Z
+date: 2024-10-25T20:14:19.769Z
+updated: 2024-10-30T08:56:20.144Z
 categories:
   - BestProducts
 description: This Article Describes Microsoft Surface Go Review
@@ -41,10 +41,10 @@ Lifewire / Matthew S. Smith
 4.5
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Microsoft Surface Laptop 4
@@ -81,10 +81,10 @@ Lifewire / Matthew S. Smith
  Inside, it’s a different story. The Surface Laptop 4 has new AMD and Intel processor options that promise not just a boost in performance, but also battery life. This should help the Laptop 4 compete with Dell’s XPS 13 and Lenovo’s ThinkPad X1 line—but can it catch up to Apple’s MacBook Air?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Design: If it’s not broken, don’t fix it
@@ -137,13 +137,6 @@ Lifewire / Matthew S. Smith
 
  Still, the Surface Laptop 4 can handle basic gaming needs. Titles like Minecraft and Fortnite are enjoyable at modest detail settings. Newer, demanding games like Metro Exodus are technically playable, but you’ll have to set detail to low and play at a reduced resolution. Even then, you may see hiccups and stutters while playing.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Productivity: A portable multitasking powerhouse
 
  The 3:2 display aspect ratio not only dominates the Surface Laptop 4’s design, but also its functionality in day-to-day use. It offers 12 percent more screen space than a 13.3-inch with a 16:9 aspect ratio. Most 13-inch laptops can’t comfortably fit two documents side-by-side, but this works well on the Laptop 4.
@@ -156,23 +149,9 @@ Lifewire / Matthew S. Smith
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/ZfUq7KgSBkLGGlcycJhWShrQqeg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-5-cc97b158ae2a4aad85a9527ff97d0a76.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Matthew S. Smith
 
  The Surface Laptop 4’s touchpad is large, measuring four and a half inches wide by three inches deep. It’s responsive but doesn’t pick up unintended input. Multi-touch gestures work extremely well, helping you get the most out of[Windows’ underrated multitasking touchpad shortcuts](https://www.lifewire.com/how-to-use-windows-10-touchpad-gestures-4587314) .
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Audio: Going loud
 
@@ -186,24 +165,31 @@ Lifewire / Matthew S. Smith
 
  4G LTE cellular data is not available. That’s a bit disappointing, as LTE is available in some Surface Pro devices and in competitors like the ThinkPad X1 Titanium Yoga and HP Spectre x360 13t. Optional LTE would be a match for the Surface Laptop 4’s productivity-first design.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Camera: An okay webcam with Windows Hello
 
  The Surface Laptop 4 has a 720p front-facing camera that suffers all the shortcomings you’d expect from a laptop webcam. It looks ok in a bright room, but even a moderately dim setting will lead to grainy, soft video. The camera fails at proper exposure when lighting is uneven.
 
  An IR camera is standard, so[Windows Hello](https://www.lifewire.com/what-is-windows-hello-4782168) facial recognition login is supported. This feature is easy to enable and extremely quick once set up. It works well in poor or uneven lighting.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Battery: It’s good, but don’t believe the hype
 
  Microsoft says the Surface Laptop 4 will last up to 19 hours on a charge. The laptop might be capable of hitting that number, but it’s misleading. Real-world battery life is much less than Microsoft’s ads would have you believe.
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/mOdEoB5ucAztqgsA5IjD6moCN3w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-4-2b59b6b46693409a868e88392e980df1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -216,10 +202,10 @@ Lifewire / Matthew S. Smith
  The Surface Laptop 4 ships with[Windows 10 Home](https://www.lifewire.com/windows-10-home-vs-pro-4177144) installed. There’s otherwise not much to say about the software which, for most people, will be good news. The Laptop 4’s stock Windows installation has zero bloatware.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Price: It’s not cheap, but it’s good value
@@ -238,6 +224,13 @@ Lifewire / Matthew S. Smith
 
  I think most buyers will be happy with either laptop, but the Laptop 4’s performance feels worth the extra $100\.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Microsoft Surface Laptop 4 vs. Apple MacBook Air
 
  The Microsoft Surface Laptop 4 and Apple MacBook Air are both portable laptops that start at $999\. Microsoft’s option is larger and heavier with a more useful screen, while the MacBook Air has a smaller but more attractive display.
@@ -255,6 +248,13 @@ Lifewire / Matthew S. Smith
  **One of the best Windows laptops you can get.**
 
  Microsoft’s Surface Laptop 4 is one of the best Windows laptops available today. Its design is attractive, yet functional, and it delivers great performance for the price. The Surface Laptop 4 can’t overcome Apple’s competing MacBooks, but it’s a great pick if you want to stick with Windows.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -296,22 +296,16 @@ Lifewire / Matthew S. Smith
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-mastering-the-art-of-combining-igtv-with-insta-stories/"><u>[New] 2024 Approved Mastering the Art of Combining IGTV with Insta Stories</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-prime-animation-options-for-text-graphics/"><u>[New] 2024 Approved Prime Animation Options for Text Graphics</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-streamlining-sales-with-snapchats-marketing-features/"><u>[New] Streamlining Sales with Snapchat's Marketing Features</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-exclusive-ig-edits-for-apple-and-android-users/"><u>[Updated] In 2024, Exclusive IG Edits for Apple & Android Users</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/balancing-the-benefits-and-limitations-of-pidgin-as-an-im-service/"><u>Balancing the Benefits and Limitations of Pidgin as an IM Service</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/black-hero9-gopros-pinnacle-but-pricier/"><u>Black HERO9: GoPro's Pinnacle, But Pricier?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-the-stylish-and-cleverly-engineered-samsung-galaxy-watch/"><u>Comprehensive Analysis of the Stylish & Cleverly Engineered Samsung Galaxy Watch</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/connectivity-revolutionized-a-thorough-review-of-linksyss-advanced-ea9500-wireless-router/"><u>Connectivity Revolutionized: A Thorough Review of Linksys's Advanced EA9500 Wireless Router</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-amazing-affordability-and-adaptability-the-best-asus-chromebook-flip-c302ca-reviewed/"><u>Experience Amazing Affordability & Adaptability: The Best Asus Chromebook Flip C302CA Reviewed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-amplifi-hds-mesh-technology-eradicates-dead-zones-in-your-wireless-internet-experience/"><u>How Amplifi HD's Mesh Technology Eradicates Dead Zones in Your Wireless Internet Experience</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/managing-paper-tray-sensor-problems/"><u>Managing Paper Tray Sensor Problems</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/philips-hf3520-alarm-clock-analysis-delivering-value-without-compromising-quality/"><u>Philips HF3520 Alarm Clock Analysis: Delivering Value Without Compromising Quality</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/simplify-video-annotation-adding-titles-and-captions-via-photos-win-11/"><u>Simplify Video Annotation Adding Titles & Captions via Photos Win 11</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/step-by-step-tutorial-acquiring-and-setting-up-hevc-encoder-in-windows-10-without-costs/"><u>Step-by-Step Tutorial: Acquiring and Setting Up HEVC Encoder in Windows 10 Without Costs</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/still-using-pattern-locks-with-vivo-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Vivo? Tips, Tricks and Helpful Advice</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/ultimate-tutorial-downloading-and-updating-the-epson-et/"><u>Ultimate Tutorial: Downloading and Updating the Epson ET-</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unboxing-the-lg-gram-17-how-this-lightweight-wonder-delivers-top-notch-efficiency/"><u>Unboxing the LG Gram 17: How This Lightweight Wonder Delivers Top-Notch Efficiency</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-expert-guide-to-streamlined-and-efficient-mac-screenshots-via-keyboard-shortcuts/"><u>[New] Expert Guide to Streamlined and Efficient Mac Screenshots via Keyboard Shortcuts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-monetization-strategies-for-gamers/"><u>[Updated] 2024 Approved Monetization Strategies for Gamers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-ryan-kajis-net-worth-11-year-old-boy-gets-highest-paid-from-youtube-2024/"><u>[Updated] Ryan Kaji’s Net Worth 11-Year-Old Boy Gets Highest-Paid From YouTube 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-closer-look-at-moto-gs-performance-with-stylus-functionality-powerful-operation-and-long-lasting-charge-life/"><u>A Closer Look at Moto G's Performance with Stylus Functionality: Powerful Operation & Long-Lasting Charge Life</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-and-ambiguous-a-comprehensive-analysis-of-microsofts-surface-go-tablet/"><u>Affordable and Ambiguous: A Comprehensive Analysis of Microsoft's Surface Go Tablet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-how-the-fitbit-inspire-hr-keeps-up-with-your-daily-moves-around-the-clock/"><u>Expert Review: How the Fitbit Inspire HR Keeps Up with Your Daily Moves Around the Clock</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-nokia-71-impressive-display-superior-photography-and-economical-pricing-reviewed/"><u>Exploring the Nokia 7.1: Impressive Display, Superior Photography, and Economical Pricing Reviewed</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/streamline-your-workflow-must-know-win-10-tactics-for-2024/"><u>Streamline Your Workflow Must-Know Win 10 Tactics for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-lenovo-ideapad-in-focus-how-quality-build-meets-basic-specs-at-great-value/"><u>The Lenovo Ideapad in Focus: How Quality Build Meets Basic Specs at Great Value</u></a></li>
+<li><a href="https://win-help.techidaily.com/understanding-pups-identification-and-removal-strategies-a-comprehensive-guide-by-malwarefox/"><u>Understanding PUPs: Identification & Removal Strategies - A Comprehensive Guide by MalwareFox</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Vivo T2 5G | Dr.fone</u></a></li>
 </ul></div>
 
