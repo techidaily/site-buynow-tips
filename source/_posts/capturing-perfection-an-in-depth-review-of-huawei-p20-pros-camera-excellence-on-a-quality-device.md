@@ -1,7 +1,7 @@
 ---
 title: "Capturing Perfection: An In-Depth Review of Huawei P20 Pro's Camera Excellence on a Quality Device"
-date: 2024-10-28T02:11:24.215Z
-updated: 2024-10-29T17:32:36.996Z
+date: 2024-10-31T22:04:42.406Z
+updated: 2024-11-04T23:15:25.831Z
 categories:
   - BestProducts
 description: "This Article Describes Capturing Perfection: An In-Depth Review of Huawei P20 Pro's Camera Excellence on a Quality Device"
@@ -37,6 +37,13 @@ Lifewire / Jonno Hill
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
@@ -64,13 +71,6 @@ Lifewire / Jonno Hill
 
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Basic but effective**
 
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
@@ -81,22 +81,29 @@ Lifewire / Jonno Hill
 
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Acceptable but not incredible**
 
  The Mohu Leaf 30 TV Antenna wasn’t the highest performing antenna that I tested, even among similar unpowered antennas. In my channel acquisition test, the Leaf picked up 56 channels on average across all the iterations performed.
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Range: Fairly limited**
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Excellent for the performance**
 
@@ -105,10 +112,10 @@ Lifewire / Jonno Hill
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
@@ -119,13 +126,6 @@ Lifewire / Jonno Hill
 
 **No fuss, good value.**
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -154,20 +154,20 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-secure-whole-page-scene/"><u>[New] 2024 Approved Secure Whole-Page Scene</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-the-essential-guide-to-twitter-video-posting/"><u>[Updated] In 2024, The Essential Guide to Twitter Video Posting</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-essential-guide-for-newcomers-on-av1/"><u>[Updated] The Essential Guide for Newcomers on AV1</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-unlock-artistic-methods-in-fb-video-ad-production-for-2024/"><u>[Updated] Unlock Artistic Methods in FB Video Ad Production for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-unveiling-images-removing-background-in-photopea/"><u>2024 Approved Unveiling Images Removing Background in Photopea</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/cat-s42-fortified-telephone-scrutiny-exceptional-armor-yet-restricted-rapidity-for-users/"><u>CAT S42 Fortified Telephone Scrutiny: Exceptional Armor, Yet Restricted Rapidity for Users</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comparing-voice-ai-leaders-which-provides-better-service-google-assistant-or-amazons-alexa/"><u>Comparing Voice AI Leaders: Which Provides Better Service, Google Assistant or Amazon's Alexa?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-the-onetastic-add-in-enhancing-your-microsoft-onenote-experience/"><u>Comprehensive Analysis: The Onetastic Add-In Enhancing Your Microsoft OneNote Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-the-ultimate-guide-to-google-wifi-your-perfect-wireless-mesh-network-solution/"><u>Comprehensive Analysis: The Ultimate Guide to Google WiFi - Your Perfect Wireless Mesh Network Solution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-assessment-of-the-newest-apple-watch-series-nine-edition/"><u>Comprehensive Assessment of the Newest Apple Watch - Series Nine Edition</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-dell-xps-13-2-in-1-notebook-evaluation-exceptional-productivity-and-power/"><u>Comprehensive Dell XPS 13 (2-in-1) Notebook Evaluation: Exceptional Productivity & Power</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-uniden-r3-radar-detector-assessment-superior-construction-and-extended-detection/"><u>Comprehensive Uniden R3 Radar Detector Assessment - Superior Construction & Extended Detection</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/crafting-quality-content-setting-up-your-mac-for-minecraft-sessions-for-2024/"><u>Crafting Quality Content Setting Up Your Mac for Minecraft Sessions for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-6-proven-ways-to-unlock-realme-narzo-60-5g-phone-when-you-forget-the-password-by-drfone-android/"><u>In 2024, 6 Proven Ways to Unlock Realme Narzo 60 5G Phone When You Forget the Password</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-itel-p55t-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Itel P55T | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-evaluating-sns-hdr-pros-value-and-comparisons/"><u>[New] Evaluating SNS HDR Pro's Value & Comparisons</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-expert-tips-for-eradicating-extra-green-on-youtube-videos-mac/"><u>[Updated] In 2024, Expert Tips for Eradicating Extra Green on YouTube Videos (Mac)</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-steam-playback-perfection-in-video-games-for-2024/"><u>[Updated] Steam Playback Perfection in Video Games for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-step-by-step-on-finding-and-crafting-spiritual-ringtones/"><u>2024 Approved Step-by-Step on Finding and Crafting Spiritual Ringtones</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-effective-youtube-thumbnails-and-banners/"><u>Crafting Effective YouTube Thumbnails & Banners</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-madden-nfl-19-top-notch-elements-facing-old-school-gameplay/"><u>Evaluating Madden NFL 19: Top Notch Elements Facing Old School Gameplay</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-barnes-and-noble-nook-glowlight-3-superb-low-light-digital-reader/"><u>Evaluating the Barnes & Noble Nook GlowLight 3 – Superb Low-Light Digital Reader</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exclusive-speedy-flash-savings-mastering-light-with-the-yn560iv/"><u>Exclusive Speedy Flash Savings - Mastering Light with the YN560IV</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-reviews-the-premier-wrist-rest-accessories-for-computer-enthusiasts-2024-edition/"><u>Expert Reviews: The Premier Wrist Rest Accessories for Computer Enthusiasts - 2024 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/google-pixel-3-review/"><u>Google Pixel 3 Review</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-enhancing-social-media-impact-with-high-quality-360-facebook-content/"><u>In 2024, Enhancing Social Media Impact with High-Quality 360 Facebook Content</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-tiktoks-biggest-winners-on-the-twittersphere/"><u>In 2024, TikTok's Biggest Winners on the Twittersphere</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-imac-with-apples-m1-chip-graphics-update-and-improved-performance/"><u>In-Depth Analysis of iMac with Apple's M1 Chip: Graphics Update & Improved Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-microsofts-premium-ergonomic-keyboard-top-quality-insights/"><u>In-Depth Analysis of Microsoft's Premium Ergonomic Keyboard – Top Quality Insights</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/master-the-art-of-persistent-flipbook-index-display-for-seamless-user-experience-flipbuildercom/"><u>Master the Art of Persistent FlipBook Index Display for Seamless User Experience [FlipBuilder.com]</u></a></li>
 </ul></div>
 

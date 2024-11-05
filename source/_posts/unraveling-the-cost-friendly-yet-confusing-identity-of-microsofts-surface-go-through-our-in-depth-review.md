@@ -1,7 +1,7 @@
 ---
 title: Unraveling the Cost-Friendly Yet Confusing Identity of Microsoft's Surface Go Through Our In-Depth Review
-date: 2024-10-28T17:59:42.432Z
-updated: 2024-10-29T22:00:47.571Z
+date: 2024-11-01T21:57:15.849Z
+updated: 2024-11-04T16:35:31.936Z
 categories:
   - BestProducts
 description: This Article Describes Unraveling the Cost-Friendly Yet Confusing Identity of Microsoft's Surface Go Through Our In-Depth Review
@@ -42,6 +42,13 @@ Lifewire / Andy Zahn
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Microsoft Surface Laptop Go
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/fvtiWpBnRJ1dR-89xJ_kOkkEUSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_Hero5x4-c5d70a06640a47aca3f64903cf5af851.jpg)
@@ -78,10 +85,10 @@ Lifewire / Andy Zahn
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/DZ-_Yk02QL0fYrm0o3TDO7zXv3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_05-e2623904845848a3841272c93ab139f1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
@@ -99,19 +106,19 @@ Lifewire / Andy Zahn
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/kz6EW4svzivooWEtdVJ5TAnOYOs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_06-07315e6a9862481bba3820f745d49887.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Speakers: Loud and proud**
@@ -125,13 +132,6 @@ Lifewire / Andy Zahn
  Cameras on laptops are never very good, but the one on the Surface Laptop Go is particularly poor. It’s only capable of 720p, but it’s not the low resolution itself that really lets it down. Even in decent lighting conditions the video and still images produced by this camera are extremely grainy and low quality so it’s not a great option even for[Zoom](https://www.lifewire.com/what-is-zoom-and-how-does-it-work-4800476) meetings.
 
  The Surface Laptop Go is certainly not the most powerful laptop around, but with 8GB of RAM, an Intel Core i5-1035G1 CPU, and a fast solid-state drive for storage it feels zippy and responsive.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Decent power for the price**
 
@@ -148,6 +148,13 @@ Lifewire / Andy Zahn
 ## **Connectivity: Modern hardware**
 
  With[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) and[Bluetooth 5.0](https://www.lifewire.com/bluetooth-5-4160255) , the Surface Laptop Go is equipped with a competent range of communications capabilities. I had no issues utilizing the full power of my home Wi-Fi network or connecting Bluetooth devices.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery Life: Long-lasting**
 
@@ -166,10 +173,10 @@ Lifewire / Andy Zahn
  In terms of bloatware, the laptop came with a few pre-installed apps: a Microsoft Office trial, Adobe Photoshop Express, and a few other odds and ends. However, it’s all easily removed if you so choose, and doesn’t really get in the way.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Reasonable Value**
@@ -178,21 +185,7 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/_QEntMJEPlaXArgv2l576Qnr7MU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_04-21f4f7c4d0f54436bb1449bf36a42460.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Microsoft Surface Laptop Go vs. HP Pavilion 14 HD**
 
@@ -212,6 +205,13 @@ Lifewire / Andy Zahn
 
 * [Microsoft Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584)
 * [Google Pixelbook Go](https://www.lifewire.com/google-pixelbook-go-review-4797012)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -243,18 +243,17 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-ultimate-checklist-for-instagram-popularity-surge-for-2024/"><u>[New] The Ultimate Checklist for Instagram Popularity Surge for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-top-10-cost-free-screen-capture-apps-for-mac-users/"><u>[New] Top 10 Cost-Free Screen Capture Apps for Mac Users</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-legends-of-arcade-combat-nintendos-top-ten-on-switch/"><u>[Updated] 2024 Approved Legends of Arcade Combat Nintendo's Top Ten on Switch</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-echo-chamber-new-tech-insights/"><u>[Updated] Echo Chamber New Tech Insights</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-elevate-video-conferencing-skills-google-meet-aesthetics-guide/"><u>[Updated] In 2024, Elevate Video Conferencing Skills Google Meet Aesthetics Guide</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-simplified-steps-for-backdrop-elimination-in-photoshop-like-affinity-photo/"><u>[Updated] Simplified Steps for Backdrop Elimination in Photoshop-Like Affinity Photo</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/7-types-of-color-grading-for-you-to-try/"><u>7 Types of Color Grading for You to Try</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/getting-started-with-drones-a-comprehensive-look-at-the-syma-x5c-quadcopter/"><u>Getting Started with Drones: A Comprehensive Look at the SYMA X5C Quadcopter</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/glow-up-your-studio-with-aggressive-limokit/"><u>Glow Up Your Studio with Aggressive LimoKit</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/high-definition-superzoom-photos-canon-sx70-to-the-rescue/"><u>High-Definition Superzoom Photos? Canon SX70 to the Rescue</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-vivo-s18-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Vivo S18? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/insider-look-at-overwatch-unmatched-competitive-shooter-gaming-thrills/"><u>Insider Look at Overwatch: Unmatched Competitive Shooter Gaming Thrills</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/logitech-g533-vocalization-headset-or-audio-revolution/"><u>Logitech G533 Vocalization - Headset or Audio Revolution?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-decrypting-youtubes-view-count-calculation-system/"><u>[New] Decrypting YouTube’s View-Count Calculation System</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-the-newest-vr-cam-face-off-hero5-and-yis-latest-battle/"><u>[Updated] In 2024, The Newest VR Cam Face-Off Hero5 and Yi's Latest Battle</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-focus-on-the-frame-master-logitech-cam-edits/"><u>2024 Approved Focus on the Frame Master Logitech Cam Edits</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/addendum-if-necessary/"><u>Addendum (if Necessary):</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/exceptional-uav-selection-for-optimal-gopro-footage-for-2024/"><u>Exceptional UAV Selection for Optimal GoPro Footage for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-forgotten-pin-of-your-honor-magic5-ultimate-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Honor Magic5 Ultimate</u></a></li>
+<li><a href="https://discover-best.techidaily.com/leveraging-outsourced-software-systems-a-deep-dive-into-the-world-of-third-party-technologies/"><u>Leveraging Outsourced Software Systems: A Deep Dive Into the World of Third-Party Technologies</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-complete-guide-to-garmin-venu-smartwatch-tracking-health-and-exercise-round-the-clock/"><u>The Complete Guide to Garmin Venu Smartwatch: Tracking Health and Exercise Round the Clock</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-cyberpower-cp685avrg-in-review-an-overview-of-its-successful-role-as-a-simple-and-effective-ups-system/"><u>The Cyberpower CP685AVRG in Review - An Overview of Its Successful Role as a Simple and Effective UPS System</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-powershot-sx620-hs-efficient-and-effective-photography/"><u>The PowerShot SX620 HS: Efficient and Effective Photography</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-document-and-photo-scanners-in-2n24-your-ultimate-guide/"><u>Top-Rated Document & Photo Scanners in 2N24 - Your Ultimate Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleashing-potential-with-the-corsair-one-pro-a-gaming-machine-reviewed/"><u>Unleashing Potential with the Corsair One Pro - A Gaming Machine Reviewed</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The 2019 Apple iPad Air: An Authoritative Review for Multimedia Enthusiasts"
-date: 2024-10-25T16:35:01.884Z
-updated: 2024-10-29T16:01:14.149Z
+date: 2024-10-28T21:19:37.481Z
+updated: 2024-11-04T21:32:50.400Z
 categories:
   - BestProducts
 description: "This Article Describes The 2019 Apple iPad Air: An Authoritative Review for Multimedia Enthusiasts"
@@ -42,16 +42,16 @@ Lifewire / Emily Isaacs
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Kinesis Freestyle2 Blue
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/wuNd6MsZiivoQ99Xm0JHB9iB4Rs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_HeroSquare-99f80025b0254cbebe67ed22575a90c5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -82,13 +82,6 @@ Lifewire / Emily Isaacs
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/C-YK_WPWu8Ujx1fwDLxvO6Epi-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_05-adcddc5fc05b415dbcd82396bc0ada77.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  The Kinesis Freestyle2 Blue for Mac breaks free of these norms by using a split, modular design that features two keyboard halves, one for each hand, connected via a 9 or 20-inch cable depending upon the chosen model. These pieces were designed with comfort in mind. They may be used separately or connected with a pivot tether at the top of the two halves. This allows you the opportunity to customize your setup and maximize your comfort, whether that’s by placing the halves closer together or further apart.
@@ -109,13 +102,6 @@ Lifewire / Emily Isaacs
 
  From here, we followed the instructions in the provided instructional pamphlet and enabled Bluetooth on our iPad. After about a minute of scanning, the Kinesis KB800MB-BT keyboard appeared as an available device. We simply tapped to connect. From here, it prompted us to input a numeric code and press return. Once we’d done this, setup was complete.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Features: Efficient hotkeys once you get used to them**
 
  Better than its modular design are the easy-to-use hotkeys on the left-hand side of the keyboard. These make it simple to copy, paste, cut, go back or forward in a browser, or even switch between the keyboard’s connected devices smoothly and efficiently. They take a little getting used to but once you get the hang of it using them is a breeze.
@@ -128,20 +114,27 @@ Lifewire / Emily Isaacs
 
  The battery life on the Freestyle2 is excellent. It arrives with a partial charge, so it’s important to remember to fully charge it after receiving it. Once charged, the battery life can last up to 300 plus hours of regular use. The Freestyle2 does an excellent job of letting you know when its battery is getting low—battery lights will flash red to indicate when there are about four hours of battery life remaining. This ensures you’re never left hanging.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Excellent for the features**
 
  Full-size ergonomic keyboards tend to retail anywhere from $50 to $200, depending on the features involved. Generally retailing for about $100 on Amazon, the Freestyle2 sits comfortably at the front of this curve. While $100 may seem expensive for a keyboard, consider the features involved. Its travel-friendly build, adjustable setup options, extended battery life, and ability to switch quickly and smoothly between multiple connected devices make it an excellent choice for the features.
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/vncgu0FEgBJ69UL6H8BjQ2QoGRI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_03-9055476d1d974c8bbe9b1c39d479b300.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Kinesis Freestyle2 Blue vs. Microsoft Sculpt Ergonomic Keyboard**
 
@@ -160,6 +153,13 @@ Lifewire / Emily Isaacs
  **An ideal keyboard for Apple users with its compact design, portability, and long-lasting battery.**
 
  The Kinesis Freestyle2 Blue for Mac is a compact, user-friendly ergonomic keyboard that takes comfort and customization to the next level for Apple users thanks to its split, modular design. Its extended battery life of up to 300 plus hours combined with its ability to connect to multiple iOS devices at a time is a game-changer, making it well worth the splurge.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -192,17 +192,17 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-climbing-the-popularity-ladder-with-staff-chosen-videos-at-vimeo/"><u>[New] In 2024, Climbing the Popularity Ladder with Staff-Chosen Videos at Vimeo</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/best-practices-for-sharing-generosity-through-steams-digital-cards/"><u>Best Practices for Sharing Generosity Through Steam's Digital Cards</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-vivo-v30-lite-5g-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Vivo V30 Lite 5G FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-access-your-iphone-14-when-you-forget-the-passcode-by-drfone-ios/"><u>In 2024, How to Access Your iPhone 14 When You Forget the Passcode?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Realme Narzo N55? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/moto-g-stylus-unveiled-excellent-execution-capabilities-enduring-power-reserve-and-a-functional-stylus-accessory/"><u>Moto G Stylus Unveiled - Excellent Execution Capabilities, Enduring Power Reserve and a Functional Stylus Accessory</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-the-ultimate-deal-for-students-final-cut-pro-at-a-discounted-rate/"><u>New The Ultimate Deal for Students Final Cut Pro at a Discounted Rate</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-of-audews-portable-air-compressor-unmatched-portability-and-dependability/"><u>Review of Audew's Portable Air Compressor: Unmatched Portability & Dependability</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/tango-review-ultimate-guide-to-its-voice-and-video-chat-capabilities/"><u>Tango Review: Ultimate Guide to Its Voice & Video Chat Capabilities</u></a></li>
-<li><a href="https://extra-information.techidaily.com/tech-picks-leading-drone-gimbals/"><u>Tech Picks Leading Drone Gimbals</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-definitive-examination-samsung-galaxy-note20-ultra-5g-features-and-performance/"><u>The Definitive Examination: Samsung Galaxy Note20 Ultra 5G Features and Performance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-latest-on-microsoft-surface-pro-7-reliable-improvement-subtle-differences-highlighted/"><u>The Latest on Microsoft Surface Pro 7: Reliable Improvement, Subtle Differences Highlighted</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-affordable-art-of-youtube-introsends/"><u>[Updated] 2024 Approved The Affordable Art of YouTube Intros/Ends</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-insiders-guide-to-streaming-events-seamlessly-with-zoom-and-youtube/"><u>[Updated] The Insider's Guide to Streaming Events Seamlessly with Zoom and YouTube</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-umbrella-studiokit-xlz103-review/"><u>Affordable Umbrella StudioKit XLZ103 Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ankers-premium-tactical-beam-review-the-definitive-durable-and-powerful-led-torch-for-explorers/"><u>Anker's Premium Tactical Beam Review: The Definitive Durable and Powerful LED Torch for Explorers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/beyond-the-norm-logitech-g533-reverberates-in-wireless-tech/"><u>Beyond the Norm: Logitech G533 Reverberates in Wireless Tech</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/breaking-down-the-features-of-the-top-tier-new-phone-an-apple-iphone-12-review/"><u>Breaking Down the Features of the Top-Tier New Phone: An Apple iPhone 12 Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-apeman-c450-dash-cam-comprehensive-review-and-ratings/"><u>Budget-Friendly Apeman C450 Dash Cam - Comprehensive Review and Ratings</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-how-apples-revolutionary-self-service-repair-includes-remote-tools-for-iphone-15-m2-mac-upgrades-insights-from-zdnet/"><u>Discover How Apple's Revolutionary Self Service Repair Includes Remote Tools for iPhone 15, M2 Mac Upgrades - Insights From ZDNET</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/download-without-cost-flv-video-players-supporting-windows-11-8-and-section-1-problem-the-theme-question-us-context/"><u>Download Without Cost: FLV Video Players Supporting Windows 11, 8 and # Section 1: Problem - The Theme Question (US Context)</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-zte-nubia-z60-ultra-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from ZTE Nubia Z60 Ultra Phones with/without a PC</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-solitary-voice-collective-applause-a-podcast-journey/"><u>In 2024, Solitary Voice, Collective Applause A Podcast Journey</u></a></li>
 </ul></div>
 

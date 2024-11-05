@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Features of the New Kobo Clara Colour
-date: 2024-10-26T01:27:23.004Z
-updated: 2024-10-30T07:23:35.332Z
+date: 2024-11-03T20:16:55.562Z
+updated: 2024-11-04T23:18:15.929Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Features of the New Kobo Clara Colour
@@ -39,16 +39,16 @@ Lifewire / Emily Ramirez
 
 2.8
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -76,16 +76,16 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Hardware: Some odd decisions**
 
@@ -94,10 +94,10 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
@@ -113,20 +113,13 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
 
@@ -175,6 +168,13 @@ Lifewire / Emily Ramirez
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Sound Blaster ZxR
@@ -213,24 +213,19 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/he-ultimate-guide-to-the-best-video-editors-not-on-youtoo-for-2024/"><u>[New] The Ultimate Guide to the Best Video Editors Not on YouToo for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-accelerated-download-solutions-for-vimeo-files/"><u>[Updated] Accelerated Download Solutions for Vimeo Files</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-exploring-virtual-landscapes-with-android-vr360-for-2024/"><u>[Updated] Exploring Virtual Landscapes with Android (VR/360) for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apcs-premium-1500va-back-ups-reviewed-powerful-protection-ample-access-points-and-hot-swappable-cells/"><u>APC's Premium 1500VA Back-UPS Reviewed - Powerful Protection, Ample Access Points & Hot Swappable Cells</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/1722878944589-best-budget-petcam-in-high-definition/"><u>Best Budget Petcam in High Definition</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/critical-insights-godfalls-inability-to-captivate-players-as-ps5s-exclusive-game/"><u>Critical Insights: Godfall's Inability to Captivate Players as PS5's Exclusive Game</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/getting-back-online-actions-for-print-errors/"><u>Getting Back Online: Actions for Print Errors</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Poco F5 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-beginners-guide-to-all-things-vector-images-overview-types-and-software-choices/"><u>In 2024, Beginner’s Guide to All Things Vector Images- Overview, Types, and Software Choices</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-transformative-srt-to-txt-guide-for-time-saving/"><u>In 2024, Transformative SRT to TXT Guide for Time-Saving</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-the-premium-samsung-galaxy-tab-s7plus-for-android-enthusiasts/"><u>In-Depth Review of the Premium Samsung Galaxy Tab S^7+ for Android Enthusiasts</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/masterful-use-of-luts-in-obs-studio-for-professional-results-for-2024/"><u>Masterful Use of LUTs in OBS Studio for Professional Results for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/navigating-through-bendy-brilliance-and-shortcomings-an-in-depth-look-at-the-lenovo-thinkpad-x1-fold/"><u>Navigating Through Bendy Brilliance and Shortcomings: An In-Depth Look at the Lenovo ThinkPad X1 Fold</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-advantages-unlocked-by-bigger-screens-a-review-of-the-apple-iphone-12-pro-max/"><u>The Advantages Unlocked by Bigger Screens - A Review of the Apple iPhone 12 Pro Max</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-complete-guide-to-the-gaomon-pd1560-drawing-pad-and-its-stylus-features-reviewed/"><u>The Complete Guide to the Gaomon PD1560 Drawing Pad and Its Stylus Features Reviewed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-economic-side-of-nikons-speedlight-flash-gear/"><u>The Economic Side of Nikon's Speedlight Flash Gear</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/the-essential-blueprint-for-converting-slides-into-videos/"><u>The Essential Blueprint for Converting Slides Into Videos</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-vivo-y100a-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Vivo Y100A for Streaming | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-7-budget-friendly-mobile-phone-contracts/"><u>Top 7 Budget-Friendly Mobile Phone Contracts</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unlocking-seo-potential-top-strategies-to-dominate-online-search-results-as-a-novice/"><u>[New] Unlocking SEO Potential Top Strategies to Dominate Online Search Results as a Novice</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-frame-rate-conversion-20mb-video-specs/"><u>2024 Approved Frame Rate Conversion 20MB Video Specs</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-unlocking-visual-storytelling-the-20-key-strategies-for-powerful-fb-video-marketing/"><u>2024 Approved Unlocking Visual Storytelling The 20 Key Strategies for Powerful FB Video Marketing</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1726226342238-m1vmp4-movavi/"><u>無料で簡単! M1VからMP4へのスムーズなオンライン変換 - Movavi</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/academic-integrity-and-ai-how-to-cite-chatgpt-correctly/"><u>Academic Integrity and AI: How to Cite ChatGPT Correctly</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-securely-download-and-install-updates-for-nvidias-geforce-940mx-graphics-card-driver/"><u>How to Securely Download & Install Updates for Nvidia's GeForce 940MX Graphics Card Driver</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-the-most-effective-9-microphone-capture-tools-online-2e/"><u>In 2024, The Most Effective 9 Microphone Capture Tools Online (2E)</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-battery-selection-guide-for-uavs/"><u>In 2024, The Ultimate Battery Selection Guide for UAVs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/inside-look-at-the-lenovo-thinkpad-x1-titanium-yoga-a-revolutionary-blend-for-classic-thinkpad-admirers/"><u>Inside Look at the Lenovo ThinkPad X1 Titanium Yoga - A Revolutionary Blend for Classic ThinkPad Admirers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-your-ipad-already-considered-old-school-technology/"><u>Is Your iPad Already Considered Old-School Technology?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/microsoft-sculpt-ergonomic-keyboard-review-a-great-value/"><u>Microsoft Sculpt Ergonomic Keyboard Review: A Great Value</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/moto-g-power-review-solid-performance-and-outstanding-battery-life/"><u>Moto G Power Review: Solid Performance and Outstanding Battery Life</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-the-features-of-radpowers-radcity-5-plus-durable-potent-yet-bulky/"><u>Navigating the Features of RadPower's RadCity 5 Plus: Durable, Potent, Yet Bulky</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/ussd-explained-all-you-need-to-know-about-unstructured-supplementary-service-data-technology/"><u>USSD Explained: All You Need to Know About Unstructured Supplementary Service Data Technology</u></a></li>
 </ul></div>
 

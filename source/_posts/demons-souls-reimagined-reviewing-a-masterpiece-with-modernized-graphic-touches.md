@@ -1,7 +1,7 @@
 ---
 title: Demon's Souls Reimagined - Reviewing a Masterpiece with Modernized Graphic Touches
-date: 2024-10-29T09:05:29.591Z
-updated: 2024-10-29T23:54:58.971Z
+date: 2024-11-02T18:58:58.800Z
+updated: 2024-11-04T20:29:25.235Z
 categories:
   - BestProducts
 description: This Article Describes Demon's Souls Reimagined - Reviewing a Masterpiece with Modernized Graphic Touches
@@ -40,9 +40,23 @@ Lifewire / Emily Isaacs
 
 4.9
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## LG OLED C9 65" 4K Smart TV
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/-RQ5Ui3BjE0KxHGHYE-UjNz7EY4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_HeroSquare-b4b1522941d44a18b75a586155788477.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -71,16 +85,10 @@ Lifewire / Emily Isaacs
  Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Smart and sleek**
@@ -96,20 +104,13 @@ Lifewire / Emily Isaacs
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/mxKfDJGuIKYcsSIQoKfzwDbYYmg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_02-3da87ff8439343f691cf02e9234d1f04.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Do it yourself worthy, but you’ll need a hand**
 
@@ -135,25 +136,11 @@ Lifewire / Emily Isaacs
 
  These pictures are further enhanced with LG’s α9 Gen 2 intelligent processor, new to 2019’s model. It excels at drawing out detail and correcting quality discrepancies within the picture, such as banding which creates textures and strips in areas of the screen that would otherwise be smooth. This is particularly important given the large screen size and high resolution. While it’s not as bright as an LED TV since it lacks backlighting, it doesn’t need it as the TV already possesses excellent color, a change here would risk washing out the inky blacks on the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Audio: Better than expected**
 
  While OLED TVs aren’t generally known for their great sound quality, the LG C9 has a surprisingly good sound system all things considered—but a soundbar would still be recommended. Audio in TV or movies is generally good, but it struggles to regulate loud and soft noises in a scene. Streaming Lizzo’s_Cuz I Love You_ on Spotify produces a surprising depth of sound, but it’s simply not comparable to a more robust system that a soundbar or home theater system would provide.
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/SZUaFESJi6OZubIeLdK1e9L9FEM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_04-c559e4cc6de64f0c8baf4470f883dd9e-4844a7694fb74eb2904f1128ba93f760.jpeg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -190,6 +177,19 @@ Lifewire / Emily Isaacs
  **An excellent TV you shouldn’t hesitate to buy if you value ease of use and superb image quality.**
 
  With its excellent smart features, gorgeous 4K image quality, and an easy-to-use interface, LG has only improved on last year’s model with the LG OLED C9\. That said, these improvements aren’t significant leaps, mainly coming from processor improvements and the addition of HDMI 2.1 ports. If you’re simply looking for the best TV from last year and price isn’t a consideration, look no further. On the other hand, there are other great 65-inch 4K TV models that may not have all the extra features the C9 does, but do have comparable quality without breaking the bank.
+
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -232,21 +232,18 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-harness-youtubes-power-with-these-top-7-affordable-easy-to-use-tag-extractor-tools/"><u>[New] 2024 Approved Harness YouTube's Power with These Top 7 Affordable, Easy-to-Use Tag Extractor Tools</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-the-ultimate-checklist-of-essential-equipment/"><u>[New] 2024 Approved The Ultimate Checklist of Essential Equipment</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unique-vlogging-conversation-pieces/"><u>[New] 2024 Approved Unique Vlogging Conversation Pieces</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-unlocking-the-full-potential-of-your-instagram-story-with-multiple-images/"><u>[Updated] In 2024, Unlocking the Full Potential of Your Instagram Story with Multiple Images</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/budget-conscious-caixun-75-inch-android-tv-4k-reveal-a-comprehensive-guide/"><u>Budget-Conscious Caixun 75 Inch Android TV 4K Reveal: A Comprehensive Guide</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-vivo-y200-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Vivo Y200</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/culinary-havoc-unleashed-an-insightful-critique-of-overcooked-2/"><u>Culinary Havoc Unleashed: An Insightful Critique of Overcooked! 2</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-podcastpioneer-diving-beyond-dacast/"><u>In 2024, PodcastPioneer Diving Beyond DaCast</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-escort-max-360-assessment-discover-how-its-integrated-gps-sets-it-apart/"><u>In-Depth Escort Max 360 Assessment: Discover How Its Integrated GPS Sets It Apart</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revolutionary-gadgets-and-apps-for-optimal-slumber-success/"><u>Revolutionary Gadgets and Apps for Optimal Slumber Success</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-aesthetic-price-of-performance-an-insightful-review-into-the-netgear-powerline-1200/"><u>The Aesthetic Price of Performance: An Insightful Review Into the Netgear Powerline 1200</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-art-of-connection-embracing-diverse-linguistic-backgrounds/"><u>The Art of Connection: Embracing Diverse Linguistic Backgrounds</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-arlo-video-doorbell-enhanced-safety-and-convenience-at-your-doorstep/"><u>The Ultimate Guide to the Arlo Video Doorbell: Enhanced Safety and Convenience at Your Doorstep</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-using-heimvisions-a80s-alarm-clock-with-light-therapy-for-a-better-morning-routine/"><u>The Ultimate Guide to Using HeimVision's A80S Alarm Clock with Light Therapy for a Better Morning Routine</u></a></li>
-<li><a href="https://os-tips.techidaily.com/unveiling-hidden-functions-10-amazing-tricks-within-apple-imessage-app/"><u>Unveiling Hidden Functions: 10 Amazing Tricks Within Apple iMessage App</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-oneplus-open-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-top-picks-7-best-live-streaming-apps-to-upgrade-your-youtube-presence-iosandroid/"><u>[New] 2024 Approved Top Picks 7 Best Live Streaming Apps to Upgrade Your YouTube Presence (iOS/Android)</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-reel-revolution-top-tech-for-brightening-videos/"><u>[Updated] In 2024, Reel Revolution Top Tech for Brightening Videos</u></a></li>
+<li><a href="https://win-able.techidaily.com/eight-proven-fixes-for-unresponsive-firefox-get-back-to-browsing-today/"><u>Eight Proven Fixes for Unresponsive Firefox - Get Back to Browsing Today</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-iphone-13-data-from-ios-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How to Recover iPhone 13 Data From iOS iCloud? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-comprehensive-guide-to-free-os-compatible-players/"><u>In 2024, Comprehensive Guide to Free OS Compatible Players</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/resolving-standard-setup-snags-in-auto-gpt-deployment-your-ultimate-troubleshooting-list/"><u>Resolving Standard Setup Snags in Auto-GPT Deployment: Your Ultimate Troubleshooting List</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/tailoring-text-features-in-ae-compositions/"><u>Tailoring Text Features in AE Compositions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-definitive-verdict-on-samsungs-latest-smart-tv-a-look-at-the-qn5e5q6f-model/"><u>The Definitive Verdict on Samsung's Latest Smart TV: A Look at the QN5e5Q6F Model</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-leading-edge-of-tablets-discover-how-the-2018-apple-ipad-pro-11-inch-outshines-competitors/"><u>The Leading Edge of Tablets: Discover How the 2018 Apple iPad Pro (11-Inch) Outshines Competitors</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-oneplus-9-pro-unveiled-superior-sleekness-combined-with-swift-performance-and-top-tier-camera-features/"><u>The OnePlus 9 Pro Unveiled: Superior Sleekness Combined with Swift Performance and Top-Tier Camera Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-economical-headphone-experience-paww-triad/"><u>The Ultimate Guide to Economical Headphone Experience - Paww Triad</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-maximizing-internet-speed-with-the-netgear-nighthawk-x10-ad7200-a-detailed-assessment/"><u>The Ultimate Guide to Maximizing Internet Speed with the Netgear Nighthawk X10 AD7200: A Detailed Assessment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-on-the-go-clicker-experience-unmatched-precision-and-connectivity-with-the-sabrent-mini-mouse/"><u>The Ultimate On-the-Go Clicker: Experience Unmatched Precision and Connectivity with the Sabrent Mini Mouse</u></a></li>
 </ul></div>
 

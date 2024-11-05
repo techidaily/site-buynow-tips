@@ -1,7 +1,7 @@
 ---
 title: "Holy Stone HS170 Predator Mini RC Helicopter Drone Review: A Drone on a Budget"
-date: 2024-10-27T03:27:00.313Z
-updated: 2024-10-30T10:18:20.109Z
+date: 2024-11-01T20:47:31.793Z
+updated: 2024-11-04T17:38:34.982Z
 categories:
   - BestProducts
 description: "This Article Describes Holy Stone HS170 Predator Mini RC Helicopter Drone Review: A Drone on a Budget"
@@ -41,6 +41,13 @@ Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/Ga2OrNlpcgoBAByp_iB08VrN5h0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-4_1-3b77a598c3cd4836b8b632578b3b437e.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Bill Thomas
 
 [View On Amazon](https://www.amazon.com/NETGEAR-Wi-Fi-DOCSIS-Router-C3000/dp/B00IF0JAIU/?tag=lifewire-onsite-prod-20&ascsubtag=4686086%7Cn2f00e06f401442688fa093d4158749eb13%7CB00IF0JAIU) [View On Walmart](https://www.walmart.com/ip/NETGEAR-N300-8x4-WiFi-Cable-Modem-Router-Combo-C3000-DOCSIS-3-0-Certified-for-Xfinity-by-Comcast-Spectrum-COX-more-C3000/36009476)
@@ -79,23 +86,9 @@ Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/_9ERrc4mSXFjpZAVMAwwqbfpLwM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_3-2f5e1e38512d41019430d063e63b7f9b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/8U-jHJ6otxXt5vRq8FVLubPNOpI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_2-a6aa93cceeaf4d9ca6bb0d989200b2ea.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
@@ -104,10 +97,10 @@ Lifewire / Bill Thomas
  Lifewire / Bill Thomas
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Setup Process: Exceptionally easy
@@ -125,10 +118,10 @@ Lifewire / Bill Thomas
  Lifewire / Bill Thomas
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Network Performance: Keep your expectations low
@@ -140,10 +133,10 @@ Lifewire / Bill Thomas
  There is a silver lining: the wired performance is reliable. When connected this way, we consistently got our rated 250 Mbps speeds with little to no drops. We spent some time playing The Division 2 while hardwired into the Netgear C3000 and didn’t run into any lag. That’s surprising given that a 8x4 DOCSIS 3.0 modem is capable of just 343 Mbps download speeds. But Netgear delivered where it truly counts: modem performance.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Software: Pretty standard and easy to use
@@ -153,6 +146,19 @@ Lifewire / Bill Thomas
  There’s also an advanced tab that power users can use, though we don’t think many people will ever need to dig through those settings.
 
  There’s also a Netgear Genie mobile app on both Google Play and the App Store. The app gives you the same controls as the management portal, but with a much more user-friendly interface. This is what we’d recommend most people use to[manage their network](https://www.lifewire.com/how-to-set-up-your-home-wi-fi-network-2378223) .
+
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Price: Expensive for what it is
 
@@ -179,10 +185,10 @@ Lifewire / Bill Thomas
 * [Motorola MG7700](https://www.lifewire.com/motorola-mg7700-review-4589346)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -218,24 +224,18 @@ Lifewire / Bill Thomas
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-how-to-make-your-mark-active-living-on-facebook-for-2024/"><u>[New] How to Make Your Mark Active Living on Facebook for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-effortlessly-manage-followers-with-top-twitter-cleanup-apps/"><u>[Updated] In 2024, Effortlessly Manage Followers with Top Twitter Cleanup Apps</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-personalize-your-online-story-mastery-in-fb-memories/"><u>[Updated] In 2024, Personalize Your Online Story Mastery in FB Memories</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-tweeted-to-fame-identifying-2023s-most-shared-content/"><u>[Updated] In 2024, Tweeted to Fame Identifying 2023'S Most Shared Content</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-the-best-water-and-liquid-worlds-you-can-play-for-2024/"><u>[Updated] The Best Water & Liquid Worlds You Can Play for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Realme 12 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-a-scholarly-treatise-on-directed-user-engagement/"><u>2024 Approved A Scholarly Treatise on Directed User Engagement</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>How To Simulate GPS Movement With Location Spoofer On Apple iPhone 6s Plus? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 6 With an Apple Watch & What to Do if It Doesnt Work | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revolutionizing-home-theater-sound-explore-the-flexus-200-by-klipsch/"><u>Revolutionizing Home Theater Sound - Explore the Flexus 200 by Klipsch</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revolutionizing-workflow-with-ipad-102/"><u>Revolutionizing Workflow with iPad 10.2</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/samsung-s10plus-vs-s20-face-off-detailed-analysis-for-buyers/"><u>Samsung S10+ vs S20 Face-Off: Detailed Analysis for Buyers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-best-tablet-on-a-budget-a-comprehensive-review-of-the-102-inch-apple-ipad-8th-generation/"><u>The Best Tablet on a Budget? A Comprehensive Review of the 10.2-Inch Apple iPad 8Th Generation</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-game-changer-in-portable-computing-an-in-depth-review-and-comparison-of-2020s-newly-released-apple-macbook-air-with-m1-processor/"><u>The Game-Changer in Portable Computing: An In-Depth Review & Comparison of 2020'S Newly Released Apple MacBook Air with M1 Processor</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-premier-choice-in-iphones-thorough-review-and-cost-evaluation-of-the-iphone-xs-max/"><u>The Premier Choice in iPhones – Thorough Review & Cost Evaluation of the iPhone XS Max</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-runners-choice-exploring-the-best-running-watches-available-in/"><u>The Runner's Choice: Exploring the Best Running Watches Available In</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-lenovo-tab-m10-hd-2020-affordable-powerful-tablet-for-online-browsing-and-streaming-entertainment/"><u>The Ultimate Guide to the Lenovo Tab M10 HD (2020): Affordable, Powerful Tablet for Online Browsing and Streaming Entertainment</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-get-back-lost-music-from-vivo-y100a-by-fonelab-android-recover-music/"><u>The way to get back lost music from Vivo Y100A</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-mesh-wi-fi-setups-the-ultimate-guide/"><u>Top Rated Mesh Wi-Fi Setups: The Ultimate Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-apowersoft-screen-recorder-testimony/"><u>[Updated] In 2024, Apowersoft Screen Recorder Testimony</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-streamlining-youtube-content-onto-insta-feed/"><u>[Updated] Streamlining YouTube Content Onto Insta Feed</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-revolutionize-your-content-reach-livestreaming-past-footage-on-facebook/"><u>2024 Approved Revolutionize Your Content Reach Livestreaming Past Footage on Facebook</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/generative-ai-faceoff-determining-superiority-of-chatgpt-versus-bing-chat/"><u>Generative AI Faceoff: Determining Superiority of ChatGPT Versus Bing Chat</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-infinix-smart-7-hd-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Infinix Smart 7 HD.</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/revolutionize-audience-insights-and-conversions-leverage-the-power-of-cookiebot-on-your-site/"><u>Revolutionize Audience Insights and Conversions: Leverage the Power of Cookiebot on Your Site</u></a></li>
+<li><a href="https://windows11.techidaily.com/steps-to-fix-failed-display-driver-startup-in-windows-11/"><u>Steps to Fix Failed Display Driver Startup in Windows 11</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-comparison-of-googles-speakers-nest-audio-and-nest-mini-side-by-side/"><u>The Ultimate Comparison of Google's Speakers - Nest Audio and Nest Mini Side by Side</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-amazon-basics-compact-and-lightweight-tablet-support-review-inside/"><u>The Ultimate Guide to Amazon Basic's Compact and Lightweight Tablet Support - Review Inside!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-list-leading-tv-streaming-platforms/"><u>The Ultimate List: Leading TV Streaming Platforms</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-7-affordable-mobile-phone-plans-compare-and-save/"><u>Top 7 Affordable Mobile Phone Plans - Compare and Save!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-7-sites-showcasing-latest-film-previews/"><u>Top 7 Sites Showcasing Latest Film Previews</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-mini-desktops-unleash-portable-power-for-your-games/"><u>Top Mini Desktops: Unleash Portable Power for Your Games</u></a></li>
 </ul></div>
 

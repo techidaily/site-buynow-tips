@@ -1,7 +1,7 @@
 ---
 title: "'Battle for Neighboreville': A Comical Clash of Plants and Zombies - Game Review."
-date: 2024-10-24T06:04:27.900Z
-updated: 2024-10-30T07:15:59.820Z
+date: 2024-11-04T03:47:45.927Z
+updated: 2024-11-05T02:28:48.991Z
 categories:
   - BestProducts
 description: "This Article Describes 'Battle for Neighboreville': A Comical Clash of Plants and Zombies - Game Review."
@@ -43,16 +43,10 @@ Lifewire / Nick Jaynes
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/kUpys0K04ePH0SuEfAENz--MXSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
@@ -76,13 +70,6 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: All-plastic, but sturdy and subtle**
 
  The Anker PowerDrive 2 might not be the sharpest or most cutting-edge looking in-car USB charger, but what it lacks in visual pizazz, it more than makes up for in sturdiness.
@@ -95,13 +82,6 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Fast charging for demanding devices**
 
  The best part of the Anker PowerDrive 2 is its charging. It has the ability to charge iPads simultaneously without getting overheated thanks to its PowerIQ and VoltageBoost technology. Each USB port can output a maximum 5V/2.4A, for a total of 24W. That’s in line with other car[chargers](https://www.lifewire.com/best-wireless-phone-chargers-4138571) we tested, but the PowerIQ technology can help identify device and deliver the fastest possible charge. This also gives you some overvoltage protection to make sure something like a smartwatch doesn’t fry when you plug it in.
@@ -113,10 +93,10 @@ Lifewire / Nick Jaynes
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Middle of the pack**
@@ -124,6 +104,13 @@ Lifewire / Nick Jaynes
  The list price of $14.99 is positioned in the mid-range of the USB charger market, which ranges from just a few dollars to upwards of $50 for some fancier chargers. However, Anker PowerDrive 2 can be had for a discounted price on some websites. Considering the fact that the Anker PowerDrive 2 includes both the fast-charger and a 3-foot micro USB cable, it is well priced for the marketplace.
 
  Lifewire / Nick Jaynes
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: A handful of rivals**
 
@@ -138,6 +125,13 @@ Lifewire / Nick Jaynes
  **The Anker PowerDrive 2 is the workhorse of the in-car USB charger market.**
 
  The price is fair, the charging is fast, and the design is unobtrusive. It’s hard to ask for much more.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -165,16 +159,19 @@ Lifewire / Nick Jaynes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/updated-mastering-camtasia-ken-burns-technique-unveiled/"><u>[Updated] Mastering Camtasia Ken Burns Technique Unveiled</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1-effortless-guide-transform-avi-files-into-high-quality-mpeg4s-using-windows-tools/"><u>1. Effortless Guide: Transform AVI Files Into High-Quality MPEG4s Using Windows Tools</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210518965-9781777476014-beloved-i-can-show-you-heaven/"><u>Beloved, I Can Show You Heaven | Free Book</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comparing-smart-speakers-google-nest-audio-vs-nest-mini/"><u>Comparing Smart Speakers: Google Nest Audio Vs. Nest Mini</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/deciding-on-an-email-service-in-depth-comparison-of-outlookcom-vs-gmail/"><u>Deciding on an Email Service: In-Depth Comparison of Outlook.com Vs. Gmail</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/easy-steps-for-creating-a-portable-music-library-how-to-save-tracks-to-a-flash-drive/"><u>Easy Steps for Creating a Portable Music Library - How to Save Tracks to a Flash Drive</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/fullview-media-collaboration-guidebook/"><u>FullView Media Collaboration Guidebook</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/razer-gaming-hub-analysis-enhancing-your-wireless-play-experience/"><u>Razer Gaming Hub Analysis: Enhancing Your Wireless Play Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/roku-or-fire-tv-stick-choosing-the-perfect-streaming-device-for-your-needs/"><u>Roku or Fire TV Stick - Choosing the Perfect Streaming Device for Your Needs</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-fujitsu-scansnap-ix1400-the-ideal-scanner-for-small-business-and-home-offices-reviewed/"><u>Unveiling the Power of Fujitsu ScanSnap iX1400: The Ideal Scanner for Small Business and Home Offices Reviewed</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/who-holds-sway-over-youtube-subscribers-in-2024/"><u>Who Holds Sway Over YouTube Subscribers, In 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-unleashing-video-magic-on-tiktok-with-pre-made-designs/"><u>[New] In 2024, Unleashing Video Magic on TikTok with Pre-Made Designs</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-transformative-photos-lightroom-techniques-for-stunning-hdr/"><u>[New] Transformative Photos Lightroom Techniques for Stunning HDR</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unveil-top-8-websites-with-free-green-screen-video-treasures/"><u>[New] Unveil Top 8 Websites with FREE Green Screen Video Treasures</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-cut-to-the-chase-vimeos-best-practices-for-video-length-reduction/"><u>2024 Approved Cut to the Chase Vimeo's Best Practices for Video Length Reduction</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/hasten-your-vimeo-watch-time-for-2024/"><u>Hasten Your Vimeo Watch Time for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-construct-your-dreams-with-dynamic-time-lapses-on-a-hero5/"><u>In 2024, Construct Your Dreams with Dynamic Time-Lapses on a Hero5</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-comparing-features-between-nintendo-switch-lite-and-oled-variant/"><u>In-Depth Look: Comparing Features Between Nintendo Switch Lite and OLED Variant</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-the-chromecast-with-google-tv-a-worthy-rival-to-amazons-firestick-find-out-here/"><u>Is the Chromecast with Google TV a Worthy Rival to Amazon's Firestick? Find Out Here!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/kids-delight-or-just-noise-discovering-the-joy-of-holy-stone-cartoon-racer-cars-in-our-latest-review/"><u>Kids’ Delight or Just Noise? Discovering the Joy of Holy Stone Cartoon Racer Cars in Our Latest Review.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lamicall-s-tablet-holder-evaluation-crafted-for-maximum-usability/"><u>Lamicall S Tablet Holder Evaluation: Crafted For Maximum Usability</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lg-gram-156-ultraportable-laptop-review-powerful-performance-meets-stunningly-light-design/"><u>LG Gram 15.6 Ultraportable Laptop Review - Powerful Performance Meets Stunningly Light Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/nickwatch-launches-in-the-us-coinciding-with-annual-kids-choice-gala/"><u>NickWatch Launches in the US Coinciding with Annual Kids' Choice Gala</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/quick-and-easy-steps-to-determine-which-windows-os-youre-running/"><u>Quick and Easy Steps to Determine Which Windows OS You're Running</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/uniform-visual-clarity-in-microsoft-teams-conferences/"><u>Uniform Visual Clarity in Microsoft Teams Conferences</u></a></li>
 </ul></div>
 

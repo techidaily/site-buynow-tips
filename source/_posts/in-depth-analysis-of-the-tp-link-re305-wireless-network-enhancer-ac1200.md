@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of the TP-Link RE305 Wireless Network Enhancer (AC1200)
-date: 2024-10-25T22:37:53.726Z
-updated: 2024-10-29T16:03:36.219Z
+date: 2024-11-03T17:22:19.136Z
+updated: 2024-11-04T23:50:42.638Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of the TP-Link RE305 Wireless Network Enhancer (AC1200)
@@ -37,22 +37,15 @@ Lifewire / Claire Cohen
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## TP-Link RE305 AC1200 Wi-Fi Range Extender
 
 ![TP-Link AC1200 Wi-Fi Range Extender RE305](https://www.lifewire.com/thmb/C8f1R4cMjb3MUZ1ViPdvQ67Q7tE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4LW4043312-0cb211cf35c746879e5136b3f9d62b63.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Claire Cohen
 
@@ -89,13 +82,6 @@ Lifewire / Claire Cohen
 
  There's an[Ethernet port](https://www.lifewire.com/what-is-an-ethernet-port-817546) at the bottom of the device as well as a pinhole reset button, just in case it needs rebooted at any point. It's a bit awkward to hang an[Ethernet cord](https://www.lifewire.com/what-is-an-ethernet-cable-817548) from the extender depending on where you've placed it in your home, but it's a useful addition to bring Ethernet to a desktop, TV, or gaming console without having to put holes in your wall.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Simple and quick**
 
  Setup is extremely simple. There's no software required to install with the RE305, and it’s very quick to set up. It takes a matter of minutes to get it up and running via a web browser. There's a Quick Installation Guide included that outlines out the process. We found it painless to follow.
@@ -103,6 +89,19 @@ Lifewire / Claire Cohen
  First, you plug in the extender to an outlet, then use any computer to connect to its network. After plugging it into an outlet, we found that it popped up immediately on our MacBook Pro's available wireless network list. Once connected to the network, setup is done via the web address listed on the guide.
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/PS8-Iywv5MsnOo99Fir-jNOiPF8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-4-5c924206c9e77c0001ff0bb8.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
 
@@ -130,18 +129,18 @@ Lifewire / Claire Cohen
 
  It's a bit bereft of some functionality for veteran extender users who may want to fiddle with settings and skip the "easy mode" setup, but it does its job particularly well. It even includes a[QR code](https://www.lifewire.com/scan-qr-codes-on-smartphone-4154658) to scan for users to download the wireless management app straight from the setup page. It doesn't take any real doing to reach this website either, and can be accessed at any time from the network.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: A deal at any price**
 
  At a list price of $59.99, the RE305 is a fantastic deal, considering it's typically on sale for much cheaper, often $10 to $15 less than retail. It isn't TP-Link's lowest-end option, but the performance and speeds offered for the price are certainly more than your money's worth, especially if you live in a larger home and pay for higher internet speeds. It’s important to keep in mind that it won’t include all the features you’ll get with pricier extenders like multiple ethernet ports or additional antennas, but this basic setup is just about all the average user needs, anyway.
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/bG-oXoYxR83gVSUH4vzz37hfYxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-1-5c92424b46e0fb000172f127.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
 
@@ -156,6 +155,13 @@ Lifewire / Claire Cohen
 **A no-frills option for smaller homes.**
 
  The TP-Link AC1200 Wi-Fi Range Extender RE305 is a no-frills extender with supports dual-band Wi-Fi support and an Ethernet port for wired connectivity. It won’t fare well in homes beyond 2,000 square feet, but it's a value-priced extender that can be relied on at shorter ranges.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -190,18 +196,20 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-stealth-and-honor-find-your-favorite-games-like-tsushi-for-2024/"><u>[Updated] Stealth and Honor Find Your Favorite Games Like Tsushi for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-expert-techniques-for-live-streaming-your-gopro-to-social-channels/"><u>2024 Approved Expert Techniques for Live Streaming Your GoPro to Social Channels</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-how-to-add-custom-thumbnails-to-your-youtube-videos/"><u>2024 Approved How To Add Custom Thumbnails to Your YouTube Videos</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/boosting-android-speeds-with-expert-tricks-on-under-the-radar-settings/"><u>Boosting Android Speeds with Expert Tricks on Under-the-Radar Settings</u></a></li>
-<li><a href="https://win-blog.techidaily.com/defeat-developer-error-5573-in-call-of-duty-warzone-across-platforms-with-easy-fixes/"><u>Defeat Developer Error 5573 in Call of Duty Warzone Across Platforms with Easy Fixes</u></a></li>
-<li><a href="https://fox-links.techidaily.com/how-to-use-gopro-for-time-lapse-shooting-for-2024/"><u>How to Use GoPro for Time-Lapse Shooting for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/netflixs-best-selection-of-movies-for-the-modern-teenager/"><u>Netflix's Best Selection of Movies for the Modern Teenager</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/oodle-free-local-classifieds/"><u>Oodle: Free Local Classifieds</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/rayman-legends-game-reviewed-discover-the-intricacies-of-an-outstandingly-crafted-two-dimensional-platformer/"><u>Rayman Legends Game Reviewed: Discover the Intricacies of an Outstandingly Crafted Two-Dimensional Platformer</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-of-the-formidable-xbox-series-x-next-gen-4k-entertainment-at-your-fingertips/"><u>Review of the Formidable Xbox Series X: Next-Gen 4K Entertainment at Your Fingertips</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-tab-s6-review/"><u>Samsung Galaxy Tab S6 Review</u></a></li>
-<li><a href="https://driver-install.techidaily.com/seamless-earphone-firmware-integration/"><u>Seamless Earphone Firmware Integration</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/top-5-essentials-when-purchasing-pre-owned-ipads/"><u>Top 5 Essentials When Purchasing Pre-Owned iPads</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-transform-fb-video-files-into-mp4-directly/"><u>[New] 2024 Approved Transform FB Video Files Into MP4 Directly</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-digital-horizons-meta-to-omni-contrast/"><u>[Updated] In 2024, Digital Horizons Meta to Omni Contrast</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-the-best-screen-capture-tools-for-creative-professionals-for-2024/"><u>[Updated] The Best Screen Capture Tools for Creative Professionals for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-10-online-yogis-for-peak-physique-and-harmony/"><u>[Updated] Top 10 Online Yogis for Peak Physique and Harmony</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1722945970797-dive-into-tamriel-explore-skyrim-the-ultimate-fantasy-rpg-experience-on-the-switch/"><u>Dive Into Tamriel - Explore Skyrim, The Ultimate Fantasy RPG Experience on the Switch!</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/iphone-pro-photography-mastery-of-leading-lines/"><u>IPhone Pro Photography Mastery of Leading Lines</u></a></li>
+<li><a href="https://facebook.techidaily.com/professional-networking-meets-friend-circles-fb-or-linkedin-groups/"><u>Professional Networking Meets Friend Circles: FB or LinkedIn Groups?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1722849511208-the-cut-and-cover-method-is-most-suitable-for-shallow-tunnels-but-can-be-very-disruptive-due-to-the-surface-excavation-required/"><u>The Cut-and-Cover Method Is Most Suitable for Shallow Tunnels but Can Be Very Disruptive Due to the Surface Excavation Required</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723034219081-travel-gears-new-power-bank-unicharger-pro-review-a-game-changer-in-travel-batteries/"><u>Travel Gear’s New Power Bank: UniCharger Pro Review - A Game Changer in Travel Batteries!</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-workflow-for-embedding-subtitle-track-in-mp4s-for-2024/"><u>Ultimate Workflow for Embedding Subtitle Track in MP4s for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-perfect-melody-companion-exclusive-nest-audio-smart-speaker-assessment/"><u>Unveiling the Perfect Melody Companion – Exclusive Nest Audio Smart Speaker Assessment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-strengths-of-the-linksys-ea9500-in-depth-review-of-cutting-edge-networking-tech/"><u>Unveiling the Strengths of the Linksys EA9500: In-Depth Review of Cutting-Edge Networking Tech</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/what-everyone-should-consider-before-going-all-in-on-vr-tech/"><u>What Everyone Should Consider Before Going All-In on VR Tech</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/wonder-workshop-dash-unveiled-innovative-connected-robotic-play-for-kids-explained/"><u>Wonder Workshop Dash Unveiled - Innovative Connected Robotic Play for Kids Explained</u></a></li>
 </ul></div>
 

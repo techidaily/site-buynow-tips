@@ -1,7 +1,7 @@
 ---
 title: Review of Twelve South's Compact Traveler - A Masterclass in Portable Camping Gear
-date: 2024-10-26T06:35:12.625Z
-updated: 2024-10-29T20:20:07.996Z
+date: 2024-10-30T17:05:05.656Z
+updated: 2024-11-04T23:12:42.021Z
 categories:
   - BestProducts
 description: This Article Describes Review of Twelve South's Compact Traveler - A Masterclass in Portable Camping Gear
@@ -35,6 +35,13 @@ Lifewire / Rebecca Isaacs
 [View On Amazon $999](https://www.amazon.com/MAVIX-M9-Gaming-Chair-White/dp/B09MDXKFLS/?tag=lifewire-onsite-prod-20&ascsubtag=5183973%7Cn4e1998137fdb426ab9d2150aa9cfd04517%7CB09MDXKFLS) [View On Mavix.com](https://www.mavix.com/m9-gaming-chair.html)
 
 4.2
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Mavix M9 Gaming Chair
 
@@ -75,10 +82,10 @@ Lifewire / Rebecca Isaacs
  At 56 x 26 x 22.75 inches (HWD), the chair has a wide seat for spreading out and comes with an optional headrest. Even the wheels are prepped for hours of gameplay and come with a locking feature to ensure stability.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Comfort: It’s all in the ergonomics
@@ -91,14 +98,14 @@ Lifewire / Rebecca Isaacs
 
 ![Mavix M9 Gaming Chair headrest ](https://www.lifewire.com/thmb/dk-8es8V-f2VzVltDiUNw0nCs2o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_02-acc7e137bc7a4b25837fbbe065ac1416.jpeg)
 
-Lifewire / Rebecca Isaacs
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Lifewire / Rebecca Isaacs
 
 ## Performance and Usage: Amazing day-to-day
 
@@ -126,14 +133,14 @@ Lifewire / Rebecca Isaacs
 
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/_eJYTViir2syGINJQq7Fxl1ofHQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_04-d42bbf02273f4d0aa7c25351b201dc2c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Mavix M9 vs. XChair X4 Chair
 
@@ -147,13 +154,6 @@ Lifewire / Rebecca Isaacs
 
  While it can’t really be customized outside of cosmetic options, the M9 gaming chair is a solid, easy way to enjoy any gaming hobby without worrying about backaches. The reclining technology and the locking wheels are especially nice bonuses. The price may seem a little high, but it’s a worthy investment for any gamer.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [FicMax Ergonomic Gaming Chair](https://www.lifewire.com/ficmax-ergonomic-gaming-chair-review-4771068)
@@ -161,10 +161,10 @@ Lifewire / Rebecca Isaacs
 * [Homall Executive Swivel Chair](https://www.lifewire.com/homall-executive-swivel-chair-review-4589356)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -194,21 +194,18 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-building-a-brand-the-art-of-creating-attention-grabbing-reels-on-social-media/"><u>[New] 2024 Approved Building a Brand The Art of Creating Attention-Grabbing Reels on Social Media</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-empower-yourself-learning-the-ins-and-outs-of-io-screen-recorder-for-2024/"><u>[New] Empower Yourself Learning the Ins and Outs of IO Screen Recorder for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/a-therapists-guide-to-combining-chatgpt-with-cognitive-behavioral-therapy/"><u>A Therapist's Guide to Combining ChatGPT with Cognitive Behavioral Therapy</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/best-anti-virus-programs-for-your-iphone-a-comprehensive-guide/"><u>Best Anti-Virus Programs for Your iPhone – A Comprehensive Guide</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/cutting-edge-editing-tiktok-edition-unveiled-for-2024/"><u>Cutting-Edge Editing TikTok Edition Unveiled for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-depths-of-innovation-in-ratchet-and-clanks-latest-adventure/"><u>Exploring the Depths of Innovation in Ratchet & Clank's Latest Adventure</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-a-dead-microphone-problem-in-skype-a-step-by-step-guide-for-windows-10-users/"><u>Fixing a Dead Microphone Problem in Skype: A Step-by-Step Guide for Windows 10 Users</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/free-electronic-signature-for-excel-2010-files-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>Free electronic signature - For Excel 2010 files</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-realme-v30t-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Realme V30T Phone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-asus-rog-zephyrus-g14-balancing-large-display-and-compromise/"><u>In-Depth Analysis of Asus ROG Zephyrus G14 - Balancing Large Display and Compromise</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-why-the-alienware-aurora-r11-dominates-s-best-gaming-desktops/"><u>In-Depth Evaluation: Why the Alienware Aurora R11 Dominates 'S Best Gaming Desktops</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-gionee-f3-pro-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Gionee F3 Pro Phone? Unlock It Now</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/remedying-paused-streaming-videos/"><u>Remedying Paused Streaming Videos</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/steer-clear-of-hazards-upgrade-your-lights-now/"><u>Steer Clear of Hazards: Upgrade Your Lights Now</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-notch-samsung-offers-unmissable-prime-day-savings/"><u>Top Notch Samsung Offers: Unmissable Prime Day Savings</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unleashing-professionalism-in-audio-communication/"><u>Unleashing Professionalism in Audio Communication</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-harnessing-instagram-video-power-strategizing-for-impact-for-2024/"><u>[Updated] Harnessing Instagram Video Power Strategizing for Impact for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-master-racing-must-try-bicycle-titles/"><u>2024 Approved Master Racing Must-Try Bicycle Titles</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/a-beginners-roadmap-to-crafting-a-web-app-with-the-help-of-chatgpt/"><u>A Beginner's Roadmap to Crafting a Web App with the Help of ChatGPT</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fitbit-sense-your-comprehensive-health-companion-against-apples-wearable/"><u>Fitbit Sense: Your Comprehensive Health Companion Against Apple's Wearable</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fortnites-exciting-return-a-fresh-season-review-of-the-epic-battle-royale/"><u>Fortnite's Exciting Return: A Fresh Season Review of the Epic Battle Royale</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/google-pixelbook-go-assessment-top-notch-chromebook-quality-comes-with-a-premium-investment/"><u>Google Pixelbook Go Assessment: Top-Notch Chromebook Quality Comes With a Premium Investment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/guardian-angels-discover-the-top-6-anti-virus-solutions-for-iphones/"><u>Guardian Angels: Discover The Top 6 Anti-Virus Solutions for iPhones</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/hear-the-magic-rokus-audio-and-video-overhaul/"><u>Hear the Magic: Roku’s Audio & Video Overhaul</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/immersive-graphics-meet-unyielding-difficulty-demons-souls-resurgence-examined/"><u>Immersive Graphics Meet Unyielding Difficulty - Demon's Souls Resurgence Examined</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Infinix Zero 30 5G | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/latest-hp-officejet-pro-all-in-one-printer-driver-update-for-windows-10-8-vista-xp-and-earlier-versions/"><u>Latest HP Officejet Pro All-in-One Printer Driver Update for Windows 10, 8, Vista, XP & Earlier Versions</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-rated-ar-eyewear-choices-featured-by-zdnet/"><u>Top-Rated AR Eyewear Choices Featured by ZDNet</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/verhindern-sie-den-automatischen-verlust-von-heruntergeladenen-dateien-in-windows-10/"><u>Verhindern Sie Den Automatischen Verlust Von Heruntergeladenen Dateien in Windows 10</u></a></li>
 </ul></div>
 

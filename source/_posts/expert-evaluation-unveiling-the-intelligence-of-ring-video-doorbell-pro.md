@@ -1,7 +1,7 @@
 ---
 title: "Expert Evaluation: Unveiling the Intelligence of Ring Video Doorbell Pro"
-date: 2024-10-27T18:46:34.422Z
-updated: 2024-10-30T05:21:09.668Z
+date: 2024-10-29T02:30:48.795Z
+updated: 2024-11-05T02:35:03.173Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Evaluation: Unveiling the Intelligence of Ring Video Doorbell Pro"
@@ -41,23 +41,9 @@ Lifewire / Emily Isaacs
 
 4.4
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -85,6 +71,13 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  One unique feature of the Sculpt we loved was the function switch. Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key. Options include refreshing the active page, navigating to the home page in web, opening up the computer’s settings, a play/pause button, switching between active windows, and increasing or decreasing volume.
@@ -99,15 +92,22 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
@@ -139,10 +139,10 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
@@ -187,15 +187,18 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-freeze-entire-browser-sheet/"><u>[New] Freeze Entire Browser Sheet</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-unveiling-8-top-choices-your-go-to-templates-on-ig/"><u>[New] Unveiling 8 Top Choices Your Go-To Templates on IG</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-kobo-clarity-colour-e-reader-examination/"><u>Comprehensive Kobo Clarity Colour E-Reader Examination</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/from-skid-marks-to-scarecrows-a-motorcyclists-journey-through-the-world-of-days-gone/"><u>From Skid Marks to Scarecrows: A Motorcyclist's Journey Through the World of 'Days Gone'</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-vivo-y78t-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Vivo Y78t Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/quick-steps-to-change-weather-location-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>Quick Steps to Change Weather Location on Apple iPhone 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/1719285802254-say-goodbye-to-troubleshooting-woes-on-vistawindows-7/"><u>Say Goodbye to Troubleshooting Woes on Vista/Windows 7.</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/test-ride-the-simplified-mods-latest-sidecar-electric-bike/"><u>Test Ride the Simplified Mod's Latest Sidecar Electric Bike</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-synergy-of-style-and-functionality-inside-scoop-on-skagen-falster-3s-cutting-edge-design-and-classic-appeal/"><u>The Synergy of Style & Functionality - Inside Scoop on Skagen Falster ^3'S Cutting-Edge Design and Classic Appeal</u></a></li>
-<li><a href="https://techidaily.com/xiaomi-redmi-note-12-pro-4g-support-turn-off-screen-lock-by-drfone-android-unlock-android-unlock/"><u>Xiaomi Redmi Note 12 Pro 4G support - Turn Off Screen Lock.</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-pricing-strategies-for-youtube-video-promotions/"><u>[New] 2024 Approved Pricing Strategies for YouTube Video Promotions</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-unpacking-the-power-of-yis-4k-action-capture/"><u>[New] In 2024, Unpacking the Power of Yi's 4K Action Capture</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-mastery-in-stardew-navigating-the-intricacies-of-ginger-isle/"><u>[Updated] In 2024, Mastery in Stardew Navigating the Intricacies of Ginger Isle</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-imos-capabilities-with-a-detailed-feature-review/"><u>Exploring Imo's Capabilities with a Detailed Feature Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-teac-pd-301-where-tasteful-style-meets-premium-sound/"><u>Exploring Teac PD-301: Where Tasteful Style Meets Premium Sound</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/harmonious-innovation-with-nest-audio-elevating-the-tunes-of-passionate-listeners/"><u>Harmonious Innovation with Nest Audio – Elevating the Tunes of Passionate Listeners</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-globe-spin-cameras-versus-three-dimensional-photography/"><u>In 2024, Globe-Spin Cameras versus Three-Dimensional Photography</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Infinix Smart 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-visual-aesthetics-boost-integrating-black-bar-and-box-frame-for-social-media/"><u>In 2024, Visual Aesthetics Boost Integrating Black Bar & Box Frame for Social Media</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-huion-inspiroy-g10t-a-masterpiece-in-premium-artistic-tools/"><u>In-Depth Analysis of Huion Inspiroy G10T - A Masterpiece in Premium Artistic Tools</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-moto-g-plays-outstanding-battery-capacity-and-competitive-specs/"><u>In-Depth Analysis of Moto G Play's Outstanding Battery Capacity & Competitive Specs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-ring-doorbell-plus-with-new-batteries/"><u>In-Depth Analysis of the Ring Doorbell Plus with New Batteries</u></a></li>
+<li><a href="https://techidaily.com/unlock-iphone-6-screen-lock-without-password-by-drfone-ios-unlock-ios-unlock/"><u>Unlock iPhone 6 screen lock without password</u></a></li>
 </ul></div>
 

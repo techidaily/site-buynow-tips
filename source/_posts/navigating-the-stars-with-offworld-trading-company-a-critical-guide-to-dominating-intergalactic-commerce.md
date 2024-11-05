@@ -1,7 +1,7 @@
 ---
 title: "Navigating the Stars with Offworld Trading Company: A Critical Guide to Dominating Intergalactic Commerce"
-date: 2024-10-28T18:39:55.521Z
-updated: 2024-10-30T10:12:15.626Z
+date: 2024-11-02T18:54:05.245Z
+updated: 2024-11-05T03:37:31.152Z
 categories:
   - BestProducts
 description: "This Article Describes Navigating the Stars with Offworld Trading Company: A Critical Guide to Dominating Intergalactic Commerce"
@@ -36,13 +36,6 @@ Lifewire / Kelsey Simon
 
 2.7
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
@@ -66,10 +59,10 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Story: Heavy-handed writing to the exclusion of all else**
@@ -91,6 +84,13 @@ Lifewire / Kelsey Simon
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -125,10 +125,16 @@ Lifewire / Kelsey Simon
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Other story focused RPGs**
@@ -144,10 +150,10 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -173,24 +179,24 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-exclusive-mac-hd-scribing-plus-auditory-logging-solution/"><u>[New] In 2024, Exclusive Mac HD Scribing + Auditory Logging Solution</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-seconds-needed-for-playback-20mb-video-example/"><u>[Updated] Seconds Needed for Playback - 20Mb Video Example</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-premium-fourteen-high-res-full-frame-selection/"><u>2024 Approved Premium Fourteen High Res Full Frame Selection</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-technical-insights-for-superior-ppt-recording-quality/"><u>2024 Approved Technical Insights for Superior PPT Recording Quality</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 15 Plus | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-lg-24lh4830-smart-led-tv-great-quality-without-breaking-the-bank/"><u>Affordable LG 24LH4830 Smart LED TV: Great Quality Without Breaking the Bank</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/amazon-echo-show-10-3rd-gen-review/"><u>Amazon Echo Show 10 (3Rd Gen) Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/amazon-kindle-2019-unveiled-your-wallet-friendly-gateway-to-digital-reading/"><u>Amazon Kindle (2019) Unveiled: Your Wallet-Friendly Gateway to Digital Reading</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/an-overview-of-overwatchs-entertaining-team-shooter-features-and-competitive-mode/"><u>An Overview of Overwatch's Entertaining Team Shooter Features & Competitive Mode</u></a></li>
-<li><a href="https://article-files.techidaily.com/androids-video-reversion-secrets-unveiled/"><u>Android's Video Reversion Secrets Unveiled</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/sive-guide-10-immersive-youtube-vr-films-for-2024/"><u>Exclusive Guide 10 Immersive YouTube VR Films for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unlocking-the-secrets-to-becoming-an-exceptional-interviewer/"><u>In 2024, Unlocking The Secrets To Becoming An Exceptional Interviewer</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/kinemaster-editors-unite-building-fluid-sequences-together-for-2024/"><u>Kinemaster Editors Unite Building Fluid Sequences Together for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/mastering-ais-language-through-prompt-crafting-and-workforce-insights/"><u>Mastering AI's Language Through Prompt Crafting & Workforce Insights</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/1722988964881-unlocking-blistering-speeds-with-the-netgear-nighthawk-rax120-your-ultimate-guide/"><u>Unlocking Blistering Speeds with the Netgear Nighthawk RAX120 - Your Ultimate Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-samsung-galaxy-tab-s4-a-review-of-its-features-as-a-top-tier-tablet/"><u>Unveiling the Samsung Galaxy Tab S4: A Review of Its Features as a Top-Tier Tablet</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-top-chargers-for-rechargeable-batteries-expert-picks/"><u>Unveiling the Top Chargers for Rechargeable Batteries - Expert Picks</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/urban-development-meets-martian-wilderness-a-laughingly-chaotic-adventure/"><u>Urban Development Meets Martian Wilderness: A Laughingly Chaotic Adventure</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/walletwise-wagging-camera-study/"><u>WalletWise Wagging Camera Study</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-desktop-recording-head-to-head-obs-vs-shadowplay-for-2024/"><u>[New] Desktop Recording Head-to-Head OBS Vs. ShadowPlay for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-from-dull-to-delightful-how-to-craft-standout-youtube-thumbnails/"><u>2024 Approved From Dull to Delightful How To Craft Standout YouTube Thumbnails</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-fresh-perspective-on-grand-escapades-in-yokus-island-express-review/"><u>A Fresh Perspective on Grand Escapades in Yoku's Island Express Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-iphone-12-mini-review/"><u>Apple iPhone 12 Mini Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-philips-hf3520-alarm-clock-evaluation-value-meets-functionality/"><u>Budget-Friendly Philips HF3520 Alarm Clock Evaluation: Value Meets Functionality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/compact-and-economical-cameras-of-2024/"><u>Compact and Economical Cameras of 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-mapmyride-fitness-application/"><u>Comprehensive Review of the MapMyRide Fitness Application</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/control-de-tempo-con-botones-inicio-eficaz/"><u>Control De Tempo Con Botones: Inicio Eficaz</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decoding-the-differences-between-amazon-echo-pop-and-echo-dot/"><u>Decoding the Differences Between Amazon Echo Pop and Echo Dot</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/deconstructing-the-microsoft-surface-go-a-comprehensive-look-at-its-price-point-and-ambiguous-persona/"><u>Deconstructing the Microsoft Surface Go - A Comprehensive Look at Its Price-Point and Ambiguous Persona</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-why-you-shouldnt-overlook-the-oneplus-nord-n10-5g-our-in-depth-review/"><u>Discover Why You Shouldn't Overlook the OnePlus Nord N10 5G - Our In-Depth Review</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/evaluating-the-efficacy-of-magix-picture-tool/"><u>Evaluating the Efficacy of MAGIX Picture Tool</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-nature-on-a-new-level-with-sealocs-sleek-sturdy-and-weatherproof-55-inch-4k-outdoor-television-our-review-inside/"><u>Experience Nature on a New Level with Sealoc's Sleek, Sturdy & Weatherproof 55-Inch 4K Outdoor Television - Our Review Inside!</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-enable-your-iphone-to-receive-messages-from-android-phones-efficiently/"><u>How to Enable Your iPhone to Receive Messages From Android Phones Efficiently</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-gt-neo-5-se-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Realme GT Neo 5 SE Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-insight-into-quadcopters-functionality-uncovered/"><u>In 2024, Insight Into Quadcopters Functionality Uncovered</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/step-by-step-techniques-for-clear-screen-captures-on-imac/"><u>Step-by-Step Techniques for Clear Screen Captures on iMac</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/voice-personalization-tips-for-instagram-users-for-2024/"><u>Voice Personalization Tips for Instagram Users for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/which-should-you-pick-the-high-quality-display-of-an-amazon-fire-or-a-samsung-tab/"><u>Which Should You Pick: The High-Quality Display of an Amazon Fire or a Samsung Tab?</u></a></li>
 </ul></div>
 

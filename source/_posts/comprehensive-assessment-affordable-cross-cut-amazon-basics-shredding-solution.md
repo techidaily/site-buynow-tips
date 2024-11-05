@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
-date: 2024-10-28T20:42:51.142Z
-updated: 2024-10-30T00:24:22.983Z
+date: 2024-10-30T19:59:10.410Z
+updated: 2024-11-04T17:04:29.396Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
@@ -40,13 +40,6 @@ Lifewire / Jonno Hill
 ## HP Omen Obelisk
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/ltgwwtDrSkLcZMSVU6VX1rKcbaA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_HP-OMEN-Obelisk-Gaming-Desktop-Computer-1-56ba747009334162a328f46d8b4743af.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -103,10 +96,10 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance** :**Great components for gaming and productivity**
@@ -116,6 +109,13 @@ Lifewire / Jonno Hill
  The desktop scored an impressive 6,967 in the productivity-focused benchmarking application PCMark 10\. On the gaming front, the Omen managed a score of 10,740 in 3DMark’s Time Spy. In real-world use, this means more than 60fps at 4K in many popular titles like GTA V, but less than 60fps in others like Deus Ex: Mankind Divided. In other words, the Omen is mostly capable of 4K gameplay and is nearly always capable of 60+ fps in most common resolutions shy of 4K.
 
  The Omen comes equipped with a 1TB[NVMe SSD](https://www.lifewire.com/what-is-m2-833453) and 32GB of DDR4 2666 memory. This is definitely more RAM than games alone will call for, but it’s merely an adequate amount of RAM for some creative professionals working with more demanding software like Adobe After Effects. Keep in mind though, even those that don’t normally need a lot of RAM can still benefit from having more. Among other things, it gives you the luxury of keeping all of your browser tabs and background applications running without having to start juggling applications on and off, which can be helpful from a productivity standpoint.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Gaming** :**Great for the most demanding titles**
 
@@ -131,20 +131,27 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Pz9tV-mhJl_Cjm8HSqEQ_VZPbVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-5-cdbd9d78a8c14b8e8bce0113d12e9fcc.jpg)
 
- Lifewire / Jonno Hill
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Jonno Hill
 
 ## **Network** :**Great speeds, but software that doesn’t do much**
 
  The HP Omen Obelisk has gigabit LAN and a Wi-Fi 5 (2x2) networking, the latter supporting a maximum speed of 866 Mbps. Everything functioned smoothly from a networking standpoint during my tests.
 
  I made a point to try out the Network Booster software found in the OMEN Command Center and didn’t see anything tremendously useful, unfortunately. I tried setting the priority of Steam to “Low” and downloading a game, but the game still downloaded at my maximum internet speed. I took it one step further and toggled the “Block” option for Steam, and tried to resume the download, but Steam kept on downloading at the maximum speed. The software was successful in blocking Chrome when that option was switched on, however.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Just enough options**
 
@@ -164,20 +171,13 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/J3cZUfrEy-ALtFpRbDRhw7FZI8M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-4-f78d504d7bd348eca19b7e65b4d10289.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **HP OMEN Obelisk vs Corsair One Pro**
@@ -226,17 +226,14 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-adapting-your-favorite-songs-from-spotify-to-youtube-music-service/"><u>[New] In 2024, Adapting Your Favorite Songs From Spotify to YouTube Music Service</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-step-by-step-instructions-producing-alluring-video-thumbnails-on-youtube/"><u>[New] Step-by-Step Instructions Producing Alluring Video Thumbnails on YouTube</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-tailoring-tutorials-for-square-shaped-video-sharing/"><u>[Updated] Tailoring Tutorials for Square-Shaped Video Sharing</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/best-tools-for-crafting-memorable-instagram-reels-top-6-for-2024/"><u>Best Tools for Crafting Memorable Instagram Reels (Top 6) for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/beyond-apples-shine-unveiling-the-allure-and-functionality-of-the-exquisite-skagen-falster-2/"><u>Beyond Apple’s Shine: Unveiling the Allure and Functionality of the Exquisite Skagen Falster 2</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/can-you-trust-hps-economy-15-amd-laptop-for-your-everyday-needs-an-expert-review/"><u>Can You Trust HP’s Economy 15” AMD Laptop for Your Everyday Needs? – An Expert Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comparing-samsung-galaxy-s10plus-and-s20-an-in-depth-review/"><u>Comparing Samsung Galaxy S10+ & S20: An In-Depth Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-amazon-fire-hd-10-tablet-evaluation-the-ideal-all-in-one-media-device-for-families/"><u>Comprehensive Amazon Fire HD 10 Tablet Evaluation: The Ideal All-in-One Media Device for Families</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-byb-e430-swing-arm-led-lamp-analysis-and-features-overview/"><u>Comprehensive BYB E430 Swing Arm LED Lamp Analysis and Features Overview</u></a></li>
-<li><a href="https://extra-information.techidaily.com/review-how-toolwiz-stacks-up-in-photo-app-landscape/"><u>Review How Toolwiz Stacks Up in Photo App Landscape</u></a></li>
-<li><a href="https://win-updates.techidaily.com/transferring-iphone-visuals-onto-desktop-techniques-and-tools-for-easy-display-syncing/"><u>Transferring iPhone Visuals Onto Desktop: Techniques and Tools for Easy Display Syncing</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/viral-beats-top-tiktok-hits-for-a-dance-off/"><u>Viral Beats Top TikTok Hits for a Dance Off</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/ais-pivotal-role-in-advancing-humanity-and-the-modern-world/"><u>AI's Pivotal Role in Advancing Humanity and the Modern World</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/boost-your-privacy-new-wireguard-integration-for-proton-vpn-users-on-linux-systems/"><u>Boost Your Privacy: New WireGuard Integration for Proton VPN Users on Linux Systems</u></a></li>
+<li><a href="https://program-issues.techidaily.com/experience-the-thrills-of-god-of-wars-first-person-shooter-version-launched-on-pc/"><u>Experience the Thrills of God of War's First-Person Shooter Version – Launched on PC</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-vivo-y28-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Vivo Y28 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-unleash-potential-creating-a-youtube-channel-that-shines-in-games/"><u>In 2024, Unleash Potential Creating a YouTube Channel that Shines in Games</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-is-the-docooler-usb-20-and-12-megapixel-quality-worth-it/"><u>In-Depth Review: Is The Docooler USB 2.0 and 12 Megapixel Quality Worth It?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-the-newest-generation-apple-ipad-102-inch-worth-it-a-comprehensive-review/"><u>Is the Newest Generation Apple iPad 10.2-Inch Worth It? A Comprehensive Review.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-performance-watches-find-your-perfect-match/"><u>Leading Performance Watches : Find Your Perfect Match</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-home-surveillance-a-step-by-step-review-of-the-blink-outdoor-4-wi-fi-lighted-security-camera/"><u>Mastering Home Surveillance: A Step-by-Step Review of the Blink Outdoor 4 Wi-Fi Lighted Security Camera</u></a></li>
 </ul></div>
 

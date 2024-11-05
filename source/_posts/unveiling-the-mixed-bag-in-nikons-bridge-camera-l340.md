@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Mixed Bag in Nikon's Bridge Camera L340
-date: 2024-08-27T12:03:08.447Z
-updated: 2024-08-28T12:03:08.447Z
+date: 2024-10-31T23:08:45.698Z
+updated: 2024-11-04T20:31:29.181Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Mixed Bag in Nikon's Bridge Camera L340
@@ -15,9 +15,6 @@ thumbnail: https://www.lifewire.com/thmb/LabzxKCzCCN4VL_6tx5323yIhLs=/400x300/fi
 
 ## Apeman C450 Dash Cam
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Apeman C450 Dashcam](https://www.lifewire.com/thmb/R-SkTPUBgYZCUaD9aixocd8OUy8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_HeroSquare2-c752b8527e31471e9018279dea42a8ca.jpg)
 
 Lifewire / Danny Chadwick
@@ -41,8 +38,12 @@ Lifewire / Danny Chadwick
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Apeman C450 Dash Cam
 
 ![Apeman C450 Dashcam](https://www.lifewire.com/thmb/qtPoWkWW4veIi00rgbPVt6Q4pu8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_HeroSquare2-c752b8527e31471e9018279dea42a8ca.jpg)
@@ -73,8 +74,12 @@ Lifewire / Danny Chadwick
  Lifewire / Danny Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design: All the basics**
 
  The Apeman C450 has a three-inch screen that’s bright, detailed, and provides an at-a-glance view of the camera’s status. If it were much bigger, it would be both a distraction and dangerous visual obstruction.
@@ -107,9 +112,6 @@ Lifewire / Danny Chadwick
 
  Your first time using the Apeman C450, you also have the option to set up a time and date stamp as well as a car identification number on your videos. This is a nice option to keep track of when a video was recorded, and which car it was recorded from if you have more than one camera in different vehicles.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ## **Camera Quality: Acceptable for a budget device**
 
  You can set this dashcam to capture video in 1080p, 720p, and VGA resolution. That’s impressive for a camera this size, and Apeman puts 1080p Full HD front and center in their marketing materials. While it provides a good level of detail and clarity in the video, it’s worth noting that other dashcams out there can record in resolutions up to 1440p.
@@ -119,6 +121,13 @@ Lifewire / Danny Chadwick
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/Hp7FvJ_BMgl0S2-Dsd-hd2qiQ7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_04-82d0af63043344a6b7b44863790050d7.jpg)
 
  Lifewire / Danny Chadwick
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Travels as well as the rest of them**
 
@@ -140,13 +149,24 @@ Lifewire / Danny Chadwick
 
  One thing to note about this car dashboard camera is that the battery life is quite short. When we tested the Apeman C450, it powered down 28 minutes after we unplugged it. If you want continuous recording, it must be connected to power at all times.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Affordable even on a budget**
 
  The defects of this dashcam can be forgiven pretty easily considering that it costs less than $50\. If you’re looking for a very inexpensive device, the Apeman C450 is a decent if somewhat flawed solution—it’s definitely not built as solidly and lacks the high resolution of its more expensive competitors, but if you are comfortable working around those shortcomings, this dashcam performs pretty well for the price.
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Competition: Apeman C450 vs. Z-Edge Z3 Plus**
 
  We tested the Apeman C450 side by side with the Z-Edge Z3 Plus dashcam. The Z3 Plus is considerably more expensive, and while we found these two devices to be generally similar in form and function, we ultimately favored the Z3 Plus because it lacks the small annoyances that made the Apeman C450 frustrating.
@@ -161,19 +181,12 @@ Lifewire / Danny Chadwick
 
  Despite a poor-quality build and some design quirks, the Apeman C450 does its job as a dashcam. It has a discreet design, captures pretty good-quality video, and has important extra features like collision detection and a surveillance mode. If you can get past some of its foibles, it's definitely worth the price tag.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [DDpai mini3](https://www.lifewire.com/ddpai-mini3-review-4770579)
 * [Rexing V1 DashCam](https://www.lifewire.com/rexing-v1-dashcam-review-4770571)
 * [Anker Roav DashCam C1](https://www.lifewire.com/anker-roav-dashcam-c1-review-4773139)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  C450 Dash Cam
@@ -190,14 +203,11 @@ Lifewire / Danny Chadwick
 * Storage  Up to 32GB SDHC card (Class 10)
 * Warranty  12 months
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -206,4 +216,26 @@ Lifewire / Danny Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/outube-studio-for-beginners-basic-to-pro-editing-guide-for-2024/"><u>[New] YouTube Studio for Beginners Basic to Pro Editing Guide for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-enhancing-streaming-quality-for-instagram-videos/"><u>[Updated] 2024 Approved Enhancing Streaming Quality for Instagram Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-imovies-crop-technique-a-guide/"><u>[Updated] IMovie's Crop Technique A Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-from-flat-screens-to-spatial-storytelling-understanding-vr/"><u>[Updated] In 2024, From Flat Screens to Spatial Storytelling Understanding VR</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-depth-examination-hero4-black-innovation/"><u>[Updated] In-Depth Examination Hero4 Black Innovation</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-luminous-android-videography-techniques/"><u>2024 Approved Luminous Android Videography Techniques</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-closer-look-at-the-versatile-outdoor-protection-offered-by-blinks-4-wireless-flash-security-device/"><u>A Closer Look at the Versatile, Outdoor Protection Offered by Blink's 4-Wireless Flash Security Device</u></a></li>
+<li><a href="https://win-answers.techidaily.com/banish-lag-expert-tips-for-smooth-play-in-outriders-on-your-computer/"><u>Banish Lag: Expert Tips for Smooth Play in Outriders on Your Computer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/creative-sound-blaster-zxr-analysis-the-2013-high-end-audio-pioneer/"><u>Creative Sound Blaster ZXR Analysis - The 2013 High-End Audio Pioneer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/from-zoning-to-skyline-a-comprehensive-review-of-urban-builder-sensation/"><u>From Zoning to Skyline: A Comprehensive Review of Urban Builder Sensation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/holy-stone-hs170-predator-mini-rc-helicopter-drone-review-a-drone-on-a-budget/"><u>Holy Stone HS170 Predator Mini RC Helicopter Drone Review: A Drone on a Budget</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-overwatch-enjoyable-multiplayer-battles-with-friends/"><u>In-Depth Analysis of Overwatch: Enjoyable Multiplayer Battles with Friends</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/key-specifications-for-top-notch-gaming-machines/"><u>Key Specifications for Top-Notch Gaming Machines</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/launch-in-minutes-top-8-specialized-gpt-variants-at-your-fingertips/"><u>Launch in Minutes: Top 8 Specialized GPT Variants at Your Fingertips</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigate-and-conquer-with-fitbit-versa-3-embrace-the-power-of-inbuilt-gps-plus-health-apps-for-unmatched-exercise-motivation/"><u>Navigate & Conquer with Fitbit Versa 3 - Embrace the Power of Inbuilt GPS + Health Apps for Unmatched Exercise Motivation!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/revolutionize-your-productivity-with-lenovos-innovative-dual-screen-laptop-a-game-changer-for-professionals/"><u>Revolutionize Your Productivity with Lenovo's Innovative Dual-Screen Laptop - A Game Changer for Professionals</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-elite-list-premium-rechargeable-battery-chargers/"><u>The Elite List: Premium Rechargeable Battery Chargers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-lasting-impression-of-miles-morales-a-review-of-marvels-new-focus-in-spider-man-gaming/"><u>The Lasting Impression of 'Miles Morales' - A Review of Marvel's New Focus in Spider-Man Gaming</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/ultimate-series-exceptional-5-slow-mo-tech/"><u>Ultimate Series Exceptional 5 Slow Mo Tech</u></a></li>
+</ul></div>
 

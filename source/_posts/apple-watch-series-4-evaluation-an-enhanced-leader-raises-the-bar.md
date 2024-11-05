@@ -1,7 +1,7 @@
 ---
 title: "Apple Watch Series 4 Evaluation: An Enhanced Leader Raises the Bar"
-date: 2024-10-25T03:02:14.859Z
-updated: 2024-10-29T16:05:53.188Z
+date: 2024-10-30T04:02:18.722Z
+updated: 2024-11-04T23:43:02.154Z
 categories:
   - BestProducts
 description: "This Article Describes Apple Watch Series 4 Evaluation: An Enhanced Leader Raises the Bar"
@@ -69,13 +69,6 @@ Lifewire / Emily Isaacs
 
 [The Best Ergonomic Keyboards of 2024](https://www.lifewire.com/best-ergonomic-keyboards-4147386)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design and Features: Freestyle2 breaks the mold**
 
  For people who are tethered to their[computers](https://www.lifewire.com/computer-and-laptop-reviews-4102643) , ergonomic keyboards are a must. These keyboards tend to be large thanks to the frequently employed swoop design that opens up the keys to provide additional spacing, so fingers feel less cramped, and a wrist-friendly position that prevents[repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) while typing. These keyboards are typically space hogs, taking up large portions of any surface that they’re placed on, often forcing users to reach further for[mice](https://www.lifewire.com/best-wireless-mice-6666207) . This can lead to shoulder injuries in place of wrist injuries—a trade-off no one wants.
@@ -83,10 +76,10 @@ Lifewire / Emily Isaacs
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/C-YK_WPWu8Ujx1fwDLxvO6Epi-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_05-adcddc5fc05b415dbcd82396bc0ada77.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
@@ -105,9 +98,23 @@ Lifewire / Emily Isaacs
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/XHY6Xe9cdaO1U6Uj0wDY6rROlcA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_04-7fad98b589454e0388ecf48afe425e8c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  From here, we followed the instructions in the provided instructional pamphlet and enabled Bluetooth on our iPad. After about a minute of scanning, the Kinesis KB800MB-BT keyboard appeared as an available device. We simply tapped to connect. From here, it prompted us to input a numeric code and press return. Once we’d done this, setup was complete.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Features: Efficient hotkeys once you get used to them**
 
@@ -116,6 +123,13 @@ Lifewire / Emily Isaacs
  One pet peeve we had with the keyboard design was the Caps lock key. Instead of having a light on the button itself that glows when the function is enabled, this light is placed alongside the Bluetooth connectivity lights on the right-hand side of the keyboard. While this isn’t the end of the world by any means, it’s less intuitive since you need to retrain yourself on where to look to see if it’s enabled. Additionally, you should be aware that leaving this button on or using it frequently can lead to faster battery drain.
 
  Its split design is comfortable, following the natural arc of your fingers and hands as they rest upon its keys.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery: Plenty of juice so you’re never in a bind**
 
@@ -126,13 +140,6 @@ Lifewire / Emily Isaacs
  Full-size ergonomic keyboards tend to retail anywhere from $50 to $200, depending on the features involved. Generally retailing for about $100 on Amazon, the Freestyle2 sits comfortably at the front of this curve. While $100 may seem expensive for a keyboard, consider the features involved. Its travel-friendly build, adjustable setup options, extended battery life, and ability to switch quickly and smoothly between multiple connected devices make it an excellent choice for the features.
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/vncgu0FEgBJ69UL6H8BjQ2QoGRI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_03-9055476d1d974c8bbe9b1c39d479b300.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -153,13 +160,6 @@ Lifewire / Emily Isaacs
  **An ideal keyboard for Apple users with its compact design, portability, and long-lasting battery.**
 
  The Kinesis Freestyle2 Blue for Mac is a compact, user-friendly ergonomic keyboard that takes comfort and customization to the next level for Apple users thanks to its split, modular design. Its extended battery life of up to 300 plus hours combined with its ability to connect to multiple iOS devices at a time is a game-changer, making it well worth the splurge.
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -192,21 +192,16 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-reimagining-vrs-uncharted-territories/"><u>[New] 2024 Approved Reimagining VR's Uncharted Territories</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ulti-channel-mastery-coordinated-content-consumption-for-2024/"><u>[New] Multi-Channel Mastery Coordinated Content Consumption for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-determining-best-video-frames-per-second-fps-rate/"><u>[Updated] 2024 Approved Determining Best Video Frames Per Second (FPS) Rate</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-dji-airborne-collection-basic-kit-elite-series-4k-masterclass-for-2024/"><u>[Updated] DJI Airborne Collection Basic Kit, Elite Series, 4K Masterclass for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/aukeys-30-usb-hub-reviewed-sleek-aesthetics-meet-efficient-connectivity/"><u>Aukey's 3.0 USB Hub Reviewed: Sleek Aesthetics Meet Efficient Connectivity</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/easy-steps-for-posting-videos-on-facebook-from-devices/"><u>Easy Steps for Posting Videos on Facebook From Devices</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experts-weigh-in-on-monoprice-graphic-tablet-top-picks-for-budget-creatives/"><u>Experts Weigh in on Monoprice Graphic Tablet – Top Picks for Budget Creatives</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-manually-install-a-hardware-driver-on-windows-11-and-10-and-7-by-drivereasy-guide/"><u>How to Manually Install a Hardware Driver on Windows 11 & 10 & 7</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-honor-magic-5-pro-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Honor Magic 5 Pro</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/master-coding-and-strategy-with-the-dji-robomaster-s1-tank-drone-review/"><u>Master Coding and Strategy with the DJI RoboMaster S1 Tank Drone Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-internet-speed-and-security-an-insightful-review-on-the-linksys-ea9500-advanced-router/"><u>Mastering Internet Speed and Security: An Insightful Review on the Linksys EA9500 Advanced Router</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-honor-x50i-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Honor X50i</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/sunbritetv-55-inch-veranda-4k-tv-a-robust-hdr-tv-that-can-take-a-beating/"><u>SunBriteTV 55-Inch Veranda 4K TV: A Robust HDR TV That Can Take a Beating</u></a></li>
-<li><a href="https://win11.techidaily.com/the-5-best-apps-to-skyrocket-your-productivity-on-windows-11-or-11/"><u>The 5 Best Apps to Skyrocket Your Productivity on Windows 11 or 11</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-wifi-showdown-does-the-tp-link-archer-ax6000-surpass-the-nighthawk-ax1-12-performance-test-results-revealed/"><u>Ultimate WiFi Showdown: Does The TP-Link Archer AX6000 Surpass the Nighthawk AX1 12 Performance Test Results Revealed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlocking-home-wifi-potential-with-googles-innovative-mesh-system-reviewed-here/"><u>Unlocking Home WiFi Potential with Google's Innovative Mesh System Reviewed Here!</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-vocal-lens-capture-microphone-inputs-for-2024/"><u>[Updated] Vocal Lens Capture Microphone Inputs for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-youtube-snippets-overview-explained/"><u>2024 Approved YouTube Snippets Overview Explained</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723055455139-fintie-laptop-case-for-macbook-airpro-13-balancing-durability-with-affordable-pricing-reviewed/"><u>Fintie Laptop Case for MacBook Air/Pro 13 - Balancing Durability with Affordable Pricing Reviewed</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-premier-platforms-to-rework-classic-ps3-titles/"><u>In 2024, Premier Platforms to Rework Classic PS3 Titles</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlocking-advanced-wi-fi-with-netgear-nighthawk-ax8-mesh-extender-your-comprehensive-review/"><u>Unlocking Advanced Wi-Fi with Netgear Nighthawk AX8 Mesh Extender - Your Comprehensive Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unpacking-the-ps5-showdown-slim-version-against-traditional-model/"><u>Unpacking the PS5 Showdown: Slim Version Against Traditional Model</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-quality-of-samsungs-55-inch-curved-4k-smart-tv-the-ru7300-series/"><u>Unveiling the Quality of Samsung's 55-Inch Curved 4K Smart TV: The RU7300 Series</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-sturdiness-and-value-of-the-omoton-t1-tablet-support-accessory/"><u>Unveiling the Sturdiness and Value of the Omoton T1 Tablet Support Accessory</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-filmora-watermark-removal-free-trials-hacks-and-official-methods/"><u>Updated Filmora Watermark Removal Free Trials, Hacks, and Official Methods</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-how-to-find-free-sound-effect-and-add-them-in-final-cut-pro/"><u>Updated In 2024, How to Find Free Sound Effect and Add Them in Final Cut Pro</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1726029274392-m4a/"><u>ストレージ容量と再生できるプラットフォームに最適化した、M4Aへのビデオ変換ガイド</u></a></li>
 </ul></div>
 

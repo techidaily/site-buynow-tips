@@ -1,7 +1,7 @@
 ---
 title: "Master Your Network On a Budget: Comprehensive Review of the TP-Link Archer A6 AC1200 Router"
-date: 2024-10-26T22:21:39.496Z
-updated: 2024-10-30T00:13:11.339Z
+date: 2024-10-31T03:14:02.495Z
+updated: 2024-11-04T20:39:20.457Z
 categories:
   - BestProducts
 description: "This Article Describes Master Your Network On a Budget: Comprehensive Review of the TP-Link Archer A6 AC1200 Router"
@@ -36,16 +36,16 @@ Lifewire / Claire Cohen
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## TP-Link RE305 AC1200 Wi-Fi Range Extender
 
 ![TP-Link AC1200 Wi-Fi Range Extender RE305](https://www.lifewire.com/thmb/C8f1R4cMjb3MUZ1ViPdvQ67Q7tE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4LW4043312-0cb211cf35c746879e5136b3f9d62b63.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Claire Cohen
 
@@ -70,13 +70,6 @@ Lifewire / Claire Cohen
 
  We spent over a week testing it in our home, evaluating design, ease of setup and network performance.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design:** **Neither seen nor heard**
 
  The RE305 is quite small and unobtrusive, with a plastic white exterior and silver accents that’s meant to blend in, not stand out. At just 3.1 x 3.1 x 2.4 (LWH) inches unboxed and 6.4 ounces, it's one of the most diminutive Wi-Fi solutions on the market. That means it's simple to plug into a spare outlet anywhere your wireless signal needs bolstering.
@@ -97,13 +90,6 @@ Lifewire / Claire Cohen
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/PS8-Iywv5MsnOo99Fir-jNOiPF8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-4-5c924206c9e77c0001ff0bb8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Claire Cohen
 
  You'll create a password, let the device scan your network for an applicable router, and then enter the SSID and password to your current wireless network from there. There are options to change the extender network’s SSID and password if you so choose, but otherwise, it’ll remain the same as your default network. Once completed, the 2.4 GHz and/or 5GHz lights on the device should come on, depending on[your router's functionality](https://www.lifewire.com/what-is-a-router-2618162) . The entire process from unboxing to surfing the web took about 7 minutes.
@@ -113,6 +99,13 @@ Lifewire / Claire Cohen
  The RE305 is a value-priced, no-frills extender that promises quick setup, a low-key design, and typically smooth connectivity at a great price.
 
  There is one important pain point, however, to keep in mind during setup. The extender's administrative password utilizes a default "admin/admin" login, so you'll want to change that to keep unauthorized users out. It can be changed via the TP-Link Tether app, which isn't clearly lined out in the instructions. It isn't required, but if you want to keep your network as secure as possible, it's an important part of setup.
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity and Network Performance:** **Strong, multi-device connectivity**
 
@@ -136,6 +129,13 @@ Lifewire / Claire Cohen
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/bG-oXoYxR83gVSUH4vzz37hfYxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-1-5c92424b46e0fb000172f127.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Claire Cohen
 
 ## **Competition: More of the same**
@@ -151,10 +151,10 @@ Lifewire / Claire Cohen
  The TP-Link AC1200 Wi-Fi Range Extender RE305 is a no-frills extender with supports dual-band Wi-Fi support and an Ethernet port for wired connectivity. It won’t fare well in homes beyond 2,000 square feet, but it's a value-priced extender that can be relied on at shorter ranges.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -190,21 +190,22 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://games-able.techidaily.com/are-acemagics-games-validated-by-am08-pro/"><u>Are AceMagic's Games, Validated by AM08 Pro?</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-your-pc-ready-essential-usb-c-driver-downloads-for-windows-10-users/"><u>Get Your PC Ready: Essential USB-C Driver Downloads for Windows 10 Users</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/hot-40-pro-messages-recovery-recover-deleted-messages-from-hot-40-pro-by-fonelab-android-recover-messages/"><u>Hot 40 Pro Messages Recovery - Recover Deleted Messages from Hot 40 Pro</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-effective-is-the-tp-link-re505x-in-expanding-your-wireless-network/"><u>How Effective Is the TP-Link RE505X in Expanding Your Wireless Network?</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-6s-drfone-by-drfone-ios/"><u>How to Unlock iPhone 6s? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/huawei-mediapad-m5-analysis-an-in-depth-look-at-audio-visual-performance/"><u>Huawei MediaPad M5 Analysis: An In-Depth Look at Audio-Visual Performance</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-is-sns-hdr-the-best-for-your-hdr-needs-insights/"><u>In 2024, Is SNS HDR the Best for Your HDR Needs? Insights</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-precisionscreenrecorder-capture-anytime/"><u>In 2024, PrecisionScreenRecorder - Capture Anytime</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-the-asus-rog-gt-ac5300-network-adapter-a-technophiles-dream-gaming-accessory/"><u>In-Depth Review of the Asus ROG GT-AC5300 Network Adapter: A Technophile's Dream Gaming Accessory</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/innovative-theta-sc2-camera-review-snap-a-panorama-anywhere/"><u>Innovative Theta SC2 Camera Review: Snap a Panorama Anywhere</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/iphone-or-android-a-comprehensive-guide-to-help-you-decide/"><u>IPhone or Android: A Comprehensive Guide to Help You Decide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-the-art-of-listening-best-earbuds-2024/"><u>Mastering the Art of Listening: Best Earbuds, 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maximizing-macbook-protection-with-the-twelve-south-bookbook-v2-our-in-depth-analysis/"><u>Maximizing MacBook Protection with the Twelve South BookBook V2 – Our In-Depth Analysis</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-ultimate-walkthrough-for-deploying-codegpt-extension-on-vs-code-platform/"><u>The Ultimate Walkthrough for Deploying CodeGPT Extension on VS Code Platform</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-rated-compact-gaming-pcs-your-ultimate-buying-guide/"><u>Top-Rated Compact Gaming PCs: Your Ultimate Buying Guide</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-unlock-your-creative-potential-10-top-music-video-editing-software-for-2024/"><u>Updated Unlock Your Creative Potential 10 Top Music Video Editing Software for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/8-of-our-favorite-free-music-apps-for-iphone/"><u>8 of Our Favorite Free Music Apps for iPhone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/capturing-your-iphoneipad-display-now-for-2024/"><u>Capturing Your iPhone/iPad Display Now for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-review-the-upsides-and-downsides-to-choosing-webex-as-your-online-conference-platform/"><u>Comprehensive Review: The Upsides and Downsides to Choosing WebEx as Your Online Conference Platform</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/discover-the-best-eight-no-cost-ai-software-to-revive-your-vintage-photographs/"><u>Discover the Best Eight No-Cost AI Software to Revive Your Vintage Photographs</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-facebook-presence-redesign-and-rename/"><u>Elevate Your Facebook Presence: Redesign and Rename</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/leading-techniques-for-video-transformation-youtube-to-mpeg/"><u>Leading Techniques for Video Transformation - YouTube-to-MPEG</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210358341-9782226468055-les-cles-de-lesoterisme-les-lignes-de-la-main/"><u>Les Clés de l'ésotérisme - Les Lignes de la main | Free Book</u></a></li>
+<li><a href="https://review-topics.techidaily.com/play-hevc-h-265-on-motorola-moto-g34-5g-is-it-possible-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Play HEVC H.265 on Motorola Moto G34 5G, is it possible?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-thrills-and-pleasures-found-in-the-world-of-pokemon-shining-pearl/"><u>The Thrills and Pleasures Found in the World of Pokémon Shining Pearl</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-conclusion-of-hitman-series-in-hitman-3-expert-analysis/"><u>The Ultimate Conclusion of Hitman Series in Hitman 3 - Expert Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-leveraging-buysellads-for-successful-blogging-monetization/"><u>The Ultimate Guide to Leveraging BuySellAds for Successful Blogging Monetization</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-microsoft-sculpt-keyboard-comfort-meets-great-savings/"><u>The Ultimate Guide to the Microsoft Sculpt Keyboard - Comfort Meets Great Savings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-verdict-on-microsoft-flight-simulator-x-gold-edition-a-lasting-gem-for-pilots-and-enthusiasts/"><u>The Ultimate Verdict on Microsoft Flight Simulator X Gold Edition: A Lasting Gem for Pilots and Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-ups-power-solutions-the-ultimate-guide/"><u>Top-Rated UPS Power Solutions: The Ultimate Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-hp-chromebook-11-the-perfect-blend-of-productivity-and-entertainment/"><u>Ultimate Guide: HP Chromebook 11 - The Perfect Blend of Productivity & Entertainment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-havit-5-in-one-laptop-cooler-evaluation-effective-heat-management-with-five-dynamic-fans/"><u>Ultimate HAVIT 5-In-One Laptop Cooler Evaluation: Effective Heat Management with Five Dynamic Fans</u></a></li>
+<li><a href="https://win-forum.techidaily.com/understanding-the-impact-of-top-social-media-platforms-facebook-twitter-instagram-and-youtube/"><u>Understanding the Impact of Top Social Media Platforms: Facebook, Twitter, Instagram & YouTube</u></a></li>
 </ul></div>
 

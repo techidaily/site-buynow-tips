@@ -1,7 +1,7 @@
 ---
 title: "High Performance, Low Price: Exploring the Acer Predator Triton 300SE's Worth"
-date: 2024-10-25T10:06:48.204Z
-updated: 2024-10-30T01:54:43.839Z
+date: 2024-11-02T03:05:38.179Z
+updated: 2024-11-05T02:10:05.423Z
 categories:
   - BestProducts
 description: "This Article Describes High Performance, Low Price: Exploring the Acer Predator Triton 300SE's Worth"
@@ -46,6 +46,13 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/fvtiWpBnRJ1dR-89xJ_kOkkEUSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_Hero5x4-c5d70a06640a47aca3f64903cf5af851.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Andy Zahn
 
 [View On Amazon $687](https://www.amazon.com/dp/B08GZJM87M?tag=lifewire-onsite-prod-20&ascsubtag=5088869%7Cn39b75fce77a645f6a71bfee9a542bdee21%7CB08GZJM87M) [View On Walmart $529](https://www.walmart.com/ip/Microsoft-Surface-Laptop-Go-12-4-Windows-Computer-Intel-Core-i5-8GB-DDR-256GB-SSD-Ice-Blue-THJ-00024/911853593?slfpid=3)
@@ -71,13 +78,6 @@ Lifewire / Andy Zahn
 
  Most[Microsoft Surface](https://www.lifewire.com/microsoft-surface-series-4163521) products tend to be high end and expensive, but the Surface Laptop Go bucks this stereotype by offering an attractive and competent laptop at an affordable price point. This is a premium quality ultrabook designed to go head to head with the MacBook Air and other ultraportable laptops, but for a lot less money. I put it to the test for 20 hours, evaluating its design, screen quality, performance, battery life, and more.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Sleek and beautiful**
 
  The Surface Laptop Go is certainly a looker. Its solid metal and plastic construction feels both durable and lightweight, and it’s available in Ice Blue, Sandstone, and Platinum. I find Sandstone to be particularly attractive for making the Laptop Go stand out from the crowd. It’s also remarkably thin, and will fit in just about any bag.
@@ -85,10 +85,10 @@ Lifewire / Andy Zahn
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/DZ-_Yk02QL0fYrm0o3TDO7zXv3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_05-e2623904845848a3841272c93ab139f1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
@@ -106,13 +106,20 @@ Lifewire / Andy Zahn
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/kz6EW4svzivooWEtdVJ5TAnOYOs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_06-07315e6a9862481bba3820f745d49887.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Speakers: Loud and proud**
 
@@ -139,10 +146,10 @@ Lifewire / Andy Zahn
  Another limiting factor is the storage capacity of the Surface Laptop Go. The configuration I tested only had 128GB of space on its solid-state drive, and the maximum configuration only comes with 256GB. You’re not going to be storing a lot of data locally on this machine forcing you to resort to cloud storage most of the time.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity: Modern hardware**
@@ -155,21 +162,7 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/R8WVIj9pTzxwTOIwiZpDPRc6Bws=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_03-d503f456e6df4db4a3ad76a6a9a49e72.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: A decision to make**
 
@@ -179,18 +172,18 @@ Lifewire / Andy Zahn
 
  In terms of bloatware, the laptop came with a few pre-installed apps: a Microsoft Office trial, Adobe Photoshop Express, and a few other odds and ends. However, it’s all easily removed if you so choose, and doesn’t really get in the way.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Reasonable Value**
 
  With an MSRP of $549, the Surface Laptop Go offers high-end build quality at a mid-range price point. It’s hard to find a laptop in this price range that looks this good and is so eminently usable. Of course, that price might be higher depending upon the configuration you go with.
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/_QEntMJEPlaXArgv2l576Qnr7MU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_04-21f4f7c4d0f54436bb1449bf36a42460.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -212,6 +205,13 @@ Lifewire / Andy Zahn
 
 * [Microsoft Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584)
 * [Google Pixelbook Go](https://www.lifewire.com/google-pixelbook-go-review-4797012)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -243,22 +243,18 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-2023-how-to-check-tiktok-video-copyright-before-uploading-for-2024/"><u>[New] 2023 | How to Check Tiktok Video Copyright Before Uploading for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-melodic-mosaic-sites-for-classic-phone-chimes-for-2024/"><u>[New] Melodic Mosaic Sites for Classic Phone Chimes for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-game-capture-options-beyond-microsofts-game-bar-for-2024/"><u>[Updated] In-Game Capture Options Beyond Microsoft's Game Bar for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-logitech-momo-steering-wheel-gamepad-for-windows-pc/"><u>Download Logitech MOMO Steering Wheel Gamepad for Windows PC</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-erase-an-apple-iphone-7-plus-without-apple-id-password-by-drfone-ios/"><u>How To Erase an Apple iPhone 7 Plus Without Apple ID Password?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-vivo-s17-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Vivo S17 Phones? | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/inshot-editing-mastery-in-video-transitions-for-2024/"><u>Inshot Editing Mastery in Video Transitions for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/oodle-unveiled-the-ultimate-zero-cost-local-marketplace-portal/"><u>Oodle Unveiled: The Ultimate Zero-Cost Local Marketplace Portal</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/reviewing-tcls-budget-friendly-giant-the-50s425-50-4k-tv-with-built-in-roku-is-it-worth-it-in-2019/"><u>Reviewing TCL’s Budget-Friendly Giant: The 50S425 50 4K TV with Built-In Roku - Is It Worth It in 2019?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-fit2-the-ideal-companion-for-everyday-fitness-tracking/"><u>Samsung Galaxy Fit2: The Ideal Companion for Everyday Fitness Tracking</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/staphylococcus-aureus/"><u>Staphylococcus Aureus</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/supreme-softbox-selection-photographys-best-tools/"><u>Supreme Softbox Selection: Photography's Best Tools</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ackward-button-chronicles-youtubes-video-reversal/"><u>The Backward Button Chronicles YouTube's Video Reversal</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-best-value-for-money-discover-the-reliability-of-lg-24lh4830-smart-television/"><u>The Best Value for Money - Discover the Reliability of LG 24LH4830 Smart Television</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-impacts-of-upgrading-to-an-iphone-1e-pro-max-a-detailed-review/"><u>The Impacts of Upgrading to an iPhone 1E Pro Max: A Detailed Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-second-generation-of-google-nest-hub-insights-a-missed-opportunity-without-cameras/"><u>The Second Generation of Google Nest Hub Insights - A Missed Opportunity Without Cameras?</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/the-unseen-paths-of-mouse-control-on-win11/"><u>The Unseen Paths of Mouse Control on Win11</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-androids-premier-choice-top-10-free-fb-video-extractor/"><u>[New] Android's Premier Choice Top 10 Free FB Video Extractor</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-essential-free-apps-for-youtube-to-wav-transformation-for-2024/"><u>[Updated] Essential Free Apps for YouTube to WAV Transformation for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-core-elements-of-virtual-tale-transmission/"><u>2024 Approved Core Elements of Virtual Tale Transmission</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-apples-latest-iphone-15-vs-iphone-15-pro-max-which-is-better/"><u>Comparing Apple's Latest: IPhone 15 Vs. IPhone 15 Pro Max - Which Is Better?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-syma-x5c-rc-quadcopter-an-economical-choice-for-beginners/"><u>Comprehensive Review of the SYMA X5C RC Quadcopter: An Economical Choice for Beginners</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/delivering-superior-wifi-performance-without-breaking-the-bank-tp-link-archer-a-6-ac1200-reviewed/"><u>Delivering Superior WiFi Performance Without Breaking The Bank - TP-Link Archer A 6 AC1200 Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/differences-unveiled-amazon-echo-pop-vs-amazon-echo-dot-comparison/"><u>Differences Unveiled: Amazon Echo Pop Vs. Amazon Echo Dot Comparison</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-fastest-and-most-reliable-cable-modems-of-2024-buyers-guide/"><u>Discover the Fastest and Most Reliable Cable Modems of 2024 - Buyer's Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-worth-in-your-subscription-to-youtube-tv/"><u>Discovering the Worth in Your Subscription to YouTube TV</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-itel-s23-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Itel S23 to PC? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-14-withwithout-sim-card-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 14 with/without SIM Card</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/in-2024-videopad-video-editor-a-comprehensive-review-and-purchase-guide/"><u>In 2024, Videopad Video Editor A Comprehensive Review and Purchase Guide</u></a></li>
 </ul></div>
 

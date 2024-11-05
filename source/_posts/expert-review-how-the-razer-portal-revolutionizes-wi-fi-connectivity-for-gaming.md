@@ -1,7 +1,7 @@
 ---
 title: "Expert Review: How the Razer Portal Revolutionizes Wi-Fi Connectivity for Gaming"
-date: 2024-10-25T08:31:22.336Z
-updated: 2024-10-29T18:12:47.905Z
+date: 2024-10-29T16:18:49.623Z
+updated: 2024-11-04T16:33:57.812Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Review: How the Razer Portal Revolutionizes Wi-Fi Connectivity for Gaming"
@@ -64,10 +64,16 @@ Lifewire / Jonno Hill
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/AbdriPZwiRfd8iHxT9N5E6Ae2hk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_03-d434cf7b4c5f4f73b08c8c220fd0d43e.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
@@ -75,13 +81,6 @@ Lifewire / Jonno Hill
 ## **Design: Inoffensive but unexceptional**
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup: Simple and easy**
 
@@ -91,16 +90,16 @@ Lifewire / Jonno Hill
 
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Above average**
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: Fair to middling**
 
@@ -111,15 +110,22 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
 
@@ -158,21 +164,16 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-reviews.techidaily.com/the-knack-a-game-that-stands-out-with-its-iconic-character-amid-standard-video-game-tropes/"><u>'The Knack: A Game That Stands Out with Its Iconic Character Amid Standard Video Game Tropes</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-complete-look-at-dji-inspire-1-explored/"><u>[Updated] Complete Look at DJI Inspire 1 Explored</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-dive-into-the-tiktok-universe-quick-setup-guide-on-macbook/"><u>[Updated] In 2024, Dive Into the TikTok Universe Quick Setup Guide on MacBook</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-oppo-a38-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Oppo A38</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-minecraft-campfire-tales-designs-a-complete-skin-pack-assessment/"><u>Comprehensive Guide to Minecraft Campfire Tales Designs - A Complete Skin Pack Assessment</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-high-security-12-sheet-amazonbasics-micro-shredding-machine/"><u>Expert Analysis of the High-Security, 12-Sheet AmazonBasics Micro-Shredding Machine</u></a></li>
-<li><a href="https://win-able.techidaily.com/fix-microsoft-edge-crashes-in-windows-10-solutions-and-tips/"><u>Fix Microsoft Edge Crashes in Windows 10 – Solutions and Tips</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-resolve-your-iphone-12-keeps-asking-for-outlook-password-by-drfone-ios/"><u>In 2024, Resolve Your iPhone 12 Keeps Asking for Outlook Password</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-fujitsu-scansnap-ix1600-a-powerhouse-in-desktop-scanning-solutions/"><u>In-Depth Analysis of the Fujitsu ScanSnap iX1600: A Powerhouse in Desktop Scanning Solutions</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/making-sense-of-savings-the-all-new-iphone-se-review-for-practical-smartphone-enthusiasts/"><u>Making Sense of Savings: The All-New iPhone SE Review for Practical Smartphone Enthusiasts</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/mastering-the-ps5s-capabilities-a-guide-to-unlocking-120-frames-per-second/"><u>Mastering the PS5's Capabilities: A Guide to Unlocking 120 Frames Per Second</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/netgears-ac1200-wifi-booster-unveiled-an-in-depth-review-of-the-ex6200-range-extender-for-ultimate-connectivity/"><u>Netgear's AC1200 WiFi Booster Unveiled: An In-Depth Review of the EX6200 Range Extender for Ultimate Connectivity</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/pioneering-digital-realms-comparing-metaverse-and-omniverse-for-2024/"><u>Pioneering Digital Realms Comparing Metaverse & Omniverse for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/sony-w800-camera-insight-reliability-meets-economical-advantage/"><u>Sony W800 Camera Insight - Reliability Meets Economical Advantage</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-process-can-be-performed-in-an-air-or-shielding-gas-environment/"><u>The Process Can Be Performed in an Air or Shielding Gas Environment.</u></a></li>
-<li><a href="https://os-tips.techidaily.com/the-ultimate-list-of-top-8-ios-backup-solutions-for-safeguarding-your-precious-information/"><u>The Ultimate List of Top 8 iOS Backup Solutions for Safeguarding Your Precious Information</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-dji-aerial-units-baseline-upgraded-ultrahd-experts/"><u>[New] DJI Aerial Units Baseline, Upgraded, UltraHD Experts</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-your-essential-list-of-hot-tiktok-items-now-on-amazon/"><u>[Updated] In 2024, Your Essential List of Hot TikTok Items Now on Amazon</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/exploring-high-frame-rate-filming-with-yi/"><u>Exploring High Frame Rate Filming with YI</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-resolve-launch-problems-in-payday-2-for-windows-computers/"><u>How to Resolve Launch Problems in Payday 2 for Windows Computers</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/master-the-art-of-digital-cleanup-invaluable-lessons-and-articles-by-astral-advisors/"><u>Master the Art of Digital Cleanup: Invaluable Lessons & Articles by Astral Advisors</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-realtek-high-quality-audio-disconnection-errors/"><u>Resolving 'Realtek High-Quality Audio' Disconnection Errors</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/singing-machine-sml385btbk-the-simplest-plug-and-play-karaoke-experience-with-stunning-colors/"><u>Singing Machine SML385BTBK: The Simplest Plug-and-Play Karaoke Experience with Stunning Colors</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sonos-go-with-you-high-fidelity-mobile-music/"><u>Sonos Go-With-You: High Fidelity Mobile Music</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/spotlight-on-huawei-mediapad-m5-elevating-your-viewing-and-listening-pleasure/"><u>Spotlight on Huawei MediaPad M5 – Elevating Your Viewing and Listening Pleasure</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-balance-of-might-and-budget-in-alienware-aurora-r7-an-incisive-overview/"><u>The Balance of Might and Budget in Alienware Aurora R7 - An Incisive Overview</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-and-repairing-lost-volume-icons-in-windows-11-a-visual-how-to/"><u>Troubleshooting and Repairing Lost Volume Icons in Windows 11: A Visual How-To</u></a></li>
 </ul></div>
 

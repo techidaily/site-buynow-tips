@@ -1,7 +1,7 @@
 ---
 title: DIY Robotics Made Easy with Makeblock's mBot Kit - Review and Project Insights
-date: 2024-08-27T12:02:33.837Z
-updated: 2024-08-28T12:02:33.837Z
+date: 2024-10-29T19:31:36.604Z
+updated: 2024-11-05T03:05:48.704Z
 categories:
   - BestProducts
 description: This Article Describes DIY Robotics Made Easy with Makeblock's mBot Kit - Review and Project Insights
@@ -13,14 +13,8 @@ thumbnail: https://www.lifewire.com/thmb/7m4G61FJ_EhVTWC3BsDjxBloDXo=/400x300/fi
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Sealoc Outdoor TV Full Weatherized 55" UHD Smart Weatherproof LED Television
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![SkyVue 55-inch Sealoc Costal Silver TV](https://www.lifewire.com/thmb/uyIYN745zw-UJZ8sDjpcxk5bhqA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_HERO_Square-a5f526f61e0641158a8503d02b6058b1.jpg)
 
  Lifewire / Gannon Burgett
@@ -44,10 +38,14 @@ thumbnail: https://www.lifewire.com/thmb/7m4G61FJ_EhVTWC3BsDjxBloDXo=/400x300/fi
 
 ## Sealoc Outdoor TV Full Weatherized 55" UHD Smart Weatherproof LED Television
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ![SkyVue 55-inch Sealoc Costal Silver TV](https://www.lifewire.com/thmb/hfv-N-kUKUqrdbk4rO9ay7vh_to=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_HERO_Square-a5f526f61e0641158a8503d02b6058b1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -86,6 +84,13 @@ thumbnail: https://www.lifewire.com/thmb/7m4G61FJ_EhVTWC3BsDjxBloDXo=/400x300/fi
 
 ![SkyVue 55-inch 4K Outdoor TV](https://www.lifewire.com/thmb/8jle4bs6PXyy2Qzvq1c0IJW_V2E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_15_Horiz-f55f96dc584047a0b61f1e05f56976cc.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
 
 ## **Durability: It can handle it all**
@@ -100,10 +105,14 @@ thumbnail: https://www.lifewire.com/thmb/7m4G61FJ_EhVTWC3BsDjxBloDXo=/400x300/fi
 
  Overall, unless you’re exposing this unit to salty seawater day in, day out, in the harshest environments, I have a hard time seeing how this TV won’t hold up for years to come.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![SkyVue 55-inch 4K Outdoor TV](https://www.lifewire.com/thmb/GJ1StKRMx12EggdPfSJWCSSS7aY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_02_Horiz-1df71300a60d421f848d96050a856fbe-d93884cf38ee40188089dc6d114570d3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -113,10 +122,14 @@ Lifewire / Gannon Burgett
 
  Once mounted and plugged in, it’s simply a matter of plugging in your peripherals and turning the TV on. On the topic of peripherals, it’s important to note that unless you’re using a compact stick-style device—such as a[Google Chromecast](https://www.lifewire.com/guide-to-chromecast-2438213) or[Amazon Fire TV Stick](https://www.lifewire.com/amazon-fire-tv-stick-4k-review-4691492) —you’ll want to find a way to run cables to another weatherproof location, as there isn’t any room on the TV itself to mount or hide the devices.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ![SkyVue 55-inch 4K Outdoor TV](https://www.lifewire.com/thmb/OnY0-xZAailZsOzbKDqy1Zy3Gaw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_03_Horiz-65682943818f4cb49f1fe614eaeb18e6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -132,16 +145,10 @@ Lifewire / Gannon Burgett
 
  Despite being entirely weather-sealed, the TV offers great sound quality. The mid-tones are clearly pushed up in the audio, but for most applications, particularly those where voices and commentary are more prominent, this didn’t prove to be an issue. Now, if you’re hoping to hear every nuance of a movie’s soundtrack you might be disappointed, but if your environment is anything like mine, the stray humming of a lawnmower or leaf blower somewhere in the neighborhood will likely negate any high-quality analysis anyway.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![SkyVue 55-inch 4K Outdoor TV](https://www.lifewire.com/thmb/5LTt3_JmSCZ2Cjd0ggeTdVK5pUc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_04_Horiz-f4876803f40845e7a399293e04b71906.jpg)
 
  Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: You get what you pay for**
 
  I’ll get straight to the point—this TV isn’t cheap. At $3,000, you could go through at least four of the standard LG 6-series units this model is based on. But not a single one of those would last through more than a single downpour.
@@ -166,6 +173,13 @@ Lifewire / Gannon Burgett
 
  The 55-inch Sealoc Coastal Silver Outdoor TV is a niche product with a price to match. If you can spare the change, you won’t find a better option out there, as the TV offers a sleek design, fantastic visual/audio quality, and a fantastic operating system to top it all off.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Outdoor TV Full Weatherized 55" UHD Smart Weatherproof LED Television
@@ -184,14 +198,11 @@ Lifewire / Gannon Burgett
 * Connectivity Options  Wi-Fi, Ethernet
 * Warranty  One Year Limited Warranty
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -200,4 +211,21 @@ Lifewire / Gannon Burgett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-scoutingcameras-more-than-just-mycam/"><u>[New] In 2024, ScoutingCameras More Than Just MyCam</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-obs-and-streamlabs-battle-who-will-triumph-in-live-broadcasts-in-2024/"><u>[New] OBS and Streamlabs Battle Who Will Triumph in Live Broadcasts, In 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-crafting-harmonious-photographic-mosaics-with-ease/"><u>[Updated] In 2024, Crafting Harmonious Photographic Mosaics with Ease</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-tailoring-your-video-for-optimal-instagram-impact/"><u>[Updated] In 2024, Tailoring Your Video for Optimal Instagram Impact</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-abletons-guide-to-softening-transition-endings/"><u>2024 Approved Ableton's Guide to Softening Transition Endings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/amazon-fire-hd-8-8th-gen-review/"><u>Amazon Fire HD 8 (8Th Gen) Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-high-speed-internet-cable-modems-expert-reviews-and-picks/"><u>Best High-Speed Internet Cable Modems: Expert Reviews and Picks</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/how-to-broadcast-your-online-meeting-via-youtube-google-meet-steps-for-2024/"><u>How To Broadcast Your Online Meeting via YouTube - Google Meet Steps for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/parallel-screen-data-replay-for-2024/"><u>Parallel Screen Data Replay for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-clearstream-2v-all-weather-hd-tv-antenna-exceptional-signal-in-an-aesthetic-design/"><u>Review of ClearStream 2V All-Weather HD TV Antenna: Exceptional Signal in an Aesthetic Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-overcooked-2-savory-madness-unleashed/"><u>Review of Overcooked! 2: Savory Madness Unleashed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-viewing-experience-with-the-cost-effective-amazonbasics-antenna/"><u>Revolutionize Your Viewing Experience with the Cost-Effective AmazonBasics Antenna</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unraveling-essential-factors-of-high-end-laptops/"><u>Unraveling Essential Factors of High-End Laptops</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/44ov44oq44o844ow44od44kv44k544gl44kj44gu56e76kgm77yb44gk44gz44gz44kb44gu54sh5paz5ryr55s744kz44os44kv44k344on44oz44g444ki44gg44gt44gd/"><u>フリーブックスからの移行！おすすめの無料漫画コレクションへようこそ</u></a></li>
+</ul></div>
 

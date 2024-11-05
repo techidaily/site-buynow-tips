@@ -1,7 +1,7 @@
 ---
 title: The Runner's Choice? - A Critical Review of the Garmin Forerunner 265
-date: 2024-10-25T21:11:57.006Z
-updated: 2024-10-30T07:00:32.289Z
+date: 2024-10-30T04:07:15.648Z
+updated: 2024-11-04T23:12:03.132Z
 categories:
   - BestProducts
 description: This Article Describes The Runner's Choice? - A Critical Review of the Garmin Forerunner 265
@@ -38,10 +38,10 @@ Lifewire / Jonno Hill
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Mohu Leaf 30
@@ -49,10 +49,10 @@ Lifewire / Jonno Hill
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
@@ -78,11 +78,25 @@ Lifewire / Jonno Hill
 
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Basic but effective**
 
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
 
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup: Dead simple**
 
@@ -98,13 +112,6 @@ Lifewire / Jonno Hill
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Excellent for the performance**
 
  The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
@@ -119,19 +126,6 @@ Lifewire / Jonno Hill
 
 **No fuss, good value.**
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
-
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -160,21 +154,19 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-lightening-your-day-with-humor-comical-facebook-detention-memes-for-2024/"><u>[New] Lightening Your Day with Humor Comical Facebook Detention Memes for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-avoid-ad-dollars-boost-your-view-count-for-free/"><u>[Updated] 2024 Approved Avoid Ad Dollars – Boost Your View Count for Free</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-innovative-approaches-to-documenting-facetime-talks/"><u>2024 Approved Innovative Approaches to Documenting FaceTime Talks</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-uncovering-the-dynamics-of-youtubes-post-upload-system/"><u>2024 Approved Uncovering the Dynamics of YouTube's Post-Upload System</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/best-chips-for-immersive-4k-video-workflows/"><u>Best Chips for Immersive 4K Video Workflows</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-samsung-galaxy-note20-ultra-with-5g-capabilities/"><u>Comprehensive Analysis of Samsung Galaxy Note20 Ultra with 5G Capabilities</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-pinnacle-of-networking-for-gamers-the-asus-rog-rapture-gt-ax11000-router-uncovered/"><u>Exploring the Pinnacle of Networking for Gamers - The Asus ROG Rapture GT-AX11000 Router Uncovered</u></a></li>
-<li><a href="https://techtrends.techidaily.com/find-your-perfect-chatgpt-alternative-among-our-10-favorites/"><u>Find Your Perfect ChatGPT Alternative Among Our 10 Favorites</u></a></li>
-<li><a href="https://fox-zero.techidaily.com/grouping-pages-effectively-a-guide-to-optimizing-user-interfaces/"><u>Grouping Pages Effectively: A Guide to Optimizing User Interfaces</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/inside-look-all-that-transpired-and-missing-tech-from-apples-scary-fast-keynote-zdnet-analysis/"><u>Inside Look: All That Transpired & Missing Tech From Apple's 'Scary Fast' Keynote - ZDNet Analysis</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maisto-rc-rock-crawler-review/"><u>Maisto RC Rock Crawler Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/pioneering-peace-in-personal-audio-24/"><u>Pioneering Peace in Personal Audio '24</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/1723004619615-red-dead-redemption-2-performance-optimized-no-more-lag-or-drops/"><u>Red Dead Redemption 2 Performance Optimized - No More Lag or Drops!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/stand-tall-at-work-in-depth-cumuluspro-mat-review-for-active-sitters/"><u>Stand Tall at Work: In-Depth CumulusPRO Mat Review for Active Sitters</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unpacking-the-features-and-performance-of-the-new-generation-kindle-paperwhite-by-amazon/"><u>Unpacking the Features and Performance of the New Generation Kindle Paperwhite by Amazon</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/zte-blade-a3y-review-competent-performance-from-a-budget-handset/"><u>ZTE Blade A3Y Review: Competent Performance From a Budget Handset</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-money-behind-the-screen-youtube-earnings-demystified/"><u>[New] In 2024, The Money Behind the Screen YouTube Earnings Demystified</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-4-secrets-for-adding-online-vids-seamlessly-in-ppt-for-2024/"><u>[Updated] 4 Secrets for Adding Online Vids Seamlessly in PPT for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/elevating-your-gopro-vlogs-to-the-next-level/"><u>Elevating Your GoPro Vlogs to the Next Level</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/essential-streamers-guide-top-10-sports-apps-for-real-time-action-for-2024/"><u>Essential Streamers' Guide Top 10 Sports Apps for Real-Time Action for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/interactive-guide-mastering-your-arlo-smart-home-safety/"><u>Interactive Guide: Mastering Your Arlo Smart Home Safety</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-realme-c55-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-fujitsu-scansnap-ix140n-perfect-office-and-small-biz-solution/"><u>Ultimate Guide to Fujitsu ScanSnap iX140n - Perfect Office & Small Biz Solution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-why-the-oneplus-6t-offers-top-notch-features-and-superior-affordability/"><u>Ultimate Guide: Why the OnePlus 6T Offers Top-Notch Features and Superior Affordability</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/understanding-gaming-consoles-how-does-ps5-slim-stack-up-against-ps5/"><u>Understanding Gaming Consoles: How Does PS5 Slim Stack Up Against PS5?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/understanding-the-divide-how-ipad-pro-stands-against-macbook-pro/"><u>Understanding the Divide: How iPad Pro Stands Against MacBook Pro</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-xiaomi-14-pro-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Xiaomi 14 Pro Users</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-g533-premium-sound-in-gamers-earbuds/"><u>Unveiling G533: Premium Sound in Gamers' Earbuds</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-facets-a-thorough-examination-of-imochats-performance/"><u>Unveiling the Facets: A Thorough Examination of ImoChat's Performance</u></a></li>
 </ul></div>
 

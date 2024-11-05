@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Features of the Jackery PowerBar with Integrated A/C Outlet – Detailed Assessment
-date: 2024-10-28T01:34:08.971Z
-updated: 2024-10-30T02:49:37.425Z
+date: 2024-10-28T22:08:56.662Z
+updated: 2024-11-04T18:50:03.237Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Features of the Jackery PowerBar with Integrated A/C Outlet – Detailed Assessment
@@ -64,19 +64,6 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design:** **Flexible, foldable design**
 
  The Logitech C615 is a compact webcam. The whole device folds up into a very small package, just 2.5” wide, 1.25” tall, and 1.5” wide, so you can tuck it into a pocket. When you open it up, the flexible design is simple to position. Unfolded, the webcam has three pieces: the base, neck, and[camera](https://www.lifewire.com/best-digital-cameras-under-100-3897833) . The base is the heaviest part, which means that the camera stays upright even if you don’t perfectly balance everything. The top is made out of a soft, rubbery plastic, and the bottom has a rubbery dot that keeps the base from sliding around. The dot comes off the base to reveal a tripod post, so this camera is compatible with a standard tripod. The only problem is that the dot comes off completely when the tripod post is exposed. If you're prone to losing things, this may be an issue.
@@ -103,7 +90,21 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/Bko9Uk1HIIMt9aNgtBf9ATCy0AA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_14_Final_Horiz-4f1b9fe91b8c4229b17dbbe6afb81b8c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / James Huenink
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Decent sound quality for a small mic**
 
@@ -113,13 +114,6 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/C2UBXNFmxG8nA0udy1IprMH4LBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_9_Final_Horiz-1af52951f8704af9b76d7dd1ec9744a9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / James Huenink
 
 ## **Price: Inexpensive HD camera**
@@ -127,10 +121,10 @@ Lifewire / James Huenink
  The Logitech C615 costs $70 MSRP, but you can find it for about half that cost. Even at full price, it's a solid value. The thoughtful design, image quality, and microphone clarity easily justify the price tag.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Acquits itself well against the competition**
@@ -150,10 +144,10 @@ Lifewire / James Huenink
  The Logitech C615 Webcam strikes the perfect balance between performance and affordability. The quality design, high definition video, and quality sound make this an excellent webcam for most tasks at a great price.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -188,20 +182,14 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-unlock-gaming-potential-your-complete-xbox-screenshot-guide/"><u>[Updated] 2024 Approved Unlock Gaming Potential Your Complete Xbox Screenshot Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expertly-curated-list-of-2024s-best-large-screen-portable-computers/"><u>Expertly Curated List of 2024'S Best Large Screen Portable Computers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/explore-photography-with-kodaks-fz53-zoom-lens/"><u>Explore Photography with Kodak's FZ53 Zoom Lens</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-wonder-workshop-dash-an-in-depth-analysis-of-this-cutting-edge-interactive-playset/"><u>Exploring the Wonder Workshop Dash: An In-Depth Analysis of This Cutting-Edge Interactive Playset</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-vyncs-link-reviews-dependable-link-auditing-service-and-puzzling-upgrade-packages/"><u>Exploring Vyncs Link Reviews: Dependable Link Auditing Service and Puzzling Upgrade Packages</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/from-burned-to-glorious-unpacking-the-epic-culinary-chaos-in-overcooked-2-review/"><u>From Burned to Glorious – Unpacking the Epic Culinary Chaos in Overcooked! 2 Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/future-proof-your-skills-the-premier-coding-bootcamps-of-24/"><u>Future-Proof Your Skills: The Premier Coding Bootcamps of 2#4</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/get-the-best-bang-for-your-buck-with-the-pruveeo-f5-108pressure-dash-cam-our-expert-analysis/"><u>Get the Best Bang for Your Buck with the Pruveeo F5 108Pressure Dash Cam - Our Expert Analysis!</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-remove-iphone-8-plus-face-id-by-drfone-ios-unlock-ios-unlock/"><u>How to Remove iPhone 8 Plus Face ID?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-data-from-iphone-12-pro-max-to-other-iphone-12-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 12 Pro Max To Other iPhone 12 Pro devices? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-nokia-c22-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Nokia C22 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-the-secrets-of-getting-up-close-in-roblox-environments/"><u>In 2024, The Secrets of Getting Up Close in Roblox Environments</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/laptop-audio-issues-solved-get-your-sound-back/"><u>Laptop Audio Issues Solved: Get Your Sound Back</u></a></li>
-<li><a href="https://article-posts.techidaily.com/soft-onset-showcasing/"><u>Soft Onset Showcasing</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-key-elements-in-transforming-your-youtube-channels-visibility-for-2024/"><u>The Key Elements in Transforming Your YouTube Channels' Visibility for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-full-detailed-manual-on-morphvox-voice-alteration-techniques/"><u>[New] In 2024, Full-Detailed Manual on MorphVOX Voice Alteration Techniques</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-reviewing-the-best-screen-recorders-on-the-market/"><u>[New] In 2024, Reviewing the Best Screen Recorders on the Market</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-10-top-inspirational-movies-for-personal-power-boosts/"><u>2024 Approved 10 Top Inspirational Movies for Personal Power Boosts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/e-imagery-stepwise-food-film-making-for-2024/"><u>Edible Imagery Stepwise Food Film Making for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Motorola Edge 2023? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/prime-day-exclusive-save-big-on-high-quality-tribit-audio-speakers-and-earphones/"><u>Prime Day Exclusive: Save Big on High-Quality Tribit Audio Speakers & Earphones</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revel-in-unmatched-acoustic-majesty-beoplay-h8i/"><u>Revel in Unmatched Acoustic Majesty - Beoplay H8i</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/seamless-professional-mobile-audio/"><u>Seamless Professional Mobile Audio</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/selecting-the-perfect-iphone-for-enthusiastic-gamers/"><u>Selecting the Perfect iPhone for Enthusiastic Gamers</u></a></li>
 </ul></div>
 

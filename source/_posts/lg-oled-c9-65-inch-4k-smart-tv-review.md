@@ -1,7 +1,7 @@
 ---
 title: LG OLED C9 65-Inch 4K Smart TV Review
-date: 2024-10-22T17:43:13.622Z
-updated: 2024-10-29T23:09:56.997Z
+date: 2024-11-03T16:08:02.529Z
+updated: 2024-11-04T17:45:59.241Z
 categories:
   - BestProducts
 description: This Article Describes LG OLED C9 65-Inch 4K Smart TV Review
@@ -40,21 +40,22 @@ Lifewire / Rebecca Isaacs
 4.2
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## HAVIT 5 Fan Laptop Cooler
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/Oc__n9cXABeKwLweBvavtYWeE9M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_HeroSquare-e793f085fe42447396899e6edb8c57b0.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -78,6 +79,13 @@ _Our reviewer already owned this product._
 
  A couple gaming sessions later, and I realized I needed a[laptop cooling pad](https://www.lifewire.com/best-laptop-cooling-pads-4149823) . After taking a look at various models, I decided to try out the HAVIT 5 Gaming Laptop Cooling Pad. It boasts five fans and an adjustable rollout switch to customize my cooling experience. And it offers anti-slip baffles so my curious cat can't knock it off my laptop. After over a year of use, I still use this almost every day for my gaming needs. Read on for our final verdict, as well as thoughts on its specs.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Looks like a gamer’s cooling pad
 
  HAVIT offers this laptop cooling pad in two different colors: red and blue. I personally felt that the red would be too bright and opted for the blue; when I pulled it out of the box, I was surprised at how heavy its 1.8 pounds felt in my hand.
@@ -86,16 +94,16 @@ _Our reviewer already owned this product._
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/J6RTKS-ZdzNqPyF_Tm9lloOF1iM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_04-5a7071fefb884ba19eb68638fdbf1b2b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
 
  To me, the design seems a little clunky. It has smooth edges, but it’s clearly designed as a gamer’s edgy laptop cooling pad with seemingly unnecessary grooves that serve only to hold dust. If you’re looking for a simple design, this is not your cooling pad. That being said, the metal mesh pad for air circulation can accommodate laptops ranging from 14 to 17 inches thanks to its 15.87 x 11.81 x 1.34 inches (LWH) in dimension.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fans: Wasn’t blown away
 
@@ -113,13 +121,6 @@ Lifewire / Rebecca Isaacs
 
  That’s not to say that this laptop cooling pad doesn’t help cool it down. Since my Eluktronics is getting some much-needed TLC in the shop, I tested the MSI’s internal temps while running[Tropico Six](https://www.lifewire.com/tropico-6-review-5077604) on my laptop. Without the laptop cooling pad, I was running around 187 degrees Fahrenheit. With the cooling pad, it adjusted to around 169 degrees. It’s not much, but it’s enough to make a difference.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Baffles: Adjustable for gaming and typing
 
  If you feel the laptop needs more circulation, the good news is that HAVIT also anticipated these needs, too. Anti-slip baffles offer a sturdy position on any desk, even if you push up the height to a more angled position.
@@ -130,16 +131,16 @@ Lifewire / Rebecca Isaacs
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/hXjExslBR5KBA1RSMPFlkkvF1uQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_02-f065f40118184391b6f1ba1bffa763bd.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
 
  And, if you’re on-the-go and travelling, the HAVIT 5 also packs quite nicely into a suitcase. Be sure to play it safe like I did and pack it around clothes. But if you need to go across country and want to take your gaming laptop with you, this is a good one that will hold up well in luggage.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Price: Ouch
 
@@ -166,13 +167,6 @@ Lifewire / Rebecca Isaacs
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/urban-armor-gear-macbook-pro-case-review-4689954)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -203,19 +197,21 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-tech-trends-unveiled-excellence-in-vr-treadmills/"><u>[New] 2024 Approved Tech Trends Unveiled Excellence in VR Treadmills</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-9-epic-live-gaming-stations-unlocked/"><u>[Updated] 9 Epic Live Gaming Stations Unlocked</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-tranquil-touchscreen-best-idle-phone-adventures/"><u>[Updated] In 2024, Tranquil Touchscreen Best Idle Phone Adventures</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-how-to-use-jump-cuts-in-your-vlog/"><u>2024 Approved How To Use Jump Cuts in Your Vlog</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/cookiebot-driven-website-analytics-and-personalization/"><u>Cookiebot-Driven Website Analytics and Personalization</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-using-the-xp-pen-artist-16-pro-for-precision-drawing/"><u>Expert Insights on Using the XP-Pen Artist 16 Pro for Precision Drawing</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-review-on-mirari-kids-alarm-clock-setting-successful-sleep-routines/"><u>Expert Review on Mirari Kids Alarm Clock - Setting Successful Sleep Routines</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/fast-and-foldable-a-closer-look-at-the-gotrax-gxl-v2-for-city-commuters-e-scooter-needs/"><u>Fast & Foldable: A Closer Look at the Gotrax GXL V2 for City Commuters' E-Scooter Needs</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/fellowes-microban-wired-keyboard-a-budget-buyers-dream-detailed-product-analysis-and-comparison/"><u>Fellowes Microban Wired Keyboard - A Budget Buyer's Dream: Detailed Product Analysis and Comparison</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/fitbit-charge-4-review-style-and-substance/"><u>Fitbit Charge 4 Review: Style and Substance</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Realme C55? | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/optimal-viewing-experience-for-facebook-video-playback-for-2024/"><u>Optimal Viewing Experience for Facebook Video Playback for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-messages-from-motorola-moto-g14-by-fonelab-android-recover-messages/"><u>Possible solutions to restore deleted messages from Motorola Moto G14</u></a></li>
-<li><a href="https://discover-able.techidaily.com/wie-man-ein-bootfahiges-betriebssystem-fur-windows-mithilfe-eines-image-creators-erstellt-alternative-losungen-aufgezeigt/"><u>Wie Man Ein Bootfähiges Betriebssystem Für Windows Mithilfe Eines Image-Creators Erstellt - Alternative Lösungen Aufgezeigt</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-movie-maker-unveiled-your-path-to-video-mastery/"><u>[New] YouTube Movie Maker Unveiled Your Path to Video Mastery</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-digital-footprints-recording-nintendo-switch-sessions/"><u>[Updated] Digital Footprints Recording Nintendo Switch Sessions</u></a></li>
+<li><a href="https://win-community.techidaily.com/server-2008-r2/"><u>如何从 Server 2008 R2恢复丢失文件：三种有效技巧</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/enhancing-gameplay-on-windows-10-a-step-by-step-guide-to-optimizing-your-system-for-an-unbeatable-gaming-experience/"><u>Enhancing Gameplay on Windows 10: A Step-by-Step Guide to Optimizing Your System for an Unbeatable Gaming Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-metropolitan-magic-in-depth-analysis-of-cities-skylines/"><u>Mastering Metropolitan Magic: In-Depth Analysis of Cities: Skylines</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-multitasking-with-the-incredible-dell-xps-13-convertible-laptop-analysis/"><u>Mastering Multitasking with the Incredible Dell XPS 13 Convertible Laptop Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/motorola-one-review-looks-like-an-iphone-costs-a-fraction-of-one/"><u>Motorola One Review: Looks Like an iPhone, Costs a Fraction of One</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/navigating-tech-innovations-a-deep-dive-by-toms-hardware-team/"><u>Navigating Tech Innovations: A Deep Dive by Tom's Hardware Team</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-through-pages-a-detailed-overview-of-apple-books-app/"><u>Navigating Through Pages: A Detailed Overview of Apple Books App</u></a></li>
+<li><a href="https://program-issues.techidaily.com/path-of-exile-troubleshooting-connection-issues-to-the-game-server/"><u>Path of Exile: Troubleshooting Connection Issues to the Game Server</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reviewing-the-basics-why-lenovo-ideapad-stands-out-in-build-and-function/"><u>Reviewing the Basics: Why Lenovo Ideapad Stands Out in Build and Function</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-cleaning-routine-a-deep-dive-into-the-capabilities-of-the-dreame-bot-l1-10/"><u>Revolutionize Your Cleaning Routine: A Deep Dive Into the Capabilities of the Dreame Bot L1지오트피로 10 프루</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sealocs-sleek-55-4k-outdoor-television-the-ultimate-choice-for-a-breathtaking-beachside-tv-setup/"><u>Sealoc's Sleek 55'' 4K Outdoor Television - The Ultimate Choice for a Breathtaking Beachside TV Setup</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-vivo-x90s-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Vivo X90S Location | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-potential-of-amazons-new-generation-fire-hd-8-the-best-value-entry-level-tablet-on-todays-market/"><u>Unveiling the Potential of Amazon's New Generation Fire HD #8: The Best Value Entry-Level Tablet on Today's Market</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/windows-audio-failure-no-more-win-1011-fixed/"><u>Windows Audio Failure No More - Win 10/11 Fixed</u></a></li>
 </ul></div>
 
