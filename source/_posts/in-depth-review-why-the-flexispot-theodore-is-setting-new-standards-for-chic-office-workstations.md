@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Review: Why the Flexispot Theodore Is Setting New Standards for Chic Office Workstations"
-date: 2024-11-01T04:11:05.508Z
-updated: 2024-11-05T04:27:51.554Z
+date: 2024-11-13T19:13:31.931Z
+updated: 2024-11-14T23:10:18.605Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Review: Why the Flexispot Theodore Is Setting New Standards for Chic Office Workstations"
@@ -41,6 +41,13 @@ Lifewire / Todd Braylor
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Todd Braylor
 
 [View On Amazon $280](https://www.amazon.com/dp/B019HF60EI/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7CB019HF60EI) [View On Walmart $140](https://www.walmart.com/ip/Escort-Passport-S55-High-Performance-Pro-Radar-and-Laser-Detector-w-DSP/49140972)
@@ -62,13 +69,6 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -80,10 +80,10 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easy installation**
@@ -92,18 +92,18 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Range: Impressive detection**
 
  The Passport S55 features Enhanced Radar Protection that delivers long-distance range for laser and radar bands, including K and Ka bands, widely used microwave frequencies for police radar guns. It reliably delivers on its promise of long-distance sensitivity. While testing the S55 in Highway mode I received Ka-band alerts over a mile and a half out from where I approached a highway patrol parked on the median of the interstate. This range was on par with much more expensive models.
 
  It reliably delivers on its promise of long-distance sensitivity.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Not exactly enhanced**
 
@@ -114,10 +114,10 @@ Lifewire / Todd Braylor
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: You get what you pay for**
@@ -167,19 +167,20 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-essential-techniques-for-recording-and-preserving-itunes-videos/"><u>[New] 2024 Approved Essential Techniques for Recording and Preserving iTunes Videos</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-the-essence-of-elegance-premium-filters-for-your-snap/"><u>[Updated] 2024 Approved The Essence of Elegance Premium Filters for Your Snap</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-astonishingly-fast-finders-of-forlorn-reddit-content/"><u>[Updated] Astonishingly Fast Finders of Forlorn Reddit Content</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-expert-analysis-unpacking-picsarts-capabilities/"><u>[Updated] Expert Analysis Unpacking PicsArt's Capabilities</u></a></li>
-<li><a href="https://win-top.techidaily.com/comment-dupliquer-avec-efficacite-un-ssd-sur-windows-easement-sans-endommager-vos-fichiers/"><u>Comment Dupliquer Avec Efficacité Un SSD Sur Windows Easement Sans Endommager Vos Fichiers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-the-versatile-linksys-max-stream-ac1900-a-must-have-router-solution/"><u>Evaluating the Versatile Linksys Max-Stream AC1900: A Must-Have Router Solution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-wi-fi-mesh-system-performance-and-gain/"><u>Evaluating Wi-Fi Mesh System Performance and Gain</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-rapid-connectivity-with-the-latest-google-nest-wifi-a-detailed-overview/"><u>Experience Rapid Connectivity with the Latest Google Nest Wifi - A Detailed Overview</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-engaging-e-sports-world-of-nhl-19-gameplay-breakdown/"><u>Exploring the Engaging E-Sports World of NHL '19: Gameplay Breakdown</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-features-of-lgs-stylo-6-a-blend-of-style-and-functionality/"><u>Exploring the Features of LG's Stylo 6: A Blend of Style & Functionality</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/exploring-vidmas-screen-recording-functionality-for-2024/"><u>Exploring Vidma’s Screen Recording Functionality for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-password-cracking-tools-for-honor-v-purse-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Honor V Purse</u></a></li>
-<li><a href="https://windows11.techidaily.com/lost-in-explore-reintroducing-your-sd-card/"><u>Lost in Explore: Reintroducing Your SD Card</u></a></li>
-<li><a href="https://win11.techidaily.com/making-sense-of-device-interconnectivity-with-nearby/"><u>Making Sense of Device Interconnectivity with Nearby</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-apex-workplace-data-sphere/"><u>[New] Apex Workplace Data Sphere</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-vimeo-captions-101-the-essential-guide-for-2024/"><u>[New] Vimeo Captions 101 The Essential Guide for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/common-downsides-of-switching-to-iphone-on-ios-18-shared-experiences-and-lessons-learned/"><u>Common Downsides of Switching to iPhone on iOS 18: Shared Experiences and Lessons Learned</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elite-selection-of-tracking-wristwear-the-premier-runners-chronographs-of-2024/"><u>Elite Selection of Tracking Wristwear - The Premier Runners' Chronographs of 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enchanting-dialogues-romancing-with-deutsch/"><u>Enchanting Dialogues: Romancing with Deutsch</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/essential-choices-premier-extended-pads-for-pc-users-rankings-and-insights-2eplus-years/"><u>Essential Choices: Premier Extended Pads for PC Users - Rankings and Insights (2E+ Years)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-performance-and-user-experience-of-linksyss-universal-choice-ac1900-max-stream-router/"><u>Evaluating Performance & User Experience of Linksys's Universal Choice AC1900 Max-Stream Router</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-linksys-wrt1/"><u>Expert Analysis: Linksys WRT1</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-picks-for-the-ultimate-smart-speaker-comparison-of-2024/"><u>Expert Picks for the Ultimate Smart Speaker Comparison of 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-djis-phantom-4-pro-version-2-soaring-to-new-heights-in-drone-technology/"><u>Expert Review: DJI's Phantom 4 Pro Version 2 - Soaring to New Heights in Drone Technology</u></a></li>
+<li><a href="https://app-tips.techidaily.com/icloud-picture-perusal-made-easy-top-alternatives-for-non-iphone-users/"><u>ICloud Picture Perusal Made Easy – Top Alternatives for Non-iPhone Users</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-cyberpower-685avrg-ups-effective-and-efficient-protection-for-your-devices/"><u>In-Depth Analysis of the Cyberpower 685AVRG UPS: Effective and Efficient Protection for Your Devices</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-0x80070522-resolving-client-permissions-issue-on-windows-systems/"><u>Overcoming 0X80070522: Resolving Client Permissions Issue on Windows Systems</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/snapchat-to-device-the-step-by-step-process-explained-for-2024/"><u>Snapchat to Device - The Step by Step Process Explained for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>Ways to trade pokemon go from far away On Apple iPhone 11? | Dr.fone</u></a></li>
 </ul></div>
 

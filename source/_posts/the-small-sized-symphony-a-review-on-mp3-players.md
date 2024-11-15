@@ -1,7 +1,7 @@
 ---
 title: "The Small-Sized Symphony: A Review on MP3 Players"
-date: 2024-09-04T19:51:26.804Z
-updated: 2024-09-05T19:51:26.804Z
+date: 2024-11-14T09:51:39.457Z
+updated: 2024-11-15T09:16:36.056Z
 categories:
   - BestProducts
 description: "This Article Describes The Small-Sized Symphony: A Review on MP3 Players"
@@ -40,6 +40,13 @@ Lifewire / Kelsey Simon
 
 ![Days Gone](https://www.lifewire.com/thmb/OhLBxtaDQ5jb89rJmIMnan1soS4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Days-Gone-Zombie-Game-PS4-1-ecafdc83e8e0460cbc31b8b0e4976faa.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Kelsey Simon
 
 [View On Amazon](https://www.amazon.com/dp/B01GW8XRCG/?tag=lifewire-onsite-prod-20&ascsubtag=4778364%7Cnab23bfa6ad6a414d9db9cc2812411ddf11%7CB01GW8XRCG) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/days-gone/10131616.html)
@@ -72,19 +79,21 @@ Lifewire / Kelsey Simon
 ![Days Gone](https://www.lifewire.com/thmb/HE8j4XoxbKMWIQagUtGCXFf6bKo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-2-3b29272bf1b2423781e104041dc00457.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Plot: A man who lost his wife**
 
  The first cutscene you’re shown involves three characters: the protagonist Deacon, his loyal friend Boozer, and Sarah, Deacon’s wife. Sarah has been stabbed, and with chaos breaking out as a deadly virus spreads through the city, the trio is desperate to find help. When a helicopter lands nearby, they load Sarah onboard, but there's only room for two passengers. When Boozer refuses to board, Deacon stays behind to make sure he gets out of the city alive. You don’t actually see any zombies in this beginning sequence, or even much of the world. It's about establishing the relationships between these people and the desperate circumstances unfolding around them.
@@ -99,12 +108,6 @@ As in most zombie fiction, the real monster is man.
 
 ![Days Gone](https://www.lifewire.com/thmb/XWR-CgFF865KBE1ipv7cwdi-P3w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-5-b1914ac9859b409d9460fea24fc7f251.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
 ## **Gameplay: Standard zombie action with bikers**
@@ -123,12 +126,6 @@ As in most zombie fiction, the real monster is man.
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Graphics: Smooth and detailed**
 
  The graphics, on the other hand, are remarkable. The details of the characters feel real, especially with Deacon. His tattoos, attire, even the rings on his fingers are well rendered. The scenery also looks great—cracks in the roads are filled with grass and wildflowers, and pine trees have individual needles rather than compressed, low-res clumps of green.
@@ -139,23 +136,18 @@ As in most zombie fiction, the real monster is man.
 
 ![Days Gone](https://www.lifewire.com/thmb/gE-LorHWCGsO4NUFW801LGts5t4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-4-a82aed08ab7a4b29bce78268b729563b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Still expensive as a newer release**
 
  On the official PlayStation Store, the game goes for $40, but you can regularly find it on sale on Amazon or other online retailers (as of this writing, it's down to $20). At a discount, Days Gone is an easy purchase, a big, entertaining, open-world zombie romp that rarely if ever stagnates until the credits roll.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Days Gone vs. The Last of Us Remastered**
 
@@ -167,20 +159,24 @@ As in most zombie fiction, the real monster is man.
 
  Days Gone is a game that tried very hard to combine two tropes very much in the entertainment zeitgeist in the past few years—zombies and bikers. It's graphically strong, with great character animations and detailed environments and character models. The clunky controls and some pacing issues may make recommending it at full price difficult, but on sale, it's an easy pickup, especially for zombie fans shopping for an entertaining PS4 game.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Days Gone
 * Price  $40.00
 * Available Platforms  Playstation 4
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -189,4 +185,26 @@ As in most zombie fiction, the real monster is man.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-brief-bliss-in-photo-collage-crafting-the-google-way-for-2024/"><u>[New] Brief Bliss in Photo Collage Crafting - The Google Way for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-best-practices-in-fb-advertising-leading-video-trends/"><u>[Updated] In 2024, Best Practices in FB Advertising Leading Video Trends</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-debating-the-need-for-itop-screencasting/"><u>[Updated] In 2024, Debating the Need for ITop Screencasting</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-solo-podcast-production-for-top-spots/"><u>2024 Approved Mastering Solo Podcast Production for Top Spots</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/best-of-the-best-a-detailed-look-at-every-available-ipad/"><u>Best of the Best: A Detailed Look at Every Available iPad</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-of-the-speedy-oneplus-8t-a-potent-device-hindered-by-cameras-that-miss-the-mark/"><u>Expert Review of the Speedy OnePlus 8T - A Potent Device Hindered by Cameras That Miss the Mark</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/explore-economical-audio-quality-via-senso-activbuds/"><u>Explore Economical Audio Quality via Senso ActivBuds</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-lenovos-ideapad-series-sturdy-construction-in-an-easy-to-use-laptop/"><u>Exploring Lenovo's Ideapad Series: Sturdy Construction in an Easy-to-Use Laptop</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fitbit-versa-lite-assessment-exceptional-wellbeing-supervision-at-a-friendly-price-point/"><u>Fitbit Versa Lite Assessment: Exceptional Wellbeing Supervision at a Friendly Price Point</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/gaming-enthusiasts-guide-comprehensive-nvidia-shield-tv-pro-evaluation/"><u>Gaming Enthusiasts' Guide: Comprehensive Nvidia Shield TV Pro Evaluation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/gaming-faceoff-evaluating-the-differences-between-nintendos-switch-lite-and-oled-editions/"><u>Gaming Faceoff: Evaluating the Differences Between Nintendo's Switch Lite & OLED Editions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/get-ready-for-the-hottest-apple-specials-of-the-years-biggest-sale-event/"><u>Get Ready for the Hottest Apple Specials of the Year's Biggest Sale Event</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/grab-unbeatable-cyber-weekend-prices-upgrade-to-a-roku-today/"><u>Grab Unbeatable Cyber Weekend Prices - Upgrade to a Roku Today!</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-i-sign-a-word-2019-document-electronically-by-ldigisigner-sign-a-word-sign-a-word/"><u>How do i sign a Word 2019 document electronically</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-does-the-samsung-galaxy-s10plus-stack-up-to-the-latest-s20-model/"><u>How Does the Samsung Galaxy S10+ Stack Up to the Latest S20 Model?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-innovating-imagery-through-curve-adjustment/"><u>In 2024, Innovating Imagery Through Curve Adjustment</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/navigating-tech-trends-in-depth-guides-from-toms-hardware/"><u>Navigating Tech Trends: In-Depth Guides From Tom's Hardware</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-next-leap-in-ai-desired-upgrades-for-gpt/"><u>The Next Leap in AI: Desired Upgrades for GPT-</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-asuss-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Asuss Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+</ul></div>
 

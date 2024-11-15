@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Features of the Jackery PowerBar with Integrated A/C Outlet – Detailed Assessment
-date: 2024-10-28T22:08:56.662Z
-updated: 2024-11-04T18:50:03.237Z
+date: 2024-11-14T10:18:18.266Z
+updated: 2024-11-15T04:40:36.037Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Features of the Jackery PowerBar with Integrated A/C Outlet – Detailed Assessment
@@ -36,9 +36,23 @@ Lifewire / James Huenink
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Logitech C615 HD Laptop Webcam
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/9YqP4BNKZ_F27rxIYbc3f1vqzd0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_HERO_3LW4065141_3_Final_Square-204b4e949e864f148cd513b3511eac69.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / James Huenink
 
@@ -78,6 +92,13 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Camera Quality: Quality camera with some autofocus troubles**
 
  The camera takes 1080p video and has a 2 MP sensor. We tested the webcam’s photo capabilities by taking a picture of some packaging. Color was well represented, but the autofocus was just a bit off. The image was just a bit blurry, and we couldn’t read the smaller words at all. This wasn’t a problem close up, but it made a bigger difference when people were far away.
@@ -90,21 +111,7 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/Bko9Uk1HIIMt9aNgtBf9ATCy0AA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_14_Final_Horiz-4f1b9fe91b8c4229b17dbbe6afb81b8c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / James Huenink
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Decent sound quality for a small mic**
 
@@ -119,13 +126,6 @@ Lifewire / James Huenink
 ## **Price: Inexpensive HD camera**
 
  The Logitech C615 costs $70 MSRP, but you can find it for about half that cost. Even at full price, it's a solid value. The thoughtful design, image quality, and microphone clarity easily justify the price tag.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Acquits itself well against the competition**
 
@@ -144,10 +144,16 @@ Lifewire / James Huenink
  The Logitech C615 Webcam strikes the perfect balance between performance and affordability. The quality design, high definition video, and quality sound make this an excellent webcam for most tasks at a great price.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -182,14 +188,18 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-full-detailed-manual-on-morphvox-voice-alteration-techniques/"><u>[New] In 2024, Full-Detailed Manual on MorphVOX Voice Alteration Techniques</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-reviewing-the-best-screen-recorders-on-the-market/"><u>[New] In 2024, Reviewing the Best Screen Recorders on the Market</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-10-top-inspirational-movies-for-personal-power-boosts/"><u>2024 Approved 10 Top Inspirational Movies for Personal Power Boosts</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/e-imagery-stepwise-food-film-making-for-2024/"><u>Edible Imagery Stepwise Food Film Making for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Motorola Edge 2023? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/prime-day-exclusive-save-big-on-high-quality-tribit-audio-speakers-and-earphones/"><u>Prime Day Exclusive: Save Big on High-Quality Tribit Audio Speakers & Earphones</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revel-in-unmatched-acoustic-majesty-beoplay-h8i/"><u>Revel in Unmatched Acoustic Majesty - Beoplay H8i</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/seamless-professional-mobile-audio/"><u>Seamless Professional Mobile Audio</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/selecting-the-perfect-iphone-for-enthusiastic-gamers/"><u>Selecting the Perfect iPhone for Enthusiastic Gamers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-expert-tags-analyzer-software-fb-tweet-and-insta-edition/"><u>[New] Expert Tags Analyzer Software FB, Tweet & Insta Edition</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-essential-guide-to-writing-click-worthy-youtube-titles/"><u>[Updated] 2024 Approved Essential Guide to Writing Click-Worthy Youtube Titles</u></a></li>
+<li><a href="https://discover-best.techidaily.com/effiziente-workaround-und-substitute-fur-ein-nicht-funktionierendes-handbrake-auf-windows-11-erfahrbare-anleitung/"><u>Effiziente Workaround Und Substitute Für Ein Nicht Funktionierendes HandBrake Auf Windows 11 - Erfahrbare Anleitung</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/instagram-stories-mastering-the-art-of-time-manipulation/"><u>Instagram Stories – Mastering the Art of Time Manipulation</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/integrating-airpods-seamlessly-with-windows-pcs/"><u>Integrating AirPods Seamlessly with Windows PCs</u></a></li>
+<li><a href="https://techtrends.techidaily.com/steps-to-fix-the-msodll-error-on-windows-computers/"><u>Steps to Fix the Mso.dll Error on Windows Computers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-vivo-v27-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Vivo V27 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/troubleshooting-your-fire-tv-stick-top-7-fixes-for-common-issues/"><u>Troubleshooting Your Fire TV Stick: Top 7 Fixes for Common Issues</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleashing-the-full-power-of-google-tv-top-10-features-every-user-needs-to-know/"><u>Unleashing the Full Power of Google TV: Top 10 Features Every User Needs to Know</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlock-epic-deals-for-iphone-gamers-shop-now-before-prime-day-ends/"><u>Unlock Epic Deals for iPhone Gamers – Shop Now Before Prime Day Ends!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlock-immediate-savings-drop-90-off-your-directtv-stream-subscription-with-our-promo/"><u>Unlock Immediate Savings: Drop $90 Off Your DIRECTTV Stream Subscription with Our Promo!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/up-to-date-driver-software-for-hp-deskjet-2600-optimized-for-windows-7810-downloads/"><u>Up-to-Date Driver Software for HP Deskjet 2600: Optimized for Windows 7/8/10 Downloads</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-face-off-the-best-face-swap-apps-for-iphone-and-android-for-2024/"><u>Updated Face Off The Best Face Swap Apps for iPhone and Android for 2024</u></a></li>
 </ul></div>
 

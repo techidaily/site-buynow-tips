@@ -1,7 +1,7 @@
 ---
 title: "New vs Old: Benchmarking Samsung's Latest - S23 vs S21 Ultra Unveiled"
-date: 2024-11-03T21:35:59.789Z
-updated: 2024-11-05T00:26:23.233Z
+date: 2024-11-08T20:02:02.325Z
+updated: 2024-11-14T18:50:10.407Z
 categories:
   - BestProducts
 description: "This Article Describes New vs Old: Benchmarking Samsung's Latest - S23 vs S21 Ultra Unveiled"
@@ -43,6 +43,13 @@ Lifewire / Andy Zahn
 
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/FeCJ-wziP0Qoo9-pmifuFx9oZ7E=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Garmin-Vivoactive-3-Music-Smart-Watch-1-a182a2ce6d214080bd38bdb1c85e49a1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
 [Buy on Amazon](https://www.amazon.com/dp/B07DB3F6M2/?tag=lifewire-onsite-prod-20&ascsubtag=5069587%7Cna0c1f8774f33409ea16d9544de2db3d309%7C) [Buy on Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fgarmin-vivoactive-3-music-smartwatch-43mm-polymer-black-silicone%2F6257207.p%3FskuId%3D6257207) [Buy on B&H Photo Video](https://www.bhphotovideo.com/c/product/1434241-REG/garmin%5F010%5F01985%5F31%5Fvivoactive%5F3%5Fmusic%5Fgps.html)
@@ -66,13 +73,6 @@ Lifewire / Andy Zahn
 
  Smartwatches are incredible devices, and the Garmin Vivoactive 3 Music is no exception. It’s remarkable how much advanced tech is crammed below the glass of this diminutive device. I ran it through its paces to see if it can stand out in a crowded and competitive niche.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Attractive and minimalistic**
 
  At first glance, you could be forgiven for not realizing that the Garmin Vivoactive 3 Music is a[smartwatch](https://www.lifewire.com/an-introduction-to-smart-watches-3441381) . Its round, modern, minimalist design is attractive but subtle. The face of the watch is made of scratch-resistant Corning Gorilla Glass 3, the case is built of rugged polymer, and the strap is silicone. This rugged construction comes with a waterproofing rating of 5 atmospheres (ATM), which means it’s rated down to 163 feet. However, it’s worth noting that this watch isn’t intended for diving use.
@@ -81,14 +81,14 @@ Lifewire / Andy Zahn
 
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/M4iaS5RgiaubncJH8F-ZLVQQ8Po=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivoactive-3-Music-Smart-Watch-2-a0cd2c48cc0d423d85a3dc1f7e677160.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Comfort: On the small side**
 
@@ -97,6 +97,13 @@ Lifewire / Andy Zahn
  The size of the watch itself is reasonably compact and comparable to larger traditional watches. It weighs only 39 grams, light enough to not feel like a burden.
 
  The included band was a little small for my extra-large 9-inch wrists.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Fairly straightforward**
 
@@ -112,6 +119,13 @@ Lifewire / Andy Zahn
 
 The touchscreen interface is responsive, though a bit laggy.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Battery: Variable duration**
 
  How long the battery in the Vivoactive 3 Music lasts depends entirely on how it’s used. If you only use its smartwatch capabilities occasionally then it’s good for a week at a time. However, when I made use of GPS, music, and other power-intensive features, it would run out in less than a full day of use.
@@ -119,13 +133,6 @@ The touchscreen interface is responsive, though a bit laggy.
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/NdBt6UHu7uQUfRZfJN5BzwIEad8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivoactive-3-Music-Smart-Watch-3-18b432ab56ac4ef284ba74ffd1ec7f82.jpg)
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: Proprietary ecosystem**
 
@@ -142,20 +149,13 @@ The touchscreen interface is responsive, though a bit laggy.
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/dALT4qb1vS9VNEvePqYoZlqXX0s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivoactive-3-Music-Smart-Watch-4-a84ac637f7034353bffd90856070a7d8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Reasonable value**
 
@@ -201,22 +201,22 @@ The touchscreen interface is responsive, though a bit laggy.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-the-ultimate-streamers-choice-is-obs-better-than-twitch-studio/"><u>[Updated] 2024 Approved The Ultimate Streamer's Choice Is OBS Better Than Twitch Studio?</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-the-power-of-photo-editing-techniques-to-add-text-in-windowsmacos/"><u>2024 Approved Unveiling the Power of Photo Editing Techniques to Add Text in Windows/MacOS</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/5-most-effective-methods-to-unlock-apple-iphone-13-mini-in-lost-mode-by-drfone-ios/"><u>5 Most Effective Methods to Unlock Apple iPhone 13 mini in Lost Mode</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/beyond-the-mic-advanced-strategies-for-professional-voice-over-work/"><u>Beyond the Mic Advanced Strategies for Professional Voice-Over Work</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/cracking-the-code-to-cookery-combat-an-in-depth-review-of-overcooked-2/"><u>Cracking the Code to Cookery Combat: An In-Depth Review of Overcooked! 2</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/critical-insights-on-googles-pixel-slate-and-its-chromeos-woes/"><u>Critical Insights on Google's Pixel Slate and Its ChromeOS Woes</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/deciding-between-ring-and-nest-a-closer-look-at-the-pros-and-cons-of-each-doorbell/"><u>Deciding Between Ring and Nest? A Closer Look at the Pros and Cons of Each Doorbell</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/decoding-tablet-cpus-a-buyers-guide-to-choosing-the-right-processor-for-your-device/"><u>Decoding Tablet CPUs: A Buyer's Guide to Choosing The Right Processor For Your Device</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/discover-the-top-10-iphone-data-recovery-applications-supporting-ios-pertinent-to-google-search-engine-ios-17-supported/"><u>Discover the Top 10 iPhone Data Recovery Applications Supporting iOS Pertinent to Google Search Engine: [IOS 17 Supported]</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-motorola-edge-2023-has-native-mov-support-by-aiseesoft-video-converter-play-mov-on-android/"><u>Does Motorola Edge 2023 has native MOV support?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-performance-does-the-asus-rt-ac8/"><u>Evaluating Performance: Does the Asus RT-AC8</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-the-most-cost-effective-iseebell-video-doorbells-in-depth-reviews/"><u>Evaluating the Most Cost-Effective ISeeBell Video Doorbells: In Depth Reviews</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-unmatched-convenience-with-the-audew-handheld-air-pump-review-compact-functional-reliable/"><u>Experience Unmatched Convenience with the Audew Handheld Air Pump Review: Compact, Functional, Reliable</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-picks-most-reliable-and-fastest-travel-wi-fi-routers-of-2024/"><u>Expert Picks: Most Reliable and Fastest Travel Wi-Fi Routers of 2024</u></a></li>
-<li><a href="https://win-hot.techidaily.com/how-to-efficiently-shrink-mov-video-files-without-spending-a-penny/"><u>How to Efficiently Shrink MOV Video Files Without Spending a Penny</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-asuss-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Asuss Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/in-depth-analysis-of-the-google-pixel-tablet-surpassing-expectations/"><u>In-Depth Analysis of the Google Pixel Tablet: Surpassing Expectations</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-critical-alternatives-to-twitter-the-best-5/"><u>[New] In 2024, Critical Alternatives to Twitter The Best 5</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-optimizing-content-sharing-from-twitters-to-snaps/"><u>[Updated] 2024 Approved Optimizing Content Sharing From Twitters to Snaps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-media-meld-space/"><u>[Updated] Media Meld Space</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/combining-form-and-function-exclusive-insights-on-moto-g-powers-stellar-battery-capabilities/"><u>Combining Form and Function: Exclusive Insights on Moto G Power's Stellar Battery Capabilities</u></a></li>
+<li><a href="https://games-able.techidaily.com/correcting-freezing-graphics-display-error-0x887a0006-fixes/"><u>Correcting Freezing Graphics Display - Error 0X887A0006 Fixes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723086572957-creative-sound-blaster-zxr-review-a-comprehensive-look-at-the-top-2013-gaming-audio-card/"><u>Creative Sound Blaster ZXR Review - A Comprehensive Look at the Top 2013 Gaming Audio Card</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-reviews-top-tier-mice-to-boost-productivity-on-your-mac/"><u>Expert Reviews: Top-Tier Mice to Boost Productivity on Your Mac</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-versatile-linksys-max-stream-ac1900-muaa2000-a-router-that-fits-every-lifestyle/"><u>Exploring the Versatile Linksys Max-Stream AC1900 (MUAA2000): A Router That Fits Every Lifestyle</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Samsung Galaxy A05s | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-harmonious-hits-the-timeless-and-inescapable-tiktok-soundtracks-folk-pop-collaboration/"><u>In 2024, Harmonious Hits The Timeless and Inescapable TikTok Soundtracks (Folk-Pop Collaboration)</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-y78-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo Y78 5G to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/making-money-in-the-20-second-space-the-youtube-shorts-playbook-for-2024/"><u>Making Money in the 20-Second Space The YouTube Shorts Playbook for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-mobvoi-ticwatch-e2-on-a-budget-is-it-really-cheap-enough-to-ignore-its-flaws/"><u>The Mobvoi TicWatch E2 on a Budget - Is It Really Cheap Enough to Ignore Its Flaws?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-the-moto-g-with-stylus-exceptional-functionality-and-adequate-power-reserves/"><u>The Ultimate Review of the Moto G with Stylus: Exceptional Functionality and Adequate Power Reserves</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/thrifty-gamers-rejoice-a-closer-look-at-the-impressive-balance-of-price-and-power-in-ibuypower-pcs/"><u>Thrifty Gamers Rejoice: A Closer Look at the Impressive Balance of Price and Power in IBuypower PCs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-video-streaming-services/"><u>Top-Rated Video Streaming Services</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ultimate-guide-resolving-critical-startup-issues-before-2024/"><u>Ultimate Guide: Resolving Critical Startup Issues Before 2024</u></a></li>
 </ul></div>
 

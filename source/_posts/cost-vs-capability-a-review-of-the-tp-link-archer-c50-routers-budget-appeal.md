@@ -1,7 +1,7 @@
 ---
 title: "Cost Vs. Capability: A Review of the TP-Link Archer C50 Router's Budget Appeal"
-date: 2024-11-03T01:54:23.158Z
-updated: 2024-11-05T02:15:33.945Z
+date: 2024-11-09T17:57:31.954Z
+updated: 2024-11-15T04:07:01.476Z
 categories:
   - BestProducts
 description: "This Article Describes Cost Vs. Capability: A Review of the TP-Link Archer C50 Router's Budget Appeal"
@@ -40,13 +40,6 @@ Lifewire / Jeremy Laukkonen
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## TP-Link Archer A6 AC1200 Gigabit Smart Wi-Fi Router
 
 ![TP-Link Archer A6 AC1200 Router](https://www.lifewire.com/thmb/eB886Wl9r3D8YMg227kYv9GRkJs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_HeroSquare-3758788658a244148a04b7346643557b.jpg)
@@ -76,10 +69,10 @@ Lifewire / Jeremy Laukkonen
  Specifications don’t always tell the whole story, so I recently spent about five days with a TP-Link Archer A6 plugged into my own network. I tested how well it holds up under daily use with a lot of data-hungry devices connected at once, tested top speeds and range on both bands, and more.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Improved over older designs**
@@ -90,18 +83,18 @@ Lifewire / Jeremy Laukkonen
 
 ![TP-Link Archer A6 AC1200](https://www.lifewire.com/thmb/eeaRHW4APuNCYThw1t-TVwYpmSI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_04-4739ffd6705348959e05e41ab9da2292.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
  The ports and power button are all found on the back of the unit in a fairly standard array, and you’ll find the indicator LEDs on top near the front edge. The positioning is good for desktop use, and it also leaves the indicators clearly visible when wall mounted.
 
  The Archer A6 doesn’t exactly stand out of the crowd, but it’s a definite improvement over the older C7 that I keep around for testing purposes.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Completely painless once you unwrap the antennas**
 
@@ -115,13 +108,20 @@ Lifewire / Jeremy Laukkonen
 
 ![TP-Link Archer A6 AC1200](https://www.lifewire.com/thmb/2zSHbpT2Rq4Ac-0-u73213g1rlk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_02-8fd53e1cd8284fd4a40091d7896fe8db.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity: Dual-band with MU-MIMO, but lacking in physical ports**
@@ -162,20 +162,14 @@ Lifewire / Jeremy Laukkonen
 
 ![TP-Link Archer A6 AC1200](https://www.lifewire.com/thmb/2qgk2j764OivVDjAgICPpQb-Xig=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_03-7abb56dd933947dc892f8ec43ef36863.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Good price for the features**
 
@@ -231,18 +225,22 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-easy-process-invert-video-order-using-vlc-application-for-2024/"><u>[New] Easy Process Invert Video Order Using VLC Application for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-master-your-images-top-10-pixlr-hacks-revealed/"><u>[Updated] 2024 Approved Master Your Images Top 10 Pixlr Hacks Revealed</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-smartphone-intro-maker-tools-choosing-the-right-one/"><u>[Updated] In 2024, Smartphone Intro Maker Tools Choosing the Right One</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-luxury-in-smartphones-a-comprehensive-review-of-the-nokia-71-display-and-camera/"><u>Affordable Luxury in Smartphones: A Comprehensive Review of the Nokia 7.1 Display & Camera</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/amazon-prime-day-alert-secure-spectacular-discounts-on-top-tier-samsung-tech-products/"><u>Amazon Prime Day Alert! Secure Spectacular Discounts on Top-Tier Samsung Tech Products</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/awaken-gently-with-totobays-new-genesis-the-ultimate-guide-to-the-best-value-wake-up-light/"><u>Awaken Gently with Totobay's New Genesis: The Ultimate Guide to the Best Value Wake-Up Light</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/best-deals-alert-save-big-on-premium-benq-displays-for-prime-event/"><u>Best Deals Alert: Save Big on Premium BenQ Displays for Prime Event!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/bouncie-gps-tracking-solution-an-easy-to-use-and-budget-friendly-car-locator/"><u>Bouncie GPS Tracking Solution - An Easy-to-Use & Budget-Friendly Car Locator</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/breakdown-the-compelling-case-for-buying-an-ipad/"><u>Breakdown: The Compelling Case for Buying an iPad</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/infusing-musical-streams-of-youtube-in-videos-for-2024/"><u>Infusing Musical Streams of YouTube in Videos for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/quashing-the-spontaneous-search-on-win11-pc/"><u>Quashing the Spontaneous Search on Win11 PC</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ng-hair-videos-into-income-streams/"><u>Turning Hair Videos Into Income Streams</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/unstuck-from-silence-solutions-for-a-nonfunctional-voice-chat-in-lol/"><u>Unstuck From Silence: Solutions for a Nonfunctional Voice Chat in LoL</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-from-mobile-to-hard-drive-best-online-and-os-x-exporters-for-instagram-videos-for-2024/"><u>[New] From Mobile to Hard Drive Best Online and OS X Exporters for Instagram Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-unlocking-your-most-watched-fb-movies-for-2024/"><u>[New] Unlocking Your Most-Watched Fb Movies for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-discovering-free-screen-recorders-insightful-review-best-picks-for-2024/"><u>[Updated] Discovering Free Screen Recorders – Insightful Review, Best Picks for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-leverage-tags-a-step-by-step-youtube-tactical-guide-for-2024/"><u>[Updated] Leverage Tags A Step-by-Step YouTube Tactical Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unleashing-potential-mastering-advertising-partnerships-with-famebit/"><u>[Updated] Unleashing Potential Mastering Advertising Partnerships with FameBit</u></a></li>
+<li><a href="https://article-tips.techidaily.com/10plus-video-presentation-ideas-to-inspire-you/"><u>10+ Video Presentation Ideas to Inspire You</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/disneyplus-tightens-control-over-account-access-with-new-password-rules-starting-in-summer/"><u>Disney+ Tightens Control Over Account Access with New Password Rules Starting in Summer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/effortlessly-organize-and-navigate-your-google-tv-with-our-cutting-edge-home-screen-enhancement/"><u>Effortlessly Organize and Navigate Your Google TV with Our Cutting-Edge Home Screen Enhancement</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/embracing-mobile-the-benefits-of-ditching-kindle-for-phone-based-ereading-experiences/"><u>Embracing Mobile: The Benefits of Ditching Kindle for Phone-Based eReading Experiences</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ensuring-endurance-of-retro-gaming-why-sega-outperforms-all-with-their-classic-arcade-conservation-techniques/"><u>Ensuring Endurance of Retro Gaming: Why Sega Outperforms All with Their Classic Arcade Conservation Techniques</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/explore-free-and-reliable-streaming-options-ditch-steam-link-and-discover-open-source-solutions/"><u>Explore Free & Reliable Streaming Options: Ditch Steam Link & Discover Open Source Solutions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-boundaries-of-unlimited-dvr-what-are-you-actually-getting/"><u>Exploring the Boundaries of Unlimited DVR – What Are You Actually Getting?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/get-everyone-involved-with-couch-co-op-gaming-a-perfect-way-to-captivate-non-playing-friends-and-family/"><u>Get Everyone Involved with Couch Co-Op Gaming - A Perfect Way to Captivate Non-Playing Friends and Family!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/get-exclusive-discount-save-hundreds-with-xgimi-mogo-2-pro-mini-portable-projector/"><u>Get Exclusive Discount: Save Hundreds with XGIMI MoGo 2 Pro Mini Portable Projector!</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-tricks-to-transform-iphone-shots/"><u>In 2024, Innovative Tricks to Transform iPhone Shots</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-mastering-hues-a-collection-of-the-best-11-video-tutorials/"><u>In 2024, Mastering Hues A Collection of the Best 11 Video Tutorials</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/mastering-quieter-recordings-basic-or-advanced-techniques/"><u>Mastering Quieter Recordings - Basic or Advanced Techniques</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The AR-5 Experience: Unbeatable Performance at a Price That Won't Break the Bank."
-date: 2024-11-01T22:59:50.724Z
-updated: 2024-11-04T21:23:52.497Z
+date: 2024-11-11T01:05:08.154Z
+updated: 2024-11-14T17:59:39.770Z
 categories:
   - BestProducts
 description: "This Article Describes The AR-5 Experience: Unbeatable Performance at a Price That Won't Break the Bank."
@@ -91,21 +91,7 @@ Jeremy Laukkonen / Lifewire
 
 ![Mac mini](https://www.lifewire.com/thmb/xpt3pmIvU6FTBUo0tBDpyp3BERE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mac-Mini-M1-2020-Computer-3-844f657110aa424db6f1e5bac1b19eda.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Jeremy Laukkonen / Lifewire
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Setup Process: Fast and painless, but you can’t use a Bluetooth keyboard or mouse
 
@@ -114,6 +100,13 @@ Jeremy Laukkonen / Lifewire
  The one wrinkle that you may run into is that you can’t set up the Mac mini with a Bluetooth keyboard and mouse. You’ll need to plug a wired keyboard and mouse in to complete the setup process and then pair your Bluetooth hardware, or use a keyboard and mouse combo that uses a wireless dongle.
 
  For example, I was able to plug in the dongle from my Logitech K400+ Touch Keyboard, and the Mac mini recognized the peripheral immediately. That allowed me to complete the setup process without digging around for wired peripherals.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Performance: Unreal performance with some hiccups
 
@@ -136,10 +129,10 @@ Jeremy Laukkonen / Lifewire
  Jeremy Laukkonen / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Gaming: Limited but promising
@@ -162,13 +155,6 @@ Jeremy Laukkonen / Lifewire
 
  Aside from lack of support from game developers, the only real drawback here in terms of gaming comes from the HDMI port itself. While the M1 Mac mini can pump out[4K graphics](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) , it’s limited to a 60Hz refresh rate. That’s fine for most casual gamers, but anyone who has fallen in love with their high refresh rate monitor will experience a bit of pain here.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Productivity: Ready for work
 
  The great thing about the Mac mini line is that it’s always been so flexible. You can use a Mac mini for work, but the size and relative affordability of the hardware means you aren’t locked into using it that way. If you do aim to use an M1 Mac mini for work though, it’s more than up to the task. Native apps and the operating system itself run fast and smooth as you could possibly hope, with none of the sitting around looking at spinning beach balls that you may have gotten used to with older hardware.
@@ -181,6 +167,13 @@ Jeremy Laukkonen / Lifewire
 
  Multitasking also works flawlessly, and I was able to juggle an impressive number of browser windows, intensive apps like Photoshop and Handbrake, voice and video chat over Discord, and more without running into any real problems.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Audio: It’s there if you need it
 
  The M1 Mac mini is great in almost every category, but audio isn’t one of them. There’s a speaker inside that sleek aluminum block, but it isn’t one you’ll care to listen to. It’s tinny and hollow, and absolutely a placeholder for more capable external speakers. You’ll want to hook up headphonesor some kind of speakers or soundbar shortly after setting the M1 Mac mini up, because the built-in speaker isn’t really even suitable for watching YouTube videos, let alone listening to music or streaming your favorite shows or movies.
@@ -189,14 +182,14 @@ Jeremy Laukkonen / Lifewire
 
 ![Mac mini](https://www.lifewire.com/thmb/OZrKjTPGUmo00carhaedBa9WhTU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mac-Mini-M1-2020-Computer-5-bc84da59dfdf440c8d53a096509c232b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Jeremy Laukkonen / Lifewire
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Network: Solid Ethernet and Wi-Fi 6 connectivity
 
@@ -218,20 +211,33 @@ Jeremy Laukkonen / Lifewire
 
  For the time being, the trade off is that Big Sur and native apps like Safari run extremely well, and with remarkably low power consumption and heat generation compared to Intel Macs.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: More affordable than ever
 
  The Mac mini saw a price increase alongside its last major retool, but Apple actually played against tradition and handed us a price reduction with the transition to M1 hardware. The baseline M1 Mac mini is actually hundreds of dollars cheaper than the previous iteration of the hardware, which is remarkable considering how much more powerful it is. The last Intel Mac mini was already a good deal, so the even cheaper M1 Mac mini looks even better in comparison. Considering its capabilities, it’s also a good deal when compared to non-Apple mini desktop hardware like the Intel NUC lineup.
 
 ![Mac mini](https://www.lifewire.com/thmb/G2V98ugnO-cdk-GaL11FUP0RWvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mac-Mini-M1-2020-Computer-7-c899b9f13f09448699fee766ab51a2bd.jpg)
 
- Jeremy Laukkonen / Lifewire
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Jeremy Laukkonen / Lifewire
 
 ## Mac Mini M1 vs. Mac Mini Intel
 
@@ -253,16 +259,16 @@ Jeremy Laukkonen / Lifewire
 
  The Apple Mac mini with M1 is a tremendously impressive piece of hardware, offering staggering performance at an affordable price. The only real catch here is that in leaving Intel behind, Apple may have left you in the lurch. If you currently can’t get by without running specific apps through Windows by way of Bootcamp, then the M1 Mac mini just isn’t what you’re looking for. If you can live and work in a world that’s entirely free of Windows, then the M1 Mac mini is ready to welcome you home.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Apple iPad Air 4](https://www.lifewire.com/apple-ipad-air-4-review-5091874)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -297,17 +303,18 @@ Jeremy Laukkonen / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-channel-dynamo-craft-your-content-empire-for-2024/"><u>[New] Channel Dynamo Craft Your Content Empire for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-virtual-warriors-journey-7-intense-fps-games/"><u>[New] Virtual Warriors’ Journey - 7 Intense FPS Games</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-top-ios-slideshow-creation-tools-xs-max-a9-for-2024/"><u>[Updated] Top iOS Slideshow Creation Tools (XS Max - A9) for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-innovative-templates-for-stellar-youtube-video-decks/"><u>2024 Approved Innovative Templates for Stellar YouTube Video Decks</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-unleash-potential-in-online-collaboration-using-snap-photography/"><u>2024 Approved Unleash Potential in Online Collaboration Using Snap Photography</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/mastering-windows-10-power-management-understanding-the-battery-report-function/"><u>Mastering Windows 10 Power Management: Understanding the Battery Report Function</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-power-of-the-fitbit-versa-2-for-health-enthusiasts-in-depth-review-and-insights-into-its-advanced-smartwatch-capabilities/"><u>The Power of the Fitbit Versa 2 for Health Enthusiasts: In-Depth Review and Insights Into Its Advanced Smartwatch Capabilities</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-troubled-reality-behind-microsofts-expensive-and-inconsistent-surface-duo/"><u>The Troubled Reality Behind Microsoft's Expensive and Inconsistent Surface Duo</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-fujitsu-scansnap-ix1400-revolutionizing-document-management-in-home-and-small-business-settings/"><u>The Ultimate Guide to the Fujitsu ScanSnap iX1400: Revolutionizing Document Management in Home and Small Business Settings</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-reviews-for-a-12-sheets-capacity-security-enhanced-amazonbasals-shredder/"><u>Top Reviews for a 12-Sheets Capacity, Security Enhanced AmazonBasals Shredder</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unleashing-potential-the-windows-10-11-evolution-guide/"><u>Unleashing Potential: The Windows 10-11 Evolution Guide</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/be-creator-studio-vs-youtube-studio-beta-which-one-is-better/"><u>YouTube Creator Studio Vs. YouTube Studio (Beta) Which One Is Better?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-step-by-step-visual-tutorial-applying-filters-and-masks-in-meet-for-2024/"><u>[New] Step-by-Step Visual Tutorial Applying Filters & Masks in Meet for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-earnings-escalate-500-subscriber-marker-achieved-for-2024/"><u>[Updated] Earnings Escalate 500-Subscriber Marker Achieved for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-perfecting-sound-levels-in-recordings-step-by-step-guide/"><u>2024 Approved Perfecting Sound Levels in Recordings Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/como-realizar-efectivamente-la-copia-de-seguridad-de-su-carpeta-con-facil-guia-del-usuario/"><u>Cómo Realizar Efectivamente La Cópia De Seguridad De Su Carpeta Con Fácil Guía Del Usuario</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/effective-techniques-for-shrinking-4k-and-full-hd-dslr-footage-without-compromising-on-clarity/"><u>Effective Techniques for Shrinking 4K and Full HD DSLR Footage Without Compromising on Clarity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-samsung-galaxy-tab-s7-the-perfect-choice-for-android-enthusiasts/"><u>Expert Analysis of the Samsung Galaxy Tab S7 - The Perfect Choice for Android Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/high-performance-heat-management-or-costly-overkill-a-review-of-thermaltake-massive-tm-for-laptops/"><u>High-Performance Heat Management or Costly Overkill? A Review of Thermaltake Massive TM for Laptops</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-how-to-fix-obs-high-encoding-problem/"><u>In 2024, How To Fix OBS High Encoding Problem?</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-step-by-step-autotune-implementation-for-audio-editors-on-audacity/"><u>New Step-by-Step AutoTune Implementation for Audio Editors on Audacity</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-unlock-the-power-of-slow-motion-in-windows-live-movie-maker-updated-2023-for-2024/"><u>New Unlock the Power of Slow Motion in Windows Live Movie Maker (Updated 2023) for 2024</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-7-plus-data-from-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone 7 Plus Data From iTunes | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/softwares-evolution-the-art-of-small-tweaks-vs-bold-changes/"><u>Software's Evolution: The Art of Small Tweaks vs Bold Changes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-paradox-of-the-microsoft-surface-go-unpacking-its-attractive-price-tag-and-perplexing-role-conflict/"><u>The Paradox of the Microsoft Surface Go: Unpacking Its Attractive Price Tag and Perplexing Role Conflict.</u></a></li>
 </ul></div>
 

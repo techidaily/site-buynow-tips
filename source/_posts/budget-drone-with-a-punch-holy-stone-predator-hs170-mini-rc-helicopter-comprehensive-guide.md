@@ -1,7 +1,7 @@
 ---
 title: "Budget Drone with a Punch: Holy Stone Predator HS170 Mini RC Helicopter Comprehensive Guide"
-date: 2024-10-31T17:43:29.687Z
-updated: 2024-11-04T17:33:04.649Z
+date: 2024-11-10T07:37:49.178Z
+updated: 2024-11-15T05:57:34.641Z
 categories:
   - BestProducts
 description: "This Article Describes Budget Drone with a Punch: Holy Stone Predator HS170 Mini RC Helicopter Comprehensive Guide"
@@ -38,15 +38,22 @@ Lifewire / Jeremy Laukkonen
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Acer Aspire E 15
 
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/HSg9y4iyVf3W5ur1W36JJhp-BNM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1lW4043278-Acer-Aspire-5-c1e432cd86444d3a9d55eb391bdffb0b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -84,13 +91,6 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: A decent plastic case, but not exactly a premium look**
 
  Aesthetics may be the Acer Aspire E 15’s weakest area — it’s a big, chunky[laptop](https://www.lifewire.com/best-laptops-for-college-students-to-buy-4071769) that measures in at over an inch thick at the rear and tapers to a bit less than an inch at the front. It also tips the scales at over five pounds, which is definitely on the heavy side for a 15.6” laptop.
@@ -113,18 +113,18 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Display: Full HD display with awesome contrast but washed-out color**
 
  While the Aspire E 15’s screen isn’t the brightest or most colorful in the world, it is a full HD display that absolutely shines compared to the low-resolution screens found on a lot of laptops in this category.
 
  The display has decent viewing angles and great contrast, but the colors are a bit washed out. It’s fine for watching videos on YouTube and Netflix—and DVDs, of course—but it wouldn’t be our first choice for movie night. It’s definitely a display that’s best suited for work, with media and gaming as afterthoughts.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Outperforms the competition, but suffers from a slow HDD**
 
@@ -149,10 +149,10 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
  The takeaway is that we absolutely wouldn’t recommend buying this laptop for the purpose of playing games, but it is capable of rising to the task if you’re willing to lower the settings and stick to older games.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Productivity: Gets the job done at work, home, or on the go**
@@ -170,13 +170,6 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
  The speakers are decent enough, but the audio quality is still one of the Aspire E 15’s weaker points. They just don’t get all that loud, and when we did crank the volume all the way up, we noticed a bit of distortion in some frequency ranges. There isn’t a whole lot of bass, either, so everything sounds a little tinny—and that only gets worse at louder volumes.
 
  Strangely enough, the audio is actually louder and clearer when the[laptop](https://www.lifewire.com/14-16-inch-laptops-833846) is sitting on a flat surface. It seems like there is a lot of sound escaping from the vents as well as through the actual speaker grills, and placing it on a solid surface seems to improve the audio quality.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Network: Great speeds on both 5 GHz and 2.4 GHz networks**
 
@@ -200,29 +193,22 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  In a category where a lot of competing devices die out after four or five hours, that’s pretty remarkable.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software: Bogged down by bloatware**
 
  The Acer Aspire E 15 comes with Windows 10, some basic Windows apps, and a free trial of[Microsoft 365](https://www.lifewire.com/how-to-install-office-365-4589808) . It also comes with a whole bunch of bloatware from Acer, Netflix, Evernote, an outdated version of Firefox, and several games you probably won’t want or need.
 
  If you’re a Firefox user, it might be nice to have that already downloaded (just remember to update it immediately). But the rest of this bloatware is most likely going to be an annoyance that needs to get uninstalled.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Extremely competitive pricing**
 
  With an MSRP of just $380, the Aspire E 15 is a fantastic deal. If you can get it for even less than that, then it’s truly a steal. The more expensive configuration with an SSD, discrete graphics, and Core i7, is also a good deal at an MSRP of $599 if you have a little more room in your budget.
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Blows the competition out of the water in almost every category**
 
@@ -240,11 +226,25 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  The Acer Aspire E 15 hits almost all the right notes while keeping the price way, way down. If you have a little room in your budget, it’s worth investing in the more expensive configuration of this laptop, which comes with a discrete NVIDIA graphics card for gaming, extra RAM, and a speedy SSD.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Asus Chromebook C202SA](https://www.lifewire.com/asus-chromebook-c202sa-review-4589359)
 * [Microsoft Surface Go](https://www.lifewire.com/microsoft-surface-go-review-4690827)
 * [Lenovo Ideapad 320](https://www.lifewire.com/lenovo-ideapad-320-review-4686723)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -275,18 +275,20 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-harnessing-success-with-freefire-hashtag-tips/"><u>[Updated] In 2024, Harnessing Success with FreeFire Hashtag Tips</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-prime-web-gems-crafting-unique-wrapped-masterpieces/"><u>[Updated] Prime Web Gems Crafting Unique Wrapped Masterpieces</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-innovation-or-confused-device-the-microsoft-surface-go-evaluated/"><u>Affordable Innovation or Confused Device? The Microsoft Surface Go Evaluated</u></a></li>
-<li><a href="https://win-blog.techidaily.com/1723006250292-alien-fireteam-elite-game-stability-issues-on-pc-solved/"><u>Alien Fireteam Elite Game Stability Issues on PC - Solved</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/android-enthusiasts-rejoice-discover-why-the-samsung-galaxy-tab-s7-is-a-top-choice/"><u>Android Enthusiasts Rejoice! Discover Why the Samsung Galaxy Tab S7 Is a Top Choice</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-amazon-fire-hd-10-assessment-the-ultimate-family-friendly-media-device/"><u>Comprehensive Amazon Fire HD 10 Assessment: The Ultimate Family-Friendly Media Device</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-samsung-galaxy-tab-a-2020-uncover-the-absence-of-crucial-functionality/"><u>Comprehensive Analysis of Samsung Galaxy Tab A (2020): Uncover the Absence of Crucial Functionality</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-asus-rt-ax88u-ax6000-revolutionary-smart-wifi-6-router-performance/"><u>Comprehensive Review: Asus RT-AX88U AX6000 - Revolutionary Smart WiFi 6 Router Performance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/critical-review-of-samsungs-high-end-yet-underwhelming-tv-model-un65nu8000fxza/"><u>Critical Review of Samsung's High-End, Yet Underwhelming TV Model - UN65NU8000FXZA</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/forgotten-the-voicemail-password-of-xiaomi-13t-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Xiaomi 13T? Try These Fixes</u></a></li>
-<li><a href="https://fox-shield.techidaily.com/how-to-transform-static-chm-files-into-interactive-ebooks-with-toc-features-learn-the-easy-way/"><u>How to Transform Static CHM Files Into Interactive eBooks with TOC Features - Learn the Easy Way!</u></a></li>
-<li><a href="https://fox-links.techidaily.com/overcome-oversaturated-tiktok-drafters-through-savvy-edits/"><u>Overcome Oversaturated TikTok Drafters Through Savvy Edits</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/redefine-your-document-creation-10-must-have-ai-apps/"><u>Redefine Your Document Creation: 10 Must-Have AI Apps</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-virtual-arena-transcript/"><u>[New] Virtual Arena Transcript</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-harnessing-the-power-of-visual-education-techniques/"><u>[Updated] Harnessing the Power of Visual Education Techniques</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-head-to-head-review-of-ring-and-nest-doorbells-which-one-won-me-over/"><u>A Head-to-Head Review of Ring and Nest Doorbells: Which One Won Me Over?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/a-list-ringtone-picks-for-adoring-tyrion-lannister-fans/"><u>A-List Ringtone Picks for Adoring Tyrion Lannister Fans</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/acers-ultimate-prime-day-offers-save-big-during-the-2024-sales-event/"><u>Acer's Ultimate Prime Day Offers: Save Big During the 2024 Sales Event!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/anticipating-apple-m4-when-to-expect-it-and-what-power-it-packs/"><u>Anticipating Apple M4: When to Expect It and What Power It Packs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-lenovo-chromebook-csu3-the-modern-laptop-alternative/"><u>Comprehensive Evaluation of the Lenovo Chromebook CSU3 - The Modern Laptop Alternative</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elite-collection-of-the-years-best-external-bd-burner-devices/"><u>Elite Collection of the Year's Best External BD Burner Devices</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-future-earning-potential-in-gaming-videos/"><u>In 2024, Future Earning Potential in Gaming Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/master-your-digital-art-top-rated-free-darkroom-software-lightzone-available-across-all-operating-systems/"><u>Master Your Digital Art: Top Rated Free Darkroom Software Lightzone Available Across All Operating Systems.</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/premier-pdf-enhancements-for-2024/"><u>Premier PDF Enhancements for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-keyboard-wrist-supports-for-comfortable-typing-in-2n4/"><u>Top-Rated Keyboard Wrist Supports for Comfortable Typing in 2N4</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/user-insights-and-experts-opinions-on-truecaller/"><u>User Insights and Experts' Opinions on TrueCaller</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/what-to-expect-from-the-samsung-galaxy-z-flip-7plus-price-forecasts-release-details-and-insights-on-new-specs/"><u>What to Expect From the Samsung Galaxy Z Flip 7+ - Price Forecasts, Release Details & Insights on New Specs</u></a></li>
 </ul></div>
 

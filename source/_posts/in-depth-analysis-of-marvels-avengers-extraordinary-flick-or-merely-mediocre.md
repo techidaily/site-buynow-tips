@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis of Marvel's Avengers: Extraordinary Flick or Merely Mediocre?"
-date: 2024-09-04T19:48:05.657Z
-updated: 2024-09-05T19:48:05.658Z
+date: 2024-11-14T00:10:53.040Z
+updated: 2024-11-14T22:03:57.359Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis of Marvel's Avengers: Extraordinary Flick or Merely Mediocre?"
@@ -42,6 +42,13 @@ Lifewire / Andy Zahn
 
 ![Marvel's Avengers](https://www.lifewire.com/thmb/bVJgMRDIRT4zQQ6dpvVtuNZuoJA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Marvels-Avengers-Game-1-56461f27b96b46f09afebe5fb2856089.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Andy Zahn
 
 [View On Amazon](https://www.amazon.com/Marvels-Avengers-PlayStation-4/dp/B07SFZX5CH/?tag=lifewire-onsite-prod-20&ascsubtag=5088311%7Cnfe9f5e28fd42474bb2cdd9f01ea1a56206%7CB07SFZX5CH) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fmarvels-avengers-playstation-4-playstation-5%2F6352237.p%3FskuId%3D6352237)
@@ -76,11 +83,18 @@ Lifewire / Andy Zahn
  After a bulky 50 GB download, the game launched without issue, first from[Steam](https://www.lifewire.com/what-is-steam-4177380) to a separate launcher where I could adjust graphics and other settings. Next, I was prompted to sign up with a Square Enix account. This step isn't necessary but does unlock some exclusive content. The process of signing up and linking my account was a bit clunky and cumbersome, but I finally bulled through to the main menu.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Story: Solid, if a bit predictable**
 
  The campaign begins in a tutorial level that takes you through an “Avengers Day” fair full of easter eggs and references. This is pretty effective at introducing gameplay mechanics and characters. The story follows Kamala Khan (Ms. Marvel), a hero who fans of the comics may be familiar with but who's likely new to moviegoers. As the campaign progresses you'll recruit additional Avengers, who you can swap between as the story unfolds.
@@ -89,6 +103,13 @@ Lifewire / Andy Zahn
 
 ![Marvel's Avengers](https://www.lifewire.com/thmb/3nTq6bLdCWbR2C_2pwQ1_cOHwEc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Marvels-Avengers-Game-3-76abbc3fedb64f2d8039cfa95c043bac.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
  After several missions, you unlock a hub area from where you can choose to launch both main and side quest missions. Different characters have their own separate stories you can follow, and most can be played cooperatively.
@@ -96,11 +117,18 @@ Lifewire / Andy Zahn
  It’s worth noting that Avengers goes to great lengths to remain age-appropriate with a Teen ESRB rating. For example, at one point a group of unsavory teenagers tries to bully a boy into drinking a bottle of Soda brand soda, and he responds by shoving it violently away. It’s pretty obvious that the soda was originally intended to be an alcoholic beverage. Also, most of the enemies in the game are robots, with the exception of a few human bad guys in costumes so outlandish they could easily be mistaken for robots. In some ways this game is even tamer than the MCU films.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Gameplay: A joy that wanes with time**
 
  Combat and navigation are competent and fun. The control scheme is very typical of third-person action games. Platforming segments are entertaining if somewhat scripted, and in general it’s fun to move around. The game does a good job of context-sensitive movement such as squeezing through a crack or taking cover behind walls in stealth sequences.
@@ -118,39 +146,22 @@ Lifewire / Andy Zahn
  Difficulty scaling is another problem the longer you play. As your power increases so does the power of your enemies, which means it’s hard to maintain that initial feeling of being an invincible superhero. There's also something very disappointing about playing as Hulk and having to slowly chip at an enemy's wellness bar at the same rate as any other character.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Customization: Compromised by monetization**
 
  Customization is split between skills, gear, and cosmetics. Skills are earned by gaining experience and buying new combat abilities. Gear is found in-game and can be crafted and upgraded. Unfortunately, it doesn’t alter your character's appearance and only provides incremental stat improvements, so it ends up feeling pretty meaningless. The only thing that changes your character's appearance is cosmetics, which can be earned by lengthy grinding in-game, but are available for purchase via a microtransaction marketplace.
 
 ![Marvel's Avengers](https://www.lifewire.com/thmb/qOCpss1qt_evo0lE6ASI-iEcgE4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Marvels-Avengers-Game-4-f72fa3ece4a24aecb6dfabf7c1ed786d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andy Zahn
 
  The big problem here is that by divorcing cosmetics from gear to enable and encourage non-gameplay affecting microtransactions, Avengers takes away the fun of customizing your gear. It makes the game feel cheap and manipulative.
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Collectibles: Weighed down by knick-knacks**
 
  There’s a lot of stuff to collect throughout Avengers, but way too much of it is junk. Comic books give characters stat boosts, there’re tidbits of lore to pick up if you feel like reading, and then there’s the endless stream of armor and components that you use to boost your character’s power.
@@ -159,18 +170,19 @@ Lifewire / Andy Zahn
 
 ![Marvel's Avengers](https://www.lifewire.com/thmb/1b-tnL1lzsDoFyr0NtwNmgg9YWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Marvels-Avengers-Game-6-44776b5f2a5c4f139599edba51104a76.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
  If raking in that glut of unexciting loot weren’t tiresome enough, managing it’s even more of a pain. You have limited inventory space, which means constantly going through your stash and methodically breaking down items so you can upgrade other gear. If there was more incentive to care about acquiring and managing gear this might be tolerable, or even enjoyable, but as the game is it just feels like busywork.
 
  There’s even more tedium when you factor in the variety of different vendors, each peddling a pile of the same boring gear that is purchased with the broken down components of gear you don’t want.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Multiplayer: Co-op friendly**
 
  Marvel’s Avengers can either be played solo or with up to three other players for multiplayer missions. In such missions you can invite friends, or fill empty player slots with random players or AI-controlled characters. At the time of writing, the number of active players has plummeted, so unless you’re able to rope in some friends, you’ll likely be playing the whole game in single-player mode.
@@ -181,18 +193,6 @@ Lifewire / Andy Zahn
 
  The Avengers isn’t groundbreaking, but it’s still a great looking game.
 
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Graphics: Pretty to look at**
 
  The Avengers isn’t groundbreaking, but it’s still a great looking game. Environments are richly detailed, action sequences are spectacular, and overall it’s very pretty to look at. Character models are remarkably well-rendered and don’t have much of that uncanny valley feel to them. However, as a fan of the films, I found it disconcerting to have familiar characters look and sound like different people. It took me out of the experience at first, though I got used to them over time.
@@ -200,6 +200,13 @@ Lifewire / Andy Zahn
  Set piece moments are particularly spectacular, with a few really cool moments. I could easily imagine some of the more impressive sequences appearing in an Avengers film.
 
 ![Marvel's Avengers](https://www.lifewire.com/thmb/nmKDhn3FkxKkZKDxc4nngV38GLg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Marvels-Avengers-Game-7-3950f99991ab4b728e133d4e48577831.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -219,18 +226,6 @@ Lifewire / Andy Zahn
 
  Marvel’s Avengers has a decent story, fun gameplay, and is by far the most complete video game experience related to this cinematic universe. However, to enjoy that you have to look past all the problems weighing it down, which is a tough ask.
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * Apex Legends
@@ -250,8 +245,6 @@ Lifewire / Andy Zahn
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -259,4 +252,22 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-premier-mac-studio-for-high-quality-recordings/"><u>[New] In 2024, Premier Mac Studio for High-Quality Recordings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/critical-appraisal-of-motorola-one-hyper-why-this-mid-tier-phone-deserves-attention/"><u>Critical Appraisal of Motorola One Hyper: Why This Mid-Tier Phone Deserves Attention</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-why-tech-enthusiasts-are-raving-about-lgs-stunning-65-inch-oled-c9-smart-television/"><u>Discover Why Tech Enthusiasts Are Raving About LG's Stunning 65-Inch OLED C9 Smart Television</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/dive-deep-into-nature-exploring-the-waterproof-w100/"><u>Dive Deep Into Nature: Exploring the Waterproof W100</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/diving-into-galactic-warfare-an-in-depth-analysis-of-star-wars-squadrons/"><u>Diving Into Galactic Warfare: An In-Depth Analysis of Star Wars: Squadrons</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/download-the-best-media-players-top-ranked-free-options-compatible-with-windows-nx10/"><u>Download the Best Media Players: Top-Ranked Free Options Compatible with Windows nX10</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-nokia-31-why-it-stands-out-as-an-exceptional-entry-level-phone/"><u>Evaluating Nokia 3.1: Why It Stands Out as an Exceptional Entry-Level Phone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-a-budget-friendly-nokia-n71-exceptional-screen-quality-and-photo-capabilities-revealed/"><u>Experience a Budget-Friendly Nokia N7.1 – Exceptional Screen Quality and Photo Capabilities Revealed!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-next-level-connectivity-with-the-asus-rog-rapture-gt-ax110-review-for-gamers-and-beyond/"><u>Experience Next-Level Connectivity with the Asus ROG Rapture GT-AX110# Review for Gamers and Beyond</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-nokia-c02-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Nokia C02 to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Motorola Moto G24? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-collaboration-techniques-in-video-making-viewership-up/"><u>In 2024, Collaboration Techniques in Video Making, Viewership Up</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-locked-iphone-11-pro-max-password-learn-the-best-methods-to-unlock-by-drfone-ios/"><u>In 2024, Forgot Locked iPhone 11 Pro Max Password? Learn the Best Methods To Unlock</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saying-thanks-in-30-languages-an-intercultural-companion-154/"><u>Saying Thanks in 30 Languages: An Intercultural Companion (154)</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-discover-the-best-free-iphone-video-rotation-software/"><u>Updated Discover the Best Free iPhone Video Rotation Software</u></a></li>
+</ul></div>
 

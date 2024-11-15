@@ -1,7 +1,7 @@
 ---
 title: Top Rated Wireless Routers in 2
-date: 2024-10-12T18:12:50.132Z
-updated: 2024-10-18T19:06:41.751Z
+date: 2024-11-13T08:53:17.873Z
+updated: 2024-11-15T01:04:27.983Z
 tags:
   - buying-guides
 categories:
@@ -84,6 +84,13 @@ Best Wi-Fi 6E Router
 
  How-To Geek's product recommendations come from the same team of experts that have helped people fix their gadgets over one billion times. We only recommend the best products based on our research and expertise. We never accept payment to endorse or review a product. [Read More »](https://win-howtos.techidaily.com/resolving-unresponsive-mousepad-problems-on-windows-systems-windows-7810/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  Best Wi-Fi Router Overall: [ASUS RT-AX88U Pro](https://www.amazon.com/ASUS-RT-AX88U-Extendable-Rangeboost-Subscription-Free/dp/B0BTTY7QFH?tag=htgprimedaysite-20) 
 
 ![Asus RT-AX88U Pro](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/12/asus-rt-ax88u-pro.jpg) 
@@ -104,6 +111,13 @@ Asus
 
 ![Asus RT-AX88U Pro](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/12/asus-rt-ax88u-pro.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 Best Wi-Fi Router Overall
@@ -119,6 +133,13 @@ The Asus RT-AX88U Pro is an impressive Wi-Fi 6 router that delivers fantastic pe
 ##  Best Budget Router: [TP-Link Archer AC1900 (Archer A8)](https://www.amazon.com/dp/B08C3YBBHM?tag=htgprimedaysite-20) 
 
 ![TP-Link Archer AC1900 (Archer A8)](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/tp-link-archer-ac1900-archer-a8.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 TP-Link
 
@@ -174,13 +195,6 @@ Asus
 
 ![Asus ROG Rapture GT-AX6000](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/12/asus-rog-rapture-gt-ax6000.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 Best Gaming Wi-Fi Router
@@ -192,6 +206,13 @@ $239 $260 Save $21
 The Asus ROG Rapture GT-AX6000 is a solid dual-band Wi-Fi 6 router with multiple gaming-related features, 2.5G WAN and LAN ports, and an impressive performance.  
 
 [See at B&H Photo Video](https://www.bhphotovideo.com/c/product/1685137-REG/asus%5Frog%5Frapture%5Fgt%5Fax6000%5Fdual%5Fband.html) [$239 at Amazon](https://www.amazon.com/ASUS-Rapture-Gaming-Router-GT-AX6000/dp/B09L8PCTPT?tag=htgprimedaysite-20) 
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  Best Mesh Router: [ASUS ZenWiFi AX6600 (XT8)](https://www.amazon.com/ASUS-ZenWiFi-AX-Whole-Home-Tri-Band/dp/B083Q45V1V?tag=htgprimedaysite-20) 
 
@@ -260,13 +281,6 @@ TP-Link
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Best Budget Mesh Wi-Fi Router
 
 #####  TP-Link Deco X20
@@ -277,23 +291,9 @@ TP-Link offers a true budget Mesh router that manages to provide good Wi-Fi 6 pe
 
 [$110 at Amazon](https://www.amazon.com/Mesh-Wifi-6-Router-System/dp/B08D5X9GWC?tag=htgprimedaysite-20) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##  Best Modem Router Combo: [NETGEAR Nighthawk CAX80](https://www.amazon.com/NETGEAR-Nighthawk-Cable-Modem-Router/dp/B082XW53G3?tag=htgprimedaysite-20) 
 
 ![NETGEAR nighthawk on table](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/05/NETGEAR-Nighthawk-CAX80.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 NETGEAR
 
@@ -328,13 +328,6 @@ A combo unit with a Wi-Fi 6 router and a gigabit-capable DOCSIS 3.1 modem.
 
 [See at bestbuy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear%255F%255Fnighthawk%255Fa%2F6398057.p%3FskuId%3D6398057) [See at crutchfield](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.crutchfield.com%2FI-rNARc1AX4%2Fp%255F941CAX80%2FNETGEAR-AX6000-Nighthawk-Cable-Modem-Wi-Fi-6-Router-Combo.html) [$500 at Amazon](https://www.amazon.com/NETGEAR-Nighthawk-Cable-Modem-Router/dp/B082XW53G3?tag=htgprimedaysite-20) 
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##  Best Travel Router: [TP-Link AC750](https://www.amazon.com/TP-Link-Wireless-Travel-Router-TL-WR902AC/dp/B01N5RCZQH?tag=htgprimedaysite-20) 
 
 ![TP-Link AC750 in travel bag](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/05/TP-Link-AC750.jpg) 
@@ -354,13 +347,6 @@ TP-Link
  The [TP-Link AC750](https://www.amazon.com/TP-Link-Wireless-Travel-Router-TL-WR902AC/dp/B01N5RCZQH?tag=htgprimedaysite-20) makes for an excellent travel router. It doesn't have Wi-Fi 6, but let's be honest: neither do most hotel Wi-Fi networks. It's a wireless AC (Wi-Fi 5) router that can deliver speeds of up to 733 Mbps—much faster than what typical hotel Wi-Fi will provide—and it's very inexpensive and compact.
 
 ![tp link ac750](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/12/tp-link-ac750.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
@@ -414,6 +400,13 @@ TP-Link Archer AXE300 shines as a Wi-Fi 6E router thanks to its quad-band suppor
 
  A router creates a local network, forwarding traffic between your local devices and the internet. A Wi-Fi router is a router that also functions as a wireless access point, letting you connect devices to the network over [Wi-Fi](https://extra-support.techidaily.com/updated-plot-craft-guild-bestowed-batch/). Without a router, you could only be able to connect a single device to your internet modem via an [Ethernet](https://facebook-clips.techidaily.com/updated-extract-and-save-fb-videos-the-cutting-edge-of-top-5/) cable. (However, modern modems provided by internet service providers often include built-in Wi-Fi routers.)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How do you reset a Wi-Fi router?
 
  To reboot your Wi-Fi router, unplug its power cable, wait about ten seconds, and plug it back in. To [reset a Wi-Fi router to factory default settings](https://digital-screen-recording.techidaily.com/microcapture-video-logger-analysis-and-options-for-2024/), look for a reset button on the router itself---you will often need to long-press it for ten seconds or so. Check your specific router's documentation for more information.
@@ -438,19 +431,33 @@ TP-Link Archer AXE300 shines as a Wi-Fi 6E router thanks to its quad-band suppor
 
  The most important tip is to [position your router in a good location](https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-nokia-130-music-drfone-by-drfone-virtual-android/). You should also ensure you're connected to the 5 GHz network. We've got [more tips for boosting your Wi-Fi signal](https://facebook-video-content.techidaily.com/updated-the-dawn-of-a-new-era-key-fb-ad-trends-arriving-for-2024/). If none of them works, consider buying a new router, switching to a mesh Wi-Fi system, or perhaps just adding a Wi-Fi extender.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Do routers make noise?
 
  A router shouldn't make much noise. Most home routers don't have fans, but if the router has a cooling fan inside it, you may hear a quiet fan noise while it's running---just like you would on a laptop. Like other electrics, a router might make a buzzing or humming noise while it's running.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How do you tell if Wi-Fi is 2.4 GHz or 5 GHz?
 
  While connected to the Wi-Fi network, you can go into your device's Wi-Fi settings and look through the Wi-Fi network's information to see if it says it's using the ["5 GHz" or "2.4 GHz" network band](https://screen-video-capture.techidaily.com/new-android-without-a-wire-heres-your-free-games-list-for-2024/). (This information is not displayed on all devices.) Most routers use the same Wi-Fi network name for both 2.4GHz and 5GHz by default, and your device automatically connects to the best one at any given time. However, you can set most routers up to have separate network names for the 2.4 GHz and 5 GHz networks, so you'll always know which your device is connected to.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How does my modem affect my router?
@@ -460,13 +467,6 @@ TP-Link Archer AXE300 shines as a Wi-Fi 6E router thanks to its quad-band suppor
 ### How do you find Wi-Fi network congestion?
 
  Congestion could occur when a device is using a lot of bandwidth on your network. Some routers may show the data usage of individual devices in their web interfaces or apps. However, in many cases, you will need to look at the information on each device itself to see which device is using the most data.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How hot do routers get?
 
@@ -487,24 +487,15 @@ TP-Link Archer AXE300 shines as a Wi-Fi 6E router thanks to its quad-band suppor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-charting-social-media-trends-with-data-graphics/"><u>[New] 2024 Approved Charting Social Media Trends with Data Graphics</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-secrets-of-professional-level-iptv-capturing/"><u>[New] 2024 Approved Secrets of Professional-Level IPTV Capturing</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-from-bystander-to-leader-in-the-world-of-insta-essential-tips-and-examples/"><u>[Updated] In 2024, From Bystander to Leader in the World of Insta Essential Tips & Examples</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/alexa-or-siri-showdown-the-essential-comparison-of-echo-dot-and-homepod-mini/"><u>Alexa or Siri Showdown: The Essential Comparison of Echo Dot & HomePod Mini</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/at-127-from-antolin-the-ultimate-guide-to-free-crystal-clear-tv-via-an-elegant-antenna-design/"><u>AT-127 From Antolin: The Ultimate Guide to Free, Crystal Clear TV via an Elegant Antenna Design</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-the-kootek-portable-cooling-stand-top-pick/"><u>Comprehensive Analysis of the Kootek Portable Cooling Stand - Top Pick!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-compact-and-reliable-audew-portable-air-pump-functionality-unmatched/"><u>Comprehensive Review of the Compact and Reliable AUDEW Portable Air Pump - Functionality Unmatched!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/conquer-monster-hunter-world-an-experts-perspective-on-overcoming-unique-hazardous-foes/"><u>Conquer Monster Hunter: World: An Expert's Perspective on Overcoming Unique, Hazardous Foes</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/critical-speaker-features-for-impulse-buyers/"><u>Critical Speaker Features for Impulse Buyers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ddpai-mini3-dashcam-where-quality-meets-enjoyment-on-the-road/"><u>DDPai Mini3 Dashcam - Where Quality Meets Enjoyment on the Road</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-what-sets-the-new-sony-ps5-apart-from-its-predecessor/"><u>Discover What Sets the New Sony PS5 Apart From Its Predecessor</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discovering-the-exceptional-yet-pricey-a-detailed-guide-to-iphone-xs-max/"><u>Discovering the Exceptional yet Pricey - A Detailed Guide to iPhone XS Max</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/diverse-iptv-content-distribution/"><u>Diverse IPTV Content Distribution</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/drafting-dynamic-news-endings-for-2024/"><u>Drafting Dynamic News Endings for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/engage-with-intelligence-key-new-features-of-chatgpt-unveiled/"><u>Engage with Intelligence: Key New Features of ChatGPT Unveiled</u></a></li>
-<li><a href="https://video-capture.techidaily.com/how-to-find-and-download-high-quality-lossless-anime-tracks-in-flac-format/"><u>How to Find and Download High-Quality Lossless Anime Tracks in FLAC Format</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Realme C67 4G | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Motorola Edge 40 Neo | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-windows-11-photo-app-stability-troubleshooting/"><u>In 2024, Mastering Windows 11 Photo App Stability Troubleshooting</u></a></li>
+<li><a href="https://windows11.techidaily.com/add-emulators-to-playnite-a-windows-guide/"><u>Add Emulators to Playnite: A Windows Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/auroras-role-in-enhancing-image-contrast-for-2024/"><u>Aurora's Role in Enhancing Image Contrast for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/behind-the-scenes-youtubes-view-count-algorithm-for-2024/"><u>Behind the Scenes YouTube's View Count Algorithm for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/filler-material-must-be-compatible-with-base-metals-to-prevent-defects/"><u>Filler Material Must Be Compatible with Base Metals to Prevent Defects.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/get-the-best-bang-for-your-buck-with-these-fantastic-fossil-brand-reviews/"><u>Get The Best Bang For Your Buck with These Fantastic Fossil Brand Reviews!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-mastering-the-art-of-youtube-closings-inclusive-guide/"><u>In 2024, Mastering the Art of YouTube Closings [Inclusive Guide]</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-cat-s42-superior-armor-for-your-communications-with-a-tradeoff-in-velocity/"><u>In-Depth Look at the CAT S42: Superior Armor for Your Communications with a Tradeoff in Velocity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-youtube-tv-worth-it-5-reasons-to-sign-up/"><u>Is YouTube TV Worth It? 5 Reasons to Sign Up</u></a></li>
+<li><a href="https://win-able.techidaily.com/total-war-warhammer-3-stability-improvements-no-more-pc-disruptions/"><u>Total War: Warhammer 3 Stability Improvements – No More PC Disruptions!</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-the-ultimate-mac-video-editor-adobe-premiere-pro-for-pros/"><u>Updated In 2024, The Ultimate Mac Video Editor Adobe Premiere Pro for Pros</u></a></li>
 </ul></div>
 

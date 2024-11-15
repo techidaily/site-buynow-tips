@@ -1,7 +1,7 @@
 ---
 title: "The Featherlight Game Changer: A Deep Dive Review Into the Exceptional Battery Life & Mobility of the LG Gram 15.6 Laptop (2018 Edition)"
-date: 2024-10-25T17:28:19.811Z
-updated: 2024-10-29T22:32:15.645Z
+date: 2024-11-14T07:30:03.562Z
+updated: 2024-11-14T18:24:00.324Z
 categories:
   - BestProducts
 description: "This Article Describes The Featherlight Game Changer: A Deep Dive Review Into the Exceptional Battery Life & Mobility of the LG Gram 15.6 Laptop (2018 Edition)"
@@ -42,10 +42,10 @@ Lifewire / Zach Sweat
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/BiBvvSXCg5l15o1T-fJmijAM9PQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
@@ -81,10 +81,10 @@ Lifewire / Zach Sweat
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wRBNGBQw39Gc3PVZ6i0PJB4LuWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-08-406d659ae21641d2b9df53303e8f6d76.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -137,13 +137,20 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/zWvKnnWGsRBdtRIHTYYD7HEs0qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-13-88a6bd8dac13438794a0bb038df7757f.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Gaming: From ok to amazing, if you have the cash**
@@ -173,13 +180,6 @@ Lifewire / Zach Sweat
  If you’ve got a beefy external audio setup with lots of speakers, you’re in luck, as the R9 features tons of ports for your equipment. Ports on the back include a center/subwoofer output, rear surround output, side surround output and two coaxial S/PDIF ports for connecting an amplifier, speakers or a TV for digital audio output through a coaxial cable.
 
  Although true audiophiles will still want to stick with a DAC, or digital-to-analog converter, the Aurora R9 packs in pretty decent audio options for most users.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Network: Solid Ethernet, average Wi-Fi**
 
@@ -211,6 +211,13 @@ Lifewire / Zach Sweat
 
  For RGB fans, the AlienFX hardware and software provides tons of potential combinations with up to 16.8 million color options. Users can take full control of the external RGB along the front and sides of the tower in addition to supported peripherals. Themes you create can also be saved and assigned to specific games, which is a pretty sweet perk.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Not the best bang for your buck**
 
  PC gaming is notoriously expensive to initially get into, but the prices of many components have continued to dwindle over the decades. Although the old adage that building your own computer from scratch is cheaper still holds true, prebuilt computers have also become much more comparable. So how does this Alienware match up?
@@ -224,13 +231,6 @@ Lifewire / Zach Sweat
  Another thing to keep in mind here is that the $850 price point doesn’t include much in the way of peripherals, and these can really add up. The Aurora R9 does include a shoddy Dell keyboard and mouse, but these accessories are definitely the bare minimum, and won’t provide the best experience.
 
  Overall, the price of the R9 is ok at best, and you do get some nice software features from Alienware, but it’s still cheaper to build your own.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Alienware Aurora R9 vs. Dell G5 5090**
 
@@ -276,14 +276,18 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tech-revival.techidaily.com/44cm5a6m5ywo54sh5paz44gn5l244gi44kl6zplusz5qw95oq95ye644oe44o844or77ya44ot44oh44kq44gu5lit44gl44kj44kv44oq44ki44gq44kq44o844oh44kj44kq44oc44kk44k544ks5byv44108/"><u>「完全無料で使える音楽抽出ツール：ビデオの中からクリアなオーディオボイスを引き出せます」</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/communicate-research-findings/"><u>Communicate Research Findings</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/driving-in-comfort-budget-conscious-hearing-aids-for-truckers-reviewed/"><u>Driving in Comfort: Budget-Conscious Hearing Aids for Truckers Reviewed</u></a></li>
-<li><a href="https://games-able.techidaily.com/how-to-fix-vanished-wordle-streak-crash/"><u>How to Fix Vanished Wordle Streak Crash</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-asus-zephyrus-g14-the-ideal-blend-of-gaming-and-convenience/"><u>In-Depth Look at the Asus Zephyrus G14: The Ideal Blend of Gaming and Convenience</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/no-more-nausea-essential-tricks-for-htc-vive-for-2024/"><u>No More Nausea Essential Tricks for HTC Vive for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/perfecting-gopro-cinematography-with-these-15-luts-for-2024/"><u>Perfecting GoPro Cinematography with These 15 LUTs for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/resolving-the-issue-adobe-app-error-code-0xc0000022-how-to-fix-it/"><u>Resolving the Issue: Adobe App Error Code 0xC0000022 - How To Fix It?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/sunbritetv-the-tough-weather-resistant-55-4k-veranda-television-featuring-high-dynamic-range-for-clear-viewing/"><u>SunBriteTV: The Tough, Weather-Resistant 55 4K Veranda Television Featuring High Dynamic Range for Clear Viewing.</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-novice-nests-in-mc-the-essential-guide-to-housing/"><u>[New] 2024 Approved Novice Nests in MC The Essential Guide to Housing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-blueprint-of-unique-recording-gadgets-for-2024/"><u>[New] Blueprint of Unique Recording Gadgets for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-freeplayvid-seamless-recording-for-the-avid-player/"><u>[New] FreePlayVid Seamless Recording for the Avid Player</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/an-in-depth-examination-of-the-midland-lxt500vp3-featureful-but-underwhelming-radio-performance/"><u>An In-Depth Examination of the Midland LXT500VP3 - Featureful but Underwhelming Radio Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-football-simulation-ever-dive-into-our-comprehensive-fifa-nineteen-analysis/"><u>Best Football Simulation Ever? Dive Into Our Comprehensive FIFA Nineteen Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/beyond-the-basics-detailed-analysis-between-iphone-15-plus-and-pro-max-models/"><u>Beyond the Basics: Detailed Analysis Between iPhone 15 Plus and Pro Max Models</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-criacry-fm-transmitter-with-bluetooth-sleek-design-yet-imperfect-features/"><u>Comprehensive Evaluation of the CriaCry FM Transmitter with Bluetooth - Sleek Design, Yet Imperfect Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-vyncs-service-reliable-monitoring-with-complex-subscription-tiers/"><u>Comprehensive Review of Vyncs Service - Reliable Monitoring with Complex Subscription Tiers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/consistent-portion-control-the-petsafe-automatic-pet-feeder-solution/"><u>Consistent Portion Control: The PetSafe Automatic Pet Feeder Solution</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Poco M6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-htc-u23-pro-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your HTC U23 Pro | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-unlock-apple-id-without-phone-number-on-iphone-15-plus-by-drfone-ios/"><u>In 2024, Unlock Apple ID without Phone Number On iPhone 15 Plus</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/ultimate-tutorial-on-linking-azure-sql-database-with-traditional-sql-servers/"><u>Ultimate Tutorial on Linking Azure SQL Database with Traditional SQL Servers</u></a></li>
 </ul></div>
 

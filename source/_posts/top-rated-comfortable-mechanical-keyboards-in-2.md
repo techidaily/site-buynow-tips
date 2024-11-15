@@ -1,7 +1,7 @@
 ---
 title: Top-Rated Comfortable Mechanical Keyboards in 2
-date: 2024-09-04T19:51:36.243Z
-updated: 2024-09-05T19:51:36.243Z
+date: 2024-11-09T23:10:30.675Z
+updated: 2024-11-14T16:06:52.302Z
 categories:
   - BestProducts
 description: This Article Describes Top-Rated Comfortable Mechanical Keyboards in 2
@@ -41,6 +41,13 @@ Lifewire / Danny Chadwick
 
 ![Apeman C450 Dashcam](https://www.lifewire.com/thmb/qtPoWkWW4veIi00rgbPVt6Q4pu8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_HeroSquare2-c752b8527e31471e9018279dea42a8ca.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Danny Chadwick
 
 [View On Apemans.com](https://apemans.com/products/apeman-dash-cam-c450a)
@@ -64,14 +71,15 @@ Lifewire / Danny Chadwick
 
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/wyf8r7L4gDINa5Etodv7VR7ogds=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_03-3a8b995526fe491b9634a885db40804a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2031472/7443" target="_top" id="2031472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2031472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2031472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: All the basics**
 
  The Apeman C450 has a three-inch screen that’s bright, detailed, and provides an at-a-glance view of the camera’s status. If it were much bigger, it would be both a distraction and dangerous visual obstruction.
@@ -88,20 +96,8 @@ Lifewire / Danny Chadwick
 
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/A63ztrIxThbZlrb_lHJH3YL7778=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_02-6ef4e204d0bd452b9601ec468e5358bf.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030391/7443" target="_top" id="2030391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030391/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: You’ll have to figure a lot of stuff out for yourself**
 
  The user manual included with the Apeman C450 isn’t particularly useful, and though its written in English, the language is full of confusing phrases that feel like poor translations. The features are not fully explained and there are key omissions in the instructions that make understanding and using this dashcam much harder.
@@ -116,6 +112,19 @@ Lifewire / Danny Chadwick
 
  Your first time using the Apeman C450, you also have the option to set up a time and date stamp as well as a car identification number on your videos. This is a nice option to keep track of when a video was recorded, and which car it was recorded from if you have more than one camera in different vehicles.
 
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Camera Quality: Acceptable for a budget device**
 
  You can set this dashcam to capture video in 1080p, 720p, and VGA resolution. That’s impressive for a camera this size, and Apeman puts 1080p Full HD front and center in their marketing materials. While it provides a good level of detail and clarity in the video, it’s worth noting that other dashcams out there can record in resolutions up to 1440p.
@@ -124,12 +133,6 @@ Lifewire / Danny Chadwick
 
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/Hp7FvJ_BMgl0S2-Dsd-hd2qiQ7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_04-82d0af63043344a6b7b44863790050d7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Danny Chadwick
 
 ## **Performance: Travels as well as the rest of them**
@@ -152,6 +155,19 @@ Lifewire / Danny Chadwick
 
  One thing to note about this car dashboard camera is that the battery life is quite short. When we tested the Apeman C450, it powered down 28 minutes after we unplugged it. If you want continuous recording, it must be connected to power at all times.
 
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Affordable even on a budget**
 
  The defects of this dashcam can be forgiven pretty easily considering that it costs less than $50\. If you’re looking for a very inexpensive device, the Apeman C450 is a decent if somewhat flawed solution—it’s definitely not built as solidly and lacks the high resolution of its more expensive competitors, but if you are comfortable working around those shortcomings, this dashcam performs pretty well for the price.
@@ -171,29 +187,18 @@ Lifewire / Danny Chadwick
  Despite a poor-quality build and some design quirks, the Apeman C450 does its job as a dashcam. It has a discreet design, captures pretty good-quality video, and has important extra features like collision detection and a surveillance mode. If you can get past some of its foibles, it's definitely worth the price tag.
 
 <!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [DDpai mini3](https://www.lifewire.com/ddpai-mini3-review-4770579)
 * [Rexing V1 DashCam](https://www.lifewire.com/rexing-v1-dashcam-review-4770571)
 * [Anker Roav DashCam C1](https://www.lifewire.com/anker-roav-dashcam-c1-review-4773139)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  C450 Dash Cam
@@ -210,14 +215,11 @@ Lifewire / Danny Chadwick
 * Storage  Up to 32GB SDHC card (Class 10)
 * Warranty  12 months
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -226,4 +228,26 @@ Lifewire / Danny Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-clearing-the-vision-zoom-mastery-for-intimate-online-gatherings/"><u>[New] Clearing the Vision Zoom Mastery for Intimate Online Gatherings</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-youtube-earnings-update-what-you-need-to-know/"><u>[New] YouTube Earnings Update - What You Need to Know</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-crafting-countdowns-the-essentials-for-obs-users-for-2024/"><u>[Updated] Crafting Countdowns The Essentials for OBS Users for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-revamp-your-mac-the-macos-sierra-setup-process/"><u>[Updated] In 2024, Revamp Your Mac The macOS Sierra Setup Process</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-online-alter-ego-artistry-drawing-a-fancy-profile/"><u>[Updated] Online Alter-Ego Artistry Drawing a Fancy Profile</u></a></li>
+<li><a href="https://extra-information.techidaily.com/5-good-book-trailer-examples-for-2024/"><u>5 Good Book Trailer Examples for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/best-free-call-apps-on-android-ranks-them-for-2024/"><u>Best Free Call Apps on Android, Ranks Them for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-apples-latest-phones-iphone-15-plus-versus-pro-max/"><u>Comparing Apple's Latest Phones: IPhone 15 Plus Versus Pro Max</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-fitbit-charge-6-wearable-tracker-review/"><u>Comprehensive Analysis: Fitbit Charge 6 Wearable Tracker Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cutting-edge-cooling-with-havit-5-comprehensive-gaming-laptop-refrigerator-testimonials/"><u>Cutting Edge Cooling with HAVIT 5 - Comprehensive Gaming Laptop Refrigerator Testimonials</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/enhancing-wifi-coverage-the-benefits-of-a-netgear-ex3700-ac750-wireless-signal-amplifier-thorough-product-review/"><u>Enhancing WiFi Coverage: The Benefits of a Netgear EX3700 AC750 Wireless Signal Amplifier - Thorough Product Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-newly-refreshed-microsoft-surface-pro-n-consistent-power-with-minor-tweaks/"><u>Evaluating the Newly Refreshed Microsoft Surface Pro N: Consistent Power with Minor Tweaks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-insight-into-the-latest-nook-glowlight-4-features-and-performance/"><u>Expert Insight Into the Latest Nook GlowLight 4 Features & Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-controlling-your-pets-diet-with-the-petsafe-automatic-feeder-reviewed-here/"><u>Expert Insights on Controlling Your Pet's Diet with the PetSafe Automatic Feeder Reviewed Here</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-impact-of-a-smaller-hero-in-the-vast-universe-of-spider-man-a-review-of-miles-morales/"><u>Exploring the Impact of a Smaller Hero in the Vast Universe of Spider-Man: A Review of Miles Morales</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fitbit-charge-4-review/"><u>Fitbit Charge 4 Review</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-fix-and-update-your-broadcom-ethernet-network-controller-on-windows-10-a-step-by-step-tutorial/"><u>How to Fix and Update Your Broadcom Ethernet Network Controller on Windows 10: A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/how-to-optimize-your-instagram-post-with-music-stickers-for-2024/"><u>How to Optimize Your Instagram Post with Music Stickers for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/silent-snaptaking-the-art-of-concealed-picture-recording/"><u>Silent SnapTaking The Art of Concealed Picture Recording</u></a></li>
+</ul></div>
 

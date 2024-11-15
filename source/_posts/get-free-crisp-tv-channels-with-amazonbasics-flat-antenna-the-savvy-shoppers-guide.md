@@ -1,7 +1,7 @@
 ---
 title: Get Free, Crisp TV Channels with AmazonBasics' Flat Antenna – The Savvy Shopper’s Guide
-date: 2024-10-29T01:06:43.432Z
-updated: 2024-11-05T01:07:11.174Z
+date: 2024-11-12T05:39:45.318Z
+updated: 2024-11-15T07:40:56.897Z
 categories:
   - BestProducts
 description: This Article Describes Get Free, Crisp TV Channels with AmazonBasics' Flat Antenna – The Savvy Shopper’s Guide
@@ -83,10 +83,10 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels (in a rural area)**
@@ -96,10 +96,10 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -112,33 +112,20 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
@@ -149,6 +136,19 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
+
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -181,18 +181,17 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-thumbnail-and-banner-strategies-for-online-success/"><u>[Updated] 2024 Approved Thumbnail & Banner Strategies for Online Success</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/all-about-apple-iphone-14-unlock-chip-you-need-to-know-by-drfone-ios/"><u>All About Apple iPhone 14 Unlock Chip You Need to Know</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/embrace-efficiency-with-msi-pro-mp-portable-161e2-display-unit/"><u>Embrace Efficiency with MSI PRO MP-Portable 161E2 Display Unit</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-the-best-in-laptop-temperature-management-the-kootek-solution/"><u>Evaluating the Best in Laptop Temperature Management - The Kootek Solution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/examining-the-advantages-and-disadvantages-of-using-pidgin-chat/"><u>Examining the Advantages & Disadvantages of Using Pidgin Chat</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-enhanced-safety-with-the-budget-friendly-rexing-v1-dashcam-a-comprehensive-evaluation/"><u>Experience Enhanced Safety with the Budget-Friendly Rexing V1 Dashcam: A Comprehensive Evaluation</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expertly-curated-the-creme-de-la-creme-of-mesh-wi-fi-tech-2024-edition/"><u>Expertly Curated: The Crème De La Crème of Mesh Wi-Fi Tech - 2024 Edition</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experts-take-on-the-audew-portable-air-compressor-small-size-big-performance/"><u>Experts' Take on the AUDEW Portable Air Compressor: Small Size, Big Performance</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/hobbyist-to-pro-optimal-cameras-for-youtubing/"><u>From Hobbyist to Pro Optimal Cameras For YouTubing</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-change-xiaomi-redmi-note-12-5g-lock-screen-password-by-drfone-android/"><u>How To Change Xiaomi Redmi Note 12 5G Lock Screen Password?</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-affordable-4k-lens-and-recorders/"><u>In 2024, Affordable 4K Lens & Recorders</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/lenovo-thinkpad-x12-convertible-laptop-exceptional-dual-mode-functionality-and-top-notch-typing-experience/"><u>Lenovo ThinkPad X12 Convertible Laptop: Exceptional Dual-Mode Functionality and Top-Notch Typing Experience</u></a></li>
-<li><a href="https://win-forum.techidaily.com/top-5-strategies-to-secure-your-windows-pc-essential-techniques/"><u>Top 5 Strategies to Secure Your Windows PC: Essential Techniques</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-elevate-your-digital-footprint-crafting-compelling-shorts-thumbnails-for-2024/"><u>[Updated] Elevate Your Digital Footprint Crafting Compelling Shorts Thumbnails for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-macpc-vmix-bridge-software/"><u>2024 Approved MacPC VMix Bridge Software</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/effortless-way-to-capture-and-save-images-within-word-documents/"><u>Effortless Way to Capture and Save Images Within Word Documents</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-tp-link-archer-c9-an-affordable-wireless-router-champion/"><u>Evaluating the TP-Link Archer C9: An Affordable Wireless Router Champion</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-behind-the-colorscape-a-look-at-hps-z32-x/"><u>In 2024, Behind the Colorscape A Look at HP’s Z32 X</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-triple-trouble-how-to-handle-three-tubes-of-content-at-once/"><u>In 2024, Triple Trouble How to Handle Three Tubes of Content at Once</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Tecno Camon 20? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/professional-comparisons-leading-document-and-image-scanner-picks-of-2024/"><u>Professional Comparisons: Leading Document and Image Scanner Picks of 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/soundcore-life-q30-an-economic-journey-through-anc-headphones/"><u>Soundcore Life Q30 - An Economic Journey Through ANC Headphones</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/onoff-youtube-feedback-settings-with-this-guide-for-2024/"><u>Turn On/Off YouTube Feedback Settings With This Guide for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ultimate-guide-to-the-latest-and-greatest-airtag-accessories-of-thoroughly-tested-and-reviewed-by-professionals-wired/"><u>Ultimate Guide to the Latest & Greatest AirTag Accessories of #: Thoroughly Tested and Reviewed by Professionals | Wired</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/watching-espnplus-a-comprehensive-guide-for-your-lg-smart-tv-owners/"><u>Watching ESPN+: A Comprehensive Guide for Your LG Smart TV Owners</u></a></li>
 </ul></div>
 

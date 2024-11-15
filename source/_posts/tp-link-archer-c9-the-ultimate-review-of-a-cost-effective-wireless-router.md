@@ -1,7 +1,7 @@
 ---
 title: "TP-Link Archer C9: The Ultimate Review of a Cost-Effective Wireless Router"
-date: 2024-11-03T23:46:19.925Z
-updated: 2024-11-04T22:21:14.950Z
+date: 2024-11-12T06:53:01.088Z
+updated: 2024-11-15T00:28:00.072Z
 categories:
   - BestProducts
 description: "This Article Describes TP-Link Archer C9: The Ultimate Review of a Cost-Effective Wireless Router"
@@ -40,22 +40,15 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/o0LkMzwRLq9UDT8tBDJerDIsp8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -76,13 +69,6 @@ Lifewire / Erika Rawes
 * [Specs](https://www.lifewire.com/#toc-full-spec)
 
  The TP-Link Archer C80 is an affordable[long range router](https://www.lifewire.com/best-long-range-routers-4122554) that should be ideal for medium-sized homes. With 3x3[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , parental controls, and remote control using TP-Link’s Tether app, the Archer C80 has a few admirable features for a router under $100, but it also lacks some of the things we’ve come to expect in a router in this price range (like smart assistant compatibility and no USB port). I tested the TP-Link Archer C80 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment when compared to other budget routers on the market.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Design: Basic, but effective**
 
@@ -106,14 +92,14 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/tXeiVJNqjtwMg97as87xxtsMwhc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_04-375b5f92ce9d44f4af109c8f6bfada16.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Network Performance: Fast speeds, No USB port**
 
@@ -123,14 +109,14 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: Even better than advertised**
 
@@ -154,6 +140,13 @@ Lifewire / Erika Rawes
 
  The TP-Link Archer C80 sells for $100, which is a reasonable price for the unit considering it offers fast speeds, dual-band connectivity, and technologies like MU-MIMO to enhance performance.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **TP-Link Archer C80 vs. TP-Link Archer A9**
 
  The Archer A9 is another affordable offering from TP-Link, with a price tag of under $100\. However, the A9 has a USB port and is compatible with Alexa and[IFTTT](https://www.lifewire.com/what-is-ifttt-4172417) —features the C80 lacks. I recently tested the A9 as well. The A9 offers more in the way of features, but I was able to get faster speeds and better coverage out of the C80\. If you want a router that offers a more comprehensive experience, go with the A9\. If you just want an affordable, speedy router that will maintain a signal at long range, you’ll probably be happy with the C80.
@@ -163,6 +156,13 @@ Lifewire / Erika Rawes
 **Fast speeds and an exceptionally long range.**
 
  Even though it lacks a USB port, the Archer C80 puts out impressive speeds over a long range in homes with light to medium networking capacity. For homes that have several people streaming, gaming, and working on cloud applications, they’ll want something more high octane.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -199,20 +199,17 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-how-to-smoothly-add-apods-episodes-on-devices/"><u>[New] In 2024, How to Smoothly Add APods Episodes on Devices</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/urboupload-the-ultimate-guide-to-fast-youtube-video-rendering/"><u>[New] TurboUpload The Ultimate Guide to Fast YouTube Video Rendering</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-the-ultimate-guide-to-effective-reddit-sharing/"><u>[Updated] The Ultimate Guide to Effective Reddit Sharing</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-overseeing-the-upgraded-parrot-ar-drone/"><u>2024 Approved Overseeing the Upgraded Parrot AR Drone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/alexa-meets-tiny-tech-a-thorough-review-of-amazons-echo-dot-gen-eby-compact-yet-powerful/"><u>Alexa Meets Tiny Tech: A Thorough Review of Amazon's Echo Dot (Gen Eby, Compact Yet Powerful)</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/blade-blh4100-ready-to-fly-outdoor-rc-helicopter-a-buyers-review-and-expert-insights/"><u>Blade BLH4100 Ready To Fly Outdoor RC Helicopter - A Buyer's Review and Expert Insights</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/breakthrough-in-cpu-performance-all-you-need-to-know-about-apples-upcoming-m4-microchip/"><u>Breakthrough in CPU Performance: All You Need to Know About Apple's Upcoming M4 Microchip</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/compare-roku-and-amazon-fire-tv-stick-making-an-informed-purchase-decision/"><u>Compare Roku and Amazon Fire TV Stick: Making an Informed Purchase Decision</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-affordable-fitbit-versa-your-essential-modest-tech-companion/"><u>Comprehensive Review of the Affordable Fitbit Versa: Your Essential, Modest Tech Companion</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ing-the-perfect-introduction-15-viral-youtube-video-intros/"><u>Crafting the Perfect Introduction 15 Viral YouTube Video Intros</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discovering-excellence-with-netgear-orbi-the-ultimate-guide-to-cutting-edge-mesh-technology/"><u>Discovering Excellence with Netgear Orbi: The Ultimate Guide to Cutting-Edge Mesh Technology</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-xiaomi-redmi-note-12t-pro-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Xiaomi Redmi Note 12T Pro</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Infinix Smart 8 HD? | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/transform-your-android-with-bings-ai-capabilities/"><u>Transform Your Android with Bing's AI Capabilities</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-the-best-of-the-best-video-editing-programs-compared-for-2024/"><u>Updated The Best of the Best Video Editing Programs Compared for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-top-quality-economical-cam-recorder/"><u>[New] In 2024, Top Quality Economical Cam Recorder</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-crafting-visual-stories-for-successful-fb-covers/"><u>[Updated] 2024 Approved Crafting Visual Stories for Successful FB Covers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/acurite-pro-01036m-weather-station-overview-effortless-installation-and-durable-construction/"><u>AcuRite Pro 01036M Weather Station Overview: Effortless Installation & Durable Construction</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-powerhouse-the-apple-ipad-air-4-exposed/"><u>Budget-Friendly Powerhouse: The Apple iPad Air 4 Exposed!</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/easy-ways-to-bridge-the-gap-between-nintendo-switch-and-television-devices/"><u>Easy Ways To Bridge The Gap Between Nintendo Switch and Television Devices</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/experience-the-best-price-for-apples-airtag-bundle-24-discounted-at-walmart-during-labor-day-insights/"><u>Experience the Best Price for Apple's AirTag Bundle – $24 Discounted at Walmart During Labor Day | Insights</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-embracing-ai-can-revolutionize-education-exploring-8-key-benefits-for-teachers/"><u>How Embracing AI Can Revolutionize Education: Exploring 8 Key Benefits for Teachers</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-understanding-audio-confluence-the-essence-of-crossfade/"><u>In 2024, Understanding Audio Confluence The Essence of Crossfade</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/insights-on-deciding-your-next-television-model/"><u>Insights on Deciding Your Next Television Model</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/masterful-creations-with-the-xp-pen-artist-16-pro-a-detailed-reveal-and-review/"><u>Masterful Creations with the XP-Pen Artist 16 Pro: A Detailed Reveal and Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reliability-on-trails-a-comprehensive-look-at-kensuns-portable-tire-inflator/"><u>Reliability on Trails: A Comprehensive Look at Kensun's Portable Tire Inflator</u></a></li>
+<li><a href="https://driver-install.techidaily.com/solved-hp-laserjet-1020-on-pc-driver-errors/"><u>Solved HP LaserJet 1020 on PC Driver Errors</u></a></li>
 </ul></div>
 

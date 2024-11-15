@@ -1,7 +1,7 @@
 ---
 title: Creative Sound Blaster ZXR Analysis - The 2013 High-End Audio Pioneer
-date: 2024-10-28T22:33:52.458Z
-updated: 2024-11-04T19:35:31.195Z
+date: 2024-11-07T16:08:41.148Z
+updated: 2024-11-14T18:09:56.800Z
 categories:
   - BestProducts
 description: This Article Describes Creative Sound Blaster ZXR Analysis - The 2013 High-End Audio Pioneer
@@ -37,23 +37,9 @@ Lifewire / Andrew Hayward
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## TopMate C302 Laptop Cooling Pad
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Um5K58ex8qVMnW5PlEtqzPi9c-4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -77,6 +63,13 @@ Lifewire / Andrew Hayward
 
  The TopMate C302 is a strong example of the latter. It’s affordable and solidly effective, but the plastic design feels a bit flimsy. I wouldn’t bet on it lasting for the long haul without gentle handling, but given the price, you might not worry about it too much.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Light and a little flimsy
 
  The C302 measures just over 14 inches wide and is designed for laptops with screens up to 15.6 inches diagonal. It’s primarily made of lightweight plastic, with a thin metal grate on the top above the two 4.9-inch fans to help dissipate heat.
@@ -95,18 +88,18 @@ Lifewire / Andrew Hayward
 
  The C302 has a little bit of accent lighting via a pair of blue lights beneath each fan, but it doesn’t emanate a significant glow, nor is it customizable in any way.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Setup Process: Plug and play
 
  The C302 is a purely plug-and-play accessory with no flashy perks or settings to deal with, nor any need for software on your computer. Simply place it under your laptop, adjust the feet and holding nubs as desired, and plug the USB port into your computer to power on the pad. The fans will then activate and run at the only available speed, and you can unplug it when you’re done or don’t need it anymore.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -124,18 +117,18 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Xs71AyeThjZwy-vZJ9LfxIhuXJc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_04-eadbaf270b874af9bb8843b95efe8ca7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
  Lastly, UNIGINE’s Heaven Benchmark hit 162 degrees internally and 109 degrees externally on the Razer Blade 15 alone, and dropped to 154 degrees internally and 105 degrees externally when using the C302\. All told, this lightweight and affordable pad delivered solid cooling power that helped cut down on both the internal and external temperature of the laptop while under significant stress.
 
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Price: It’s very affordable
 
@@ -144,13 +137,26 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## TopMate C302 vs. Kootek Laptop Cooling Pad
 
@@ -196,19 +202,21 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-essential-skype-call-recording-tactics-for-pcsmacs/"><u>[Updated] Essential Skype Call Recording Tactics for PCs/Macs</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024youtube/"><u>如何在2024年崛起？初学者YouTube领袖的必知秘籍</u></a></li>
-<li><a href="https://driver-download.techidaily.com/audio-technica-device-optimization-how-to-fetch-new-driver-packages/"><u>Audio-Technica Device Optimization: How to Fetch New Driver Packages</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Tecno Camon 20? | Dr.fone</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-10-essential-tools-for-creating-stunning-slow-motion-videos/"><u>New 2024 Approved 10 Essential Tools for Creating Stunning Slow Motion Videos</u></a></li>
-<li><a href="https://win-updates.techidaily.com/quick-guide-how-to-effortlessly-move-contacts-from-your-iphone-similar-problem-for-stories/"><u>Quick Guide: How to Effortlessly Move Contacts From Your iPhone # Similar Problem for Stories</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/remobells-budget-friendly-video-doorbells-features-pricing-and-performance-reviewed/"><u>RemoBell's Budget-Friendly Video Doorbells: Features, Pricing & Performance Reviewed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-is-nvidia-shield-tv-pro-the-perfect-streaming-console-for-hardcore-players/"><u>Review: Is Nvidia Shield TV Pro the Perfect Streaming Console for Hardcore Players?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/samsung-un65nu8000fxza-analysis-is-this-premium-smart-tv-worth-the-cost/"><u>Samsung UN65NU8000FXZA Analysis: Is This Premium Smart TV Worth the Cost?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/sealock-coastal-55-4k-ultra-hd-smart-outdoor-television-comprehensive-review/"><u>Sealock Coastal 55 4K Ultra HD Smart Outdoor Television - Comprehensive Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/status-bt-inspection-affordable-yet-marred-by-faults/"><u>Status BT Inspection: Affordable, Yet Marred by Faults</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/tested-and-reviewed-how-the-asus-rog-gt-ac5300-exceeds-gaming-and-technology-enthusiasts-expectations/"><u>Tested and Reviewed: How the Asus ROG GT-AC5300 Exceeds Gaming & Technology Enthusiast's Expectations</u></a></li>
-<li><a href="https://article-posts.techidaily.com/ultimate-hue-harmonizer-tool/"><u>Ultimate Hue Harmonizer Tool</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-your-zte-axon-40-lite-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your ZTE Axon 40 Lite Auto Does Not Work | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-master-plan-uniting-instagram-and-tiktok-platforms/"><u>[New] Master Plan Uniting Instagram & TikTok Platforms</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-top-5-hidden-media-extractor-apps/"><u>[Updated] 2024 Approved Top 5 Hidden Media Extractor Apps</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-how-to-use-d3dgear-screen-recorder/"><u>2024 Approved How to Use D3DGear Screen Recorder</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Motorola Defy 2 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/compact-convenience-meets-reliability-with-the-kensun-portable-air-compressor-unveiled/"><u>Compact Convenience Meets Reliability with the Kensun Portable Air Compressor Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-dji-phantom-4-pro-v2-nearly-ideal-drone-performance/"><u>Comprehensive Evaluation of DJI Phantom 4 Pro V2: Nearly Ideal Drone Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-excellence-with-the-samsung-qn55q3u-the-ultimate-smart-tv-for-vivid-4k-viewing-and-more/"><u>Discovering Excellence with the Samsung QN55Q3U - The Ultimate Smart TV for Vivid 4K Viewing and More</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exclusive-apple-discounts-mega-deals-for-prime-day-shoppers/"><u>Exclusive Apple Discounts: Mega Deals for Prime Day Shoppers</u></a></li>
+<li><a href="https://program-issues.techidaily.com/expert-tips-for-fixing-unable-to-reach-configuration-servers-online/"><u>Expert Tips for Fixing 'Unable to Reach Configuration Servers Online'</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/extended-physical-action-survey-for-2024/"><u>Extended Physical Action Survey for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-real-time-speech-processing-and-action-at-no-charge/"><u>In 2024, Real-Time Speech Processing & Action at No Charge</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-asus-ax6000-rt-ax88u-wireless-adapter-the-ultimate-wi-fi-6-hub-for-home-and-office/"><u>In-Depth Analysis of the Asus AX6000 RT-AX88U Wireless Adapter: The Ultimate Wi-Fi 6 Hub for Home and Office</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reviews-and-insights-on-the-efficient-charging-solution-anker-powercoreplus-uge-26800b/"><u>Reviews & Insights on the Efficient Charging Solution: Anker PowerCore+ Uge 26800B</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/tailor-made-text-masters-at-openais-new-marketplace/"><u>Tailor-Made Text Masters at OpenAI's New Marketplace</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-verdict-on-netgear-orbi-ahead-of-the-pack-as-2021s-premier-mesh-router/"><u>The Ultimate Verdict on Netgear Orbi – Ahead of the Pack as 2021'S Premier Mesh Router</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/king-trending-potential-in-your-videos/"><u>Unlocking Trending Potential in Your Videos</u></a></li>
 </ul></div>
 

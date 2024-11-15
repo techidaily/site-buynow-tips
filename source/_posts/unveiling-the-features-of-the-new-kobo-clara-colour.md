@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Features of the New Kobo Clara Colour
-date: 2024-11-03T20:16:55.562Z
-updated: 2024-11-04T23:18:15.929Z
+date: 2024-11-08T17:41:30.269Z
+updated: 2024-11-15T05:33:17.454Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Features of the New Kobo Clara Colour
@@ -44,10 +44,10 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
@@ -76,16 +76,16 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Hardware: Some odd decisions**
 
@@ -93,14 +93,14 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process/Installation: Easy install, irritating setup**
 
@@ -113,10 +113,10 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
@@ -128,6 +128,13 @@ Lifewire / Emily Ramirez
  Should you happen to own dynamic headphones, you should find their impedance curve. Dynamic headphones with a high impedance may be distorted by the ACM, thanks to the ACM’s high resistance. How your headphones will be affected depends on their impedance curve: for the HD800s, for example, there is a peak at 100Hz (this range captures electric bass and the lower octaves of guitars), so the upper bass range is boosted relative to the other frequencies in the audio. Increasing the volume on the ACM reduces its output resistance and in turn reduces the distortion, but it may be easier to plug equipment directly into the sound card and use the system volume instead.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -168,13 +175,6 @@ Lifewire / Emily Ramirez
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  Sound Blaster ZxR
@@ -213,19 +213,24 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/new-unlocking-seo-potential-top-strategies-to-dominate-online-search-results-as-a-novice/"><u>[New] Unlocking SEO Potential Top Strategies to Dominate Online Search Results as a Novice</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-frame-rate-conversion-20mb-video-specs/"><u>2024 Approved Frame Rate Conversion 20MB Video Specs</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-unlocking-visual-storytelling-the-20-key-strategies-for-powerful-fb-video-marketing/"><u>2024 Approved Unlocking Visual Storytelling The 20 Key Strategies for Powerful FB Video Marketing</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/1726226342238-m1vmp4-movavi/"><u>無料で簡単! M1VからMP4へのスムーズなオンライン変換 - Movavi</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/academic-integrity-and-ai-how-to-cite-chatgpt-correctly/"><u>Academic Integrity and AI: How to Cite ChatGPT Correctly</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-securely-download-and-install-updates-for-nvidias-geforce-940mx-graphics-card-driver/"><u>How to Securely Download & Install Updates for Nvidia's GeForce 940MX Graphics Card Driver</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-the-most-effective-9-microphone-capture-tools-online-2e/"><u>In 2024, The Most Effective 9 Microphone Capture Tools Online (2E)</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-battery-selection-guide-for-uavs/"><u>In 2024, The Ultimate Battery Selection Guide for UAVs</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/inside-look-at-the-lenovo-thinkpad-x1-titanium-yoga-a-revolutionary-blend-for-classic-thinkpad-admirers/"><u>Inside Look at the Lenovo ThinkPad X1 Titanium Yoga - A Revolutionary Blend for Classic ThinkPad Admirers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/is-your-ipad-already-considered-old-school-technology/"><u>Is Your iPad Already Considered Old-School Technology?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/microsoft-sculpt-ergonomic-keyboard-review-a-great-value/"><u>Microsoft Sculpt Ergonomic Keyboard Review: A Great Value</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/moto-g-power-review-solid-performance-and-outstanding-battery-life/"><u>Moto G Power Review: Solid Performance and Outstanding Battery Life</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/navigating-the-features-of-radpowers-radcity-5-plus-durable-potent-yet-bulky/"><u>Navigating the Features of RadPower's RadCity 5 Plus: Durable, Potent, Yet Bulky</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ussd-explained-all-you-need-to-know-about-unstructured-supplementary-service-data-technology/"><u>USSD Explained: All You Need to Know About Unstructured Supplementary Service Data Technology</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-immediate-access-best-5-convertors-no-download-required/"><u>[New] Immediate Access Best 5 Convertors, No Download Required</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-comparative-study-of-youtubes-and-dailymentions/"><u>[New] In 2024, Comparative Study of YouTubes and DailyMentions</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-analyzing-user-feedback-the-latest-on-lg-bp350-display-tech/"><u>[Updated] Analyzing User Feedback The Latest on LG BP350 Display Tech</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-fast-film-techniques-taking-screens-on-a-dell-for-2024/"><u>[Updated] Fast Film Techniques Taking Screens on a Dell for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-unveiling-hidden-facebook-data-and-protecting-yourself-online-for-2024/"><u>[Updated] Unveiling Hidden Facebook Data & Protecting Yourself Online for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/5-crucial-considerations-to-make-when-selecting-a-fitness-monitor/"><u>5 Crucial Considerations to Make When Selecting a Fitness Monitor</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ath-m50x-studio-gear-unmatched-audio-experience/"><u>ATH-M50x Studio Gear: Unmatched Audio Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/choosing-the-perfect-iphone-for-enhanced-mobile-gaming/"><u>Choosing the Perfect iPhone for Enhanced Mobile Gaming</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-seatechs-external-blu-ray-drive-with-usb-connectivity-a-mixed-bag-in-writing-quality/"><u>Comprehensive Analysis of SeaTech's External Blu-Ray Drive with USB Connectivity: A Mixed Bag in Writing Quality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-newly-launched-galaxy-tab-s7-by-samsung-the-optimal-mid-range-option-for-android-aficionados/"><u>Expert Analysis of the Newly-Launched Galaxy Tab S7 by Samsung: The Optimal Mid-Range Option for Android Aficionados</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fix-your-microsoft-teams-microphone-issue-solutions-for-windows-11-and-10-users/"><u>Fix Your Microsoft Teams Microphone Issue: Solutions for Windows 11 and 10 Users</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/how-to-create-home-dvds-with-best-movie-making-software/"><u>How to Create Home DVDs with Best Movie Making Software</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-asus-rog-gt-ac5300-the-perfect-choice-for-gamers-and-tech-experts/"><u>In-Depth Analysis of Asus ROG GT-AC5300: The Perfect Choice for Gamers & Tech Experts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/personalized-smart-assistance-which-fits-you-best-alexa-or-google-assistant/"><u>Personalized Smart Assistance: Which Fits You Best, Alexa or Google Assistant?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-role-of-a-dac-why-it-matters-for-high-quality-sound/"><u>The Role of a DAC - Why It Matters For High-Quality Sound</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-list-of-2024s-most-effective-health-monitoring-bracelets/"><u>The Ultimate List of 2024'S Most Effective Health Monitoring Bracelets</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-realme-c33-2023-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Realme C33 2023 Screen | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-ion-audio-tailgater-plus-unmatched-hours-of-sound-bliss-powerful-bass-enhancement-at-your-fingertips/"><u>Unveiling the Ion Audio Tailgater Plus: Unmatched Hours of Sound Bliss, Powerful Bass Enhancement at Your Fingertips</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-oppo-a1x-5g-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Oppo A1x 5G Phone Network-Ready</u></a></li>
 </ul></div>
 

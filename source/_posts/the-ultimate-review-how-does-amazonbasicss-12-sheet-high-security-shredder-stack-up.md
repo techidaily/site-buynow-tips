@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Review: How Does AmazonBasics's 12-Sheet High Security Shredder Stack Up?"
-date: 2024-10-26T09:09:24.587Z
-updated: 2024-10-29T20:29:08.147Z
+date: 2024-11-07T23:58:56.124Z
+updated: 2024-11-15T08:25:12.452Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate Review: How Does AmazonBasics's 12-Sheet High Security Shredder Stack Up?"
@@ -37,13 +37,6 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 [View On Amazon $185](https://www.amazon.com/dp/B07T89YZWD?tag=lifewire-onsite-prod-20&ascsubtag=4846125%7Cn35b11b2c61b54fa1a2d951691d1a61ed04%7CB07T89YZWD) [View On Walmart $379](https://www.walmart.com/ip/NETGEAR-Nighthawk-AX6000-Dual-Band-WiFi-Wireless-6-Mesh-Range-Extender-EAX80-100NAS/122370265) [View On Best Buy $197](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-nighthawk-ax6000-ax8-dual-band-wi-fi-6-range-extender-black%2F6359409.p%3FskuId%3D6359409)
 
 4.2
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
@@ -93,13 +86,6 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 ## **Connectivity: Smooth sailing**
@@ -118,6 +104,13 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -126,6 +119,13 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: More than most**
 
  The Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender is listed at $250, although it’s being sold for $220 at multiple retailers as of this writing. That’s definitely on the higher end for an extender.
@@ -133,10 +133,16 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
  Should you really spend that much on an extender? If you don’t already have a new Wi-Fi 6 router, then probably not. You might see higher peaks of speed as I did, but rather than trying to mix and match old and new tech, you’re probably better off investing in a new Wi-Fi mesh system that can cover the entire house. Netgear’s Orbi is a favorite, as is Google’s similar Nest Wi-Fi system.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Netgear Nighthawk AX8 vs. Netgear Nighthawk X6S (EX8000)**
@@ -150,10 +156,10 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -182,18 +188,20 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-significant-aspects-in-techno-narrative-design/"><u>[New] Significant Aspects in Techno Narrative Design</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-what-is-snapchat-spotlight-how-to-use-it/"><u>[Updated] In 2024, What Is Snapchat Spotlight? How to Use It?</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-top-15-asmr-content-providers/"><u>[Updated] Top 15 ASMR Content Providers</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-most-advanced-drone-technology-aligned-with-gopros/"><u>2024 Approved Most Advanced Drone Technology Aligned with GoPros</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-fossil-watches-top-reviews-and-amazing-value/"><u>Affordable Fossil Watches: Top Reviews and Amazing Value</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/amazon-fire-hd-8-2019-version-an-entry-level-tablet-that-delivers-on-its-price-promise-full-review-inside/"><u>Amazon Fire HD 8 (2019 Version): An Entry-Level Tablet That Delivers on Its Price Promise – Full Review Inside!</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/can-you-project-youtube-and-fb-videos-onto-your-hdtv/"><u>Can You Project YouTube & FB Videos Onto Your HDTV?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/choosing-a-streaming-buddy-an-in-depth-look-at-roku-against-fire-tv-stick/"><u>Choosing a Streaming Buddy: An In-Depth Look at Roku Against Fire TV Stick</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/find-the-perfect-cable-modem-expert-ratings-inside/"><u>Find the Perfect Cable Modem - Expert Ratings Inside</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-lava-yuva-3-pro-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Lava Yuva 3 Pro Is Unlocked</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/step-by-step-tutorial-improving-video-resolution-from-standard-definition-to-high-definition4k-on-windows-and-macos/"><u>Step-by-Step Tutorial: Improving Video Resolution From Standard Definition to High-Definition/4K on Windows and macOS</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-eufy-t8200-explored-your-complete-guide-to-a-no-subscription-video-doorbell-experience/"><u>The Eufy T8200 Explored – Your Complete Guide to a No-Subscription Video Doorbell Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/1722848735563-while-ipv6-is-designed-with-ipsec-support-actual-implementation-may-vary-security-measures-should-not-solely-rely-on-protocol-design-assumptions/"><u>While IPv6 Is Designed with IPsec Support, Actual Implementation May Vary; Security Measures Should Not Solely Rely on Protocol Design Assumptions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-directing-content-destination-from-imovie-files-to-youtube-platform/"><u>[New] In 2024, Directing Content Destination From iMovie Files To YouTube Platform</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-pros-guide-to-capturing-every-angle/"><u>[New] In 2024, Pro's Guide to Capturing Every Angle</u></a></li>
+<li><a href="https://games-able.techidaily.com/addressing-and-correcting-create-file-unsuccessful-error-30005/"><u>Addressing and Correcting Create File Unsuccessful (Error 30005)</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-itel-p55-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Itel P55 Fingerprint Lock</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lenovo-thinkpad-x12-detachable-assessment-stellar-convertible-and-superb-typing-experience/"><u>Lenovo ThinkPad X12 Detachable Assessment - Stellar Convertible and Superb Typing Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/life-q30-speaker-review-anker-soundcores-economical-anc-hearing-aid/"><u>Life Q30 Speaker Review: Anker Soundcore's Economical ANC Hearing Aid</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/masterful-visuals-with-new-laptop-gfx/"><u>Masterful Visuals with New Laptop GFX</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximizing-your-gaming-experience-4-reasons-to-get-ps5/"><u>Maximizing Your Gaming Experience: 4 Reasons to Get PS5</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-traffic-with-intelligence-the-comprehensive-review-of-the-escort-ix-smart-radar-detector/"><u>Navigating Traffic with Intelligence: The Comprehensive Review of the Escort iX Smart Radar Detector</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/playtime-face-off-nintendo-switch-lite-vs-oled-which-wins/"><u>Playtime Face-Off: Nintendo Switch Lite vs OLED – Which Wins?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/prioritizing-performance-over-style-with-the-acer-xfa240-review-an-insightful-evaluation/"><u>Prioritizing Performance Over Style with the Acer XFA240 Review: An Insightful Evaluation</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-battleye-setup-errors-a-comprehensive-solution/"><u>Resolving BattlEye Setup Errors – A Comprehensive Solution</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/score-big-savings-on-gadgets-during-amazons-2024-prime-day-extravaganza/"><u>Score Big Savings on Gadgets During Amazon's 2024 Prime Day Extravaganza</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/secure-your-brand-on-youtube-adding-logos-and-watermarks-for-2024/"><u>Secure Your Brand on YouTube Adding Logos & Watermarks for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/speedy-shutterbugs-iphones-quick-time-lapse-guide-for-2024/"><u>Speedy Shutterbugs IPhone's Quick Time-Lapse Guide for 2024</u></a></li>
 </ul></div>
 

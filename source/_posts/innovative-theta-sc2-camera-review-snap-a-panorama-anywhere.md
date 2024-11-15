@@ -1,7 +1,7 @@
 ---
 title: "Innovative Theta SC2 Camera Review: Snap a Panorama Anywhere"
-date: 2024-08-27T12:04:35.116Z
-updated: 2024-08-28T12:04:35.116Z
+date: 2024-11-08T23:40:19.885Z
+updated: 2024-11-15T08:33:25.389Z
 categories:
   - BestProducts
 description: "This Article Describes Innovative Theta SC2 Camera Review: Snap a Panorama Anywhere"
@@ -42,13 +42,14 @@ Lifewire / Emily Ramirez
 4.4
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Huami Amazfit Bip Smartwatch
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Amazfit Bip](https://www.lifewire.com/thmb/FjZoJgoDC-OSIll0d_v6sd0Q2JE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_3LW4157747-1-844a250cf13a4de7bf4b368b68d24baa.jpg)
 
 Lifewire / Emily Ramirez
@@ -76,11 +77,21 @@ Lifewire / Emily Ramirez
 
 ![Amazfit Bip](https://www.lifewire.com/thmb/mu2QOzkIv9pygomZohStOmx-uhU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4157747-3-8edde053c04944159d3f3c9776bc9280.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: A lightweight, basic, and durable wearable**
 
  The Bip watch is thin and light, disappearing onto your wrist the moment you strap it on. At a glance, it looks like an Apple Watch, with a bezel crown and a rectangular frame. It comes in a few different colors: black, white, green, and red, and you can swap the bands out for any standard 20mm band to meet your stylistic preferences. It would be a stretch to call it elegant, but it’s certainly a watch that can go well with many outfits thanks to its 1.28-inch sleek color LCD display and very thin profile. Because it weighs a mere 1.1 ounces, it’s easy to wear all day and night, and its IP68 water and dust resistance rating ensures you don’t have to worry about getting caught in the rain.
@@ -95,9 +106,6 @@ Lifewire / Emily Ramirez
 
  Software-wise, it feels more like owning a fitness tracker than a smartwatch, with similar functionality to that of a mid-tier Fitbit. As a package, the Amazfit Bip may be too basic if you need a watch that can manage and control incoming calls and notifications, but it’s a great smartwatch with the features most people want for a great price and a better battery life.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process: Standard procedure**
 
  When you turn the Amazfit Bip on for the first time, it shows a graphic prompting you to connect the watch to your phone. Pairing it is easy: you download the Mi Fit app, add the Amazfit Bip as a device, and activate Bluetooth to finish pairing. Once your watch is paired, keep in mind you must turn on notifications for all the apps you care about.
@@ -106,9 +114,6 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## **Performance and Software: Reliable but limited**
 
  The key competition of a smartwatch as basic as the Amazfit Bip are fitness trackers like the Fitbit Charge 2\. Overall, the Bip fares well, though there are some key omissions to make note of. It doesn’t have auto-detection for exercise, nor does it track flights of stairs climbed. We found its pedometer isn’t quite as accurate as those on the Fitbit, but it’s still a reasonable estimate.
@@ -125,11 +130,14 @@ Lifewire / Emily Ramirez
 
  With everything we’ve outlined, the last piece of the puzzle comes down to app support. The Bip runs on the Mi Fit app system, so you can’t download any extra applications. The Mi Fit app is incredibly fitness-biased, so it can be difficult to navigate if you primarily plan to use it as a non-fitness smartwatch. That said, the app tracks all the fitness functions that Fitbit’s app tracks, such as sleep cycles, heart rate, weight, BMI, and exercise performed.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Amazfit Bip](https://www.lifewire.com/thmb/3HLkXEjviXIuAO5HDQGiM53vYyo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4157747-2-a5cb75b376fd4aaa8bcbf1970114673b.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -138,6 +146,13 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  After two weeks of constant usage, our Amazfit Bip was still at 67 percent. We didn’t have GPS or heart rate monitoring enabled most of the time, but we found no major battery dips when those features were active, either. We feel confident in Huami’s claim the battery can last 30 days or more. This is infinitely better than you’ll get with a classic smartwatch, which usually lasts one or two days, and much better than the average fitness tracker, which usually lasts 7-10 days on a charge. If you never want to worry about charging your smartwatch, then the Bip is unbeatable.
 
  We feel confident in Huami’s claim the battery can last 30 days or more.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Solid value for solid quality**
 
@@ -162,8 +177,12 @@ _Fitbit Versa Lite_ : Fitbit has been dominating the sub-$200 wearables market, 
  The Amazfit Bip is an awesome smartwatch for those dipping their toes into the market, for fitness enthusiasts, or people who just really hate charging their devices. We didn’t want to take them off our wrist after testing was over. If the Bip’s functionality proves too simple for you, then it’s no big loss at $80, but you’ll be hard-pressed to find a better, more reliable smartwatch at this price range.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Beantech Bitwatch S1 Plus](https://www.lifewire.com/beantech-bitwatch-s1-plus-smartwatch-review-4773105)
@@ -187,14 +206,11 @@ _Fitbit Versa Lite_ : Fitbit has been dominating the sub-$200 wearables market, 
 * Waterproof  IP68 resistance
 * Band size  Standard 20mm
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -203,4 +219,18 @@ _Fitbit Versa Lite_ : Fitbit has been dominating the sub-$200 wearables market, 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-the-art-of-effective-online-engagement-on-fb/"><u>[New] In 2024, The Art of Effective Online Engagement on FB</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-behind-the-scenes-crafting-a-screenplay/"><u>[Updated] 2024 Approved Behind the Scenes Crafting a Screenplay</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/elitescreensnap-for-windows-xxp/"><u>EliteScreenSnap for Windows X/XP</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-of-the-samsung-galaxy-watch-active-optimizing-personal-fitness-goals-with-ease/"><u>Expert Review of the Samsung Galaxy Watch Active: Optimizing Personal Fitness Goals with Ease</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-features-of-garmin-venu-an-essential-review-for-247-activity-monitoring-devices/"><u>Exploring the Features of Garmin Venu: An Essential Review for 24/7 Activity Monitoring Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/get-started-with-tango-enjoy-voice-calls-video-chats-and-texts-free-of-charge/"><u>Get Started With Tango: Enjoy Voice Calls, Video Chats & Texts Free of Charge</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-the-samsung-galaxy-watch-active-2-outshines-its-original-version-with-superior-connectivity-control-and-insightful-functions/"><u>How the Samsung Galaxy Watch Active 2 Outshines Its Original Version with Superior Connectivity, Control, and Insightful Functions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-to-choose-lg-gram-laptop-156-2018-the-perfect-blend-of-long-battery-life-and-lightweight-design/"><u>How to Choose: LG Gram Laptop (15.6, 2018) - The Perfect Blend of Long Battery Life & Lightweight Design</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-optimize-youtube-visibility-by-sustaining-creativity-commons-license/"><u>In 2024, Optimize YouTube Visibility by Sustaining Creativity Commons License</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-free-to-edit-top-10-online-video-editors-with-no-hidden-fees-or-watermarks/"><u>New In 2024, Free to Edit Top 10 Online Video Editors with No Hidden Fees or Watermarks</u></a></li>
+<li><a href="https://games-able.techidaily.com/unlocking-social-and-multiplayer-capabilities-with-ea-play-on-the-ps5-console/"><u>Unlocking Social & Multiplayer Capabilities with EA Play on the PS5 Console</u></a></li>
+</ul></div>
 

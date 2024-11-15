@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to the Sturdy & Portable Kensun Tire Inflator Review
-date: 2024-11-03T16:27:06.953Z
-updated: 2024-11-05T01:57:26.878Z
+date: 2024-11-09T05:28:43.294Z
+updated: 2024-11-14T17:42:24.667Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Guide to the Sturdy & Portable Kensun Tire Inflator Review
@@ -40,22 +40,15 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 4.8
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -98,6 +91,13 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Plenty of power for all your needs**
 
  Time and again, the Beatit Jump Starter D11 was able to get a car with a very[depleted battery](https://www.lifewire.com/car-batteries-are-made-to-die-534765) started. Even after repeated testing the unit’s own battery only dropped down to 85% capacity.
@@ -105,6 +105,13 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
  Charging a phone with a jump starter seems like overkill, and the unit’s ability to charge at 1,200mAh confirms that impression. At such an elevated level of charging your phone or other device will likely get its battery topped off in very little time. With 18,000mAh of capacity you can fully charge a modern phone at least twice, and still leave the unit with the juice it needs in order to start a car.
 
  Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
@@ -114,24 +121,18 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: A ton of value for a tiny cost**
 
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
 
  At that price point, it packs a ton of value into its diminutive size.
-
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
@@ -148,13 +149,6 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 **For the price, it's perfect.**
 
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -187,16 +181,22 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-cutting-edge-mac-cam-apps-a-look-past-bandicam/"><u>[New] In 2024, Cutting-Edge Mac Cam Apps A Look Past Bandicam</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-playstation-audio-modification-guidebook/"><u>2024 Approved The Ultimate PlayStation Audio Modification Guidebook</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-hp-stream-14-an-honest-look-at-a-cost-effective-windows-laptop-choice/"><u>Exploring the HP Stream 14: An Honest Look at a Cost-Effective Windows Laptop Choice</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/hands-on-experience-with-blinks-advanced-floodlight-security-device/"><u>Hands On Experience With Blink's Advanced Floodlight Security Device</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/harsh-examination-jabras-robust-headsets/"><u>Harsh Examination: Jabra's Robust Headsets</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-nulaxy-km18-transmitter-for-cars-with-bluetooth-older-model-evaluation/"><u>In-Depth Look at Nulaxy KM18 Transmitter for Cars with Bluetooth: Older Model Evaluation</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-hp-chromebook-11-the-ultimate-all-rounder-for-students-and-working-adults-alike/"><u>In-Depth Review of HP Chromebook 11: The Ultimate All-Rounder for Students and Working Adults Alike</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-the-ultimate-list-of-10-free-online-video-trimmers-2023-edition/"><u>New In 2024, The Ultimate List of 10 Free Online Video Trimmers 2023 Edition</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-contacts-after-reno-9a-has-been-deleted-by-fonelab-android-recover-contacts/"><u>Recover your contacts after Reno 9A has been deleted.</u></a></li>
-<li><a href="https://win-forum.techidaily.com/trasforma-i-tuoi-file-rmvb-in-formato-mp4-senza-costi-con-la-guida-completa-di-movavi/"><u>Trasforma I Tuoi File RMVB in Formato MP4 Senza Costi Con La Guida Completa Di Movavi</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/update-your-windows-pcs-logitech-hardware-in-a-flash-get-the-latest-drivers-today/"><u>Update Your Windows PC's Logitech Hardware in a Flash - Get the Latest Drivers Today!</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-firefox-pip-simplified-for-the-everyday-user/"><u>[New] 2024 Approved Firefox PIP Simplified for the Everyday User</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-fast-track-to-find-insta-follower-lapses/"><u>[Updated] 2024 Approved The Fast Track to Find Insta Follower Lapses</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apex-review-the-dji-mavic-2-pro-unmatched-royalty-of-professional-drone-flight/"><u>Apex Review: The DJI Mavic 2 Pro - Unmatched Royalty of Professional Drone Flight</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-gaming-portability-nintendo-switch-lite-vs-nintendo-switch-oled/"><u>Comparing Gaming Portability: Nintendo Switch Lite Vs. Nintendo Switch OLED</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decoding-pixel-slate-woes-a-deep-dive-into-chromeos-fiasco/"><u>Decoding Pixel Slate Woes: A Deep Dive Into ChromeOS Fiasco</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ic-portrayal-of-future-social-momentum/"><u>Graphic Portrayal of Future Social Momentum</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-breezy-video-capture-testimony/"><u>In 2024, Breezy Video Capture Testimony</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-80-pro-straight-screen-edition-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Honor 80 Pro Straight Screen Edition Bootloader Easily</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-revolutionize-your-followers-list-with-top-twitter-cleanup-tools/"><u>In 2024, Revolutionize Your Followers List with Top Twitter Cleanup Tools</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tips-and-tricks-to-tell-if-your-apple-iphone-13-pro-is-unlocked-by-drfone-ios/"><u>In 2024, Tips And Tricks To Tell if Your Apple iPhone 13 Pro Is Unlocked</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-of-the-mobvoi-ticwatch-pro-3-advanced-gps-tracking-and-extended-life-from-dual-display-technology/"><u>In-Depth Evaluation of the Mobvoi TicWatch Pro 3: Advanced GPS Tracking and Extended Life From Dual Display Technology</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/innovative-zooid-conceptual-models-for-2024/"><u>Innovative Zooid Conceptual Models for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-the-charge-a-guide-to-the-most-outstanding-game-systems-of-2econd-quarter-century/"><u>Leading the Charge: A Guide to the Most Outstanding Game Systems of 2Econd Quarter-Century</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/pioneering-photo-printing-websites-top-10-to-watch/"><u>Pioneering Photo Printing Websites: Top 10 to Watch</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/slavic-siblings-comparing-ukrainian-and-russian/"><u>Slavic Siblings: Comparing Ukrainian and Russian</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-mods-cutting-edge-sidecar-e-bike-an-in-depth-hands-on-exploration/"><u>Unveiling Mod's Cutting-Edge Sidecar E-Bike - An In-Depth Hands-On Exploration</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-truth-an-experts-take-on-viber-out/"><u>Unveiling the Truth: An Expert's Take on Viber Out</u></a></li>
 </ul></div>
 

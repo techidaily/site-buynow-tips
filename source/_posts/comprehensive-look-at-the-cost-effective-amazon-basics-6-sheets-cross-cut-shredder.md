@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Look at the Cost-Effective Amazon Basics 6-Sheets Cross-Cut Shredder
-date: 2024-10-23T04:22:03.179Z
-updated: 2024-10-29T18:24:25.311Z
+date: 2024-11-07T19:20:56.542Z
+updated: 2024-11-14T23:11:02.074Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Look at the Cost-Effective Amazon Basics 6-Sheets Cross-Cut Shredder
@@ -41,13 +41,6 @@ Lifewire / Todd Braylor
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Todd Braylor
 
 [View On Amazon $280](https://www.amazon.com/dp/B019HF60EI/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7CB019HF60EI) [View On Walmart $140](https://www.walmart.com/ip/Escort-Passport-S55-High-Performance-Pro-Radar-and-Laser-Detector-w-DSP/49140972)
@@ -69,13 +62,6 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -92,11 +78,25 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Range: Impressive detection**
 
  The Passport S55 features Enhanced Radar Protection that delivers long-distance range for laser and radar bands, including K and Ka bands, widely used microwave frequencies for police radar guns. It reliably delivers on its promise of long-distance sensitivity. While testing the S55 in Highway mode I received Ka-band alerts over a mile and a half out from where I approached a highway patrol parked on the median of the interstate. This range was on par with much more expensive models.
 
  It reliably delivers on its promise of long-distance sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Not exactly enhanced**
 
@@ -106,18 +106,18 @@ Lifewire / Todd Braylor
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: You get what you pay for**
 
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
@@ -132,10 +132,10 @@ Lifewire / Todd Braylor
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -167,17 +167,21 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-initiating-meetings-on-the-move-tech-advice-for-2024/"><u>[New] Initiating Meetings on the Move Tech Advice for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-virtual-venue-vaults-users-for-2024/"><u>[New] Virtual Venue Vaults Users for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-cutting-edge-methods-for-recording-presentations/"><u>2024 Approved Cutting Edge Methods for Recording Presentations</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apple-imac-215-inch-with-4k-display-an-in-depth-review-of-elegance-meets-high-performance/"><u>Apple iMac 21.5-Inch with 4K Display: An In-Depth Review of Elegance Meets High Performance</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-google-frp-on-oppo-find-x6-pro-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass Google FRP on Oppo Find X6 Pro</u></a></li>
-<li><a href="https://win-dash.techidaily.com/how-to-ensure-seamless-operation-with-updated-zebra-printer-drivers-on-windows/"><u>How to Ensure Seamless Operation with Updated Zebra Printer Drivers on Windows</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/logitech-c615-analysis-exceptional-video-clarity-meets-budget-friendly-pricing/"><u>Logitech C615 Analysis: Exceptional Video Clarity Meets Budget Friendly Pricing</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lumix-dc-fz80-uniting-value-and-versatility/"><u>Lumix DC-FZ80: Uniting Value and Versatility</u></a></li>
-<li><a href="https://howto.techidaily.com/solved-warning-camera-failed-on-honor-100-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Honor 100 | Dr.fone</u></a></li>
-<li><a href="https://some-tips.techidaily.com/text-animations-unleashed-try-these-14-dynamic-showcases-for-2024/"><u>Text Animations Unleashed Try These 14 Dynamic Showcases for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-comfort-of-cumuluspro-mats-for-ergonomic-desks-the-ultimate-evaluation/"><u>Unveiling the Comfort of CumulusPRO Mats for Ergonomic Desks: The Ultimate Evaluation</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-features-of-the-samsung-galaxy-fit-a-review-tailored-to-active-individuals/"><u>Unveiling the Features of the Samsung Galaxy Fit - A Review Tailored to Active Individuals</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-broadcasting-podcasts-on-instagram-features/"><u>[New] Broadcasting Podcasts on Instagram Features</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-embark-on-a-wanderlust-adventure-becoming-a-professional-travel-vlogger/"><u>[New] In 2024, Embark on a Wanderlust Adventure Becoming A Professional Travel Vlogger</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-seamless-sharing-of-vast-viewpoints-uploading-wide-angle-content-on-iosandroid/"><u>[Updated] Seamless Sharing of Vast Viewpoints Uploading Wide Angle Content on iOS/Android</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-essential-quickstart-to-srt-to-txt-file-alteration/"><u>2024 Approved The Essential Quickstart to SRT to TXT File Alteration</u></a></li>
+<li><a href="https://article-tips.techidaily.com/best-practices-in-selecting-premium-hdr-cameras/"><u>Best Practices in Selecting Premium HDR Cameras</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/deciphering-the-enigma-of-the-budget-friendly-microsoft-surface-go-a-thorough-review-on-its-market-positioning/"><u>Deciphering the Enigma of the Budget-Friendly Microsoft Surface Go - A Thorough Review on Its Market Positioning</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/dynamic-documentary-tripod-explorers-companion/"><u>Dynamic Documentary Tripod: Explorer’s Companion</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/efficient-and-trustworthy-in-depth-analysis-of-the-audew-mini-compressor-unit/"><u>Efficient and Trustworthy: In-Depth Analysis of the Audew Mini Compressor Unit</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/essential-steps-to-upgrade-the-ram-on-your-laptop/"><u>Essential Steps to Upgrade the RAM on Your Laptop</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-top-wi-fi-routers-how-does-the-tp-link-archer-ax6000-stack-up-against-the-nighthawk-ax12/"><u>Evaluating Top Wi-Fi Routers: How Does The TP-Link Archer AX6000 Stack Up Against the Nighthawk AX12?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-top-of-the-line-escort-max-360-a-multi-tech-radar-detector-enhanced-with-gps-navigation-systems/"><u>Expert Analysis of the Top-of-the-Line Escort Max 360: A Multi-Tech Radar Detector Enhanced With GPS Navigation Systems</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-on-the-nintendo-switch-leading-the-pack-of-mobile-gamers/"><u>Expert Analysis on the Nintendo Switch - Leading the Pack of Mobile Gamers</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-demystifying-whatsapp-audio-talks/"><u>In 2024, Demystifying WhatsApp Audio Talks</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-on-the-iphone-11-pro-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock On the iPhone 11 Pro Without Previous Owner?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Xiaomi Redmi 12? | Dr.fone</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/top-5-luchshih-besplatnyh-programm-dlya-obmena-fajlami-mezhdu-kompyuterami-skachajte-segodnya/"><u>Топ-5 Лучших Бесплатных Программ Для Обмена Файлами Между Компьютерами: Скачайте Сегодня!</u></a></li>
 </ul></div>
 

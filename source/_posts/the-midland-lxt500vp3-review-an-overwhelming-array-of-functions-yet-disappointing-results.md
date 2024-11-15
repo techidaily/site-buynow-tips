@@ -1,7 +1,7 @@
 ---
 title: The Midland LXT500VP3 Review – An Overwhelming Array of Functions Yet Disappointing Results
-date: 2024-10-31T19:04:51.162Z
-updated: 2024-11-05T02:00:27.506Z
+date: 2024-11-10T10:39:01.916Z
+updated: 2024-11-15T08:09:34.805Z
 categories:
   - BestProducts
 description: This Article Describes The Midland LXT500VP3 Review – An Overwhelming Array of Functions Yet Disappointing Results
@@ -37,6 +37,13 @@ Lifewire / Andrew Hayward
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## TopMate C302 Laptop Cooling Pad
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Um5K58ex8qVMnW5PlEtqzPi9c-4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
@@ -63,6 +70,13 @@ Lifewire / Andrew Hayward
 
  The TopMate C302 is a strong example of the latter. It’s affordable and solidly effective, but the plastic design feels a bit flimsy. I wouldn’t bet on it lasting for the long haul without gentle handling, but given the price, you might not worry about it too much.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Light and a little flimsy
 
  The C302 measures just over 14 inches wide and is designed for laptops with screens up to 15.6 inches diagonal. It’s primarily made of lightweight plastic, with a thin metal grate on the top above the two 4.9-inch fans to help dissipate heat.
@@ -70,19 +84,6 @@ Lifewire / Andrew Hayward
  The entire pad weighs only 1.1 pounds, but the downside to it being so lightweight is that it feels a bit flimsy and rickety. It’ll do just fine holding your laptop and sitting on a desk, but I wouldn’t bet on it surviving a hard fall without some damage.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3qjwZzxQ2KVhmQJOdD2R9jBegvI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_03-ed7074949b6f4e4794ce30be2d582058.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -93,13 +94,6 @@ Lifewire / Andrew Hayward
  It’ll do just fine holding your laptop and sitting on a desk, but I wouldn’t bet on it surviving a hard fall without some damage.
 
  The C302 has a little bit of accent lighting via a pair of blue lights beneath each fan, but it doesn’t emanate a significant glow, nor is it customizable in any way.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Setup Process: Plug and play
 
@@ -123,13 +117,6 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Xs71AyeThjZwy-vZJ9LfxIhuXJc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_04-eadbaf270b874af9bb8843b95efe8ca7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
 
  Lastly, UNIGINE’s Heaven Benchmark hit 162 degrees internally and 109 degrees externally on the Razer Blade 15 alone, and dropped to 154 degrees internally and 105 degrees externally when using the C302\. All told, this lightweight and affordable pad delivered solid cooling power that helped cut down on both the internal and external temperature of the laptop while under significant stress.
@@ -137,10 +124,10 @@ Lifewire / Andrew Hayward
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Price: It’s very affordable
@@ -150,6 +137,13 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
 
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## TopMate C302 vs. Kootek Laptop Cooling Pad
 
@@ -168,10 +162,10 @@ Lifewire / Andrew Hayward
 * [North Face Pivoter Backpack](https://www.lifewire.com/north-face-pivoter-backpack-review-4690198)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -202,20 +196,21 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-free-ways-to-liven-up-static-video-texts/"><u>[New] FREE Ways to Liven Up Static Video Texts</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unlocking-effective-one-channel-streaming-techniques/"><u>[Updated] Unlocking Effective One-Channel Streaming Techniques</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-dissecting-youtubes-activities-post-uploading-videos/"><u>2024 Approved Dissecting YouTube's Activities Post-Uploading Videos</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/considering-macos-sonomas-latest-version/"><u>Considering MacOS Sonoma's Latest Version?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-the-best-websites-offering-quality-e-learning-courses/"><u>Discover the Best Websites Offering Quality E-Learning Courses</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discovering-value-in-chatgpt-plus-find-out-with-these-compelling-5-points/"><u>Discovering Value in ChatGPT Plus - Find Out With These Compelling 5 Points!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/elevate-your-exercise-experience-with-garmin-vivoactive-es-innovative-workout-plus-tune-in-feature/"><u>Elevate Your Exercise Experience with Garmin Vivoactive E's Innovative Workout + Tune-In Feature</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/elite-gamers-choice-a-thorough-review-of-the-portable-dynamo-razer-blade-pro/"><u>Elite Gamer's Choice: A Thorough Review of the Portable Dynamo, Razer Blade Pro</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ergonomic-folding-bluetooth-keyboard-by-moko-ideal-for-on-the-go-productivity/"><u>Ergonomic Folding Bluetooth Keyboard by MoKo - Ideal for On-the-Go Productivity</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/expert-analysis-raspberry-pi-5-enhanced-by-pi-52s-cooling-tower-speedy-performance-uncovered/"><u>Expert Analysis: Raspberry Pi 5 Enhanced by Pi 52'S Cooling Tower - Speedy Performance Uncovered</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Infinix Smart 8? | Dr.fone</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-easy-recording-setups-for-lol-enthusiasts-3-ways/"><u>In 2024, Easy Recording Setups for LOL Enthusiasts (3 Ways)</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/quick-setup-razer-mamba-driver-downloads-at-your-fingertips/"><u>Quick Setup: Razer Mamba Driver Downloads at Your Fingertips</u></a></li>
-<li><a href="https://common-error.techidaily.com/recovering-windows-gone-astray-a-step-by-step-guide/"><u>Recovering Windows Gone Astray: A Step-by-Step Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-premium-optical-and-hdd-units-20214/"><u>The Ultimate Guide to Premium Optical and HDD Units, 20214</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-zero-to-live-streaming-hero-essential-tips-and-tricks/"><u>[New] From Zero to Live-Streaming Hero Essential Tips and Tricks</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-orchestrate-online-albums-photos-pair-with-songs/"><u>[New] Orchestrate Online Albums Photos Pair With Songs</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-inspiration-in-frames-top-20-creative-instagrams/"><u>[Updated] In 2024, Inspiration in Frames Top 20 Creative Instagrams</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-seize-visual-riches-from-four-premium-youtube-portals/"><u>[Updated] Seize Visual Riches From Four Premium YouTube Portals</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2023s-most-stylish-and-durable-apple-watch-bands-reviewed-find-your-best-match-today/"><u>2023'S Most Stylish & Durable Apple Watch Bands Reviewed – Find Your Best Match Today!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2023s-premier-portable-internet-gadgets-comprehensive-guide/"><u>2023'S Premier Portable Internet Gadgets: Comprehensive Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-mastering-soundscapes-expert-insights-on-audio-post-production-in-garageband/"><u>2024 Approved Mastering Soundscapes Expert Insights on Audio Post-Production in GarageBand</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-most-advanced-mesh-networking-devices-reviewed-and-ranked/"><u>2024'S Most Advanced Mesh Networking Devices Reviewed and Ranked!</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/delving-into-immersive-vr-storytelling/"><u>Delving Into Immersive VR Storytelling</u></a></li>
+<li><a href="https://techtrends.techidaily.com/solutions-to-resolve-normalizdll-file-absence-issues-on-your-pc/"><u>Solutions to Resolve Normaliz.dll File Absence Issues on Your PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-clear-of-unwanted-facebook-screenshots/"><u>Steering Clear of Unwanted Facebook Screenshots</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-elite-home-theater-solutions-for-2n3/"><u>Ultimate Selection: Elite Home Theater Solutions for 2N3</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-leading-smart-display-devices-for-modern-living/"><u>Ultimate Selection: Leading Smart Display Devices for Modern Living</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-wireless-audio-selection-for-your-steam-deck-reviews-and-buyers-guide/"><u>Ultimate Wireless Audio Selection for Your Steam Deck - Reviews & Buyer's Guide</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-potential-downfalls-steering-clear-of-chatgpt-in-macos-app-stores/"><u>Understanding Potential Downfalls: Steering Clear of ChatGPT in macOS App Stores</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/wildwood-lake-nature-center/"><u>Wildwood Lake Nature Center</u></a></li>
 </ul></div>
 

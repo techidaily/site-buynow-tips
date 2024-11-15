@@ -1,7 +1,7 @@
 ---
 title: Kobo Clara Colour Review
-date: 2024-11-01T18:27:09.525Z
-updated: 2024-11-05T01:42:04.047Z
+date: 2024-11-11T00:06:11.616Z
+updated: 2024-11-15T00:50:09.393Z
 categories:
   - BestProducts
 description: This Article Describes Kobo Clara Colour Review
@@ -43,13 +43,6 @@ thumbnail: https://www.lifewire.com/thmb/p87KTX9w2nvzlOOitLgg_0NznYY=/400x300/fi
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Tony Mitera
 
 [View On EBay](https://www.ebay.com/p/563813511)
@@ -73,6 +66,13 @@ thumbnail: https://www.lifewire.com/thmb/p87KTX9w2nvzlOOitLgg_0NznYY=/400x300/fi
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: A lot of power packed into a small frame**
 
  The Beatit Jump Starter D11’s main unit's effectively a small black brick with red accents. Roughly the size of a small paperback book, the unit's constructed out of durable plastic and features a flashlight at one end. Along one of the long sides there's a small display that shows battery status, the on/off switch, two USB power outputs, and the device’s charging port. On the opposing side a rubber flap covers the jumper cable port; a unique port that the jumper cable accessory plugs in to.
@@ -84,10 +84,10 @@ thumbnail: https://www.lifewire.com/thmb/p87KTX9w2nvzlOOitLgg_0NznYY=/400x300/fi
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: It can’t realistically be much simpler**
@@ -98,13 +98,6 @@ thumbnail: https://www.lifewire.com/thmb/p87KTX9w2nvzlOOitLgg_0NznYY=/400x300/fi
 
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Plenty of power for all your needs**
 
  Time and again, the Beatit Jump Starter D11 was able to get a car with a very[depleted battery](https://www.lifewire.com/car-batteries-are-made-to-die-534765) started. Even after repeated testing the unit’s own battery only dropped down to 85% capacity.
@@ -112,6 +105,13 @@ thumbnail: https://www.lifewire.com/thmb/p87KTX9w2nvzlOOitLgg_0NznYY=/400x300/fi
  Charging a phone with a jump starter seems like overkill, and the unit’s ability to charge at 1,200mAh confirms that impression. At such an elevated level of charging your phone or other device will likely get its battery topped off in very little time. With 18,000mAh of capacity you can fully charge a modern phone at least twice, and still leave the unit with the juice it needs in order to start a car.
 
  Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
@@ -126,6 +126,13 @@ thumbnail: https://www.lifewire.com/thmb/p87KTX9w2nvzlOOitLgg_0NznYY=/400x300/fi
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
 
  At that price point, it packs a ton of value into its diminutive size.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
@@ -142,13 +149,6 @@ thumbnail: https://www.lifewire.com/thmb/p87KTX9w2nvzlOOitLgg_0NznYY=/400x300/fi
 **For the price, it's perfect.**
 
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -181,24 +181,22 @@ thumbnail: https://www.lifewire.com/thmb/p87KTX9w2nvzlOOitLgg_0NznYY=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-deep-dive-into-acid-pro-functionality-and-alternatives-for-2024/"><u>[New] Deep Dive Into ACID Pro Functionality & Alternatives for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-examining-recordcasts-capabilities-through-honest-lenses/"><u>[New] In 2024, Examining RecordCast's Capabilities Through Honest Lenses</u></a></li>
-<li><a href="https://win-able.techidaily.com/solved-steam-keeps-crashing-quickly-and-easily/"><u>[SOLVED] Steam Keeps Crashing | Quickly & Easily!</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-ideal-extras-for-enhancing-dji-phantom-4/"><u>[Updated] 2024 Approved Ideal Extras for Enhancing DJI Phantom 4</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-how-to-record-professional-audio-in-audacity/"><u>2024 Approved How To Record Professional Audio In Audacity</u></a></li>
-<li><a href="https://win-popular.techidaily.com/afterward-right-click-the-windows-10-drive-again-and-choose-repair-filesystem-gparted-will-attempt-to-fix-any-errors-it-finds-on-the-disk-if-this-process-is213/"><u>Afterward, Right-Click the Windows 10 Drive Again and Choose Repair Filesystem. GParted Will Attempt to Fix Any Errors It Finds on the Disk. If This Process Is Successful, Reboot Your Computer and See if the Issue Has Been Resolved.</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/decoding-the-hidden-cause-for-non-existent-fb-video-picks-for-2024/"><u>Decoding the Hidden Cause for Non-Existent FB Video Picks for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-honor-x7b-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from Honor X7b to Gmail | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/revolutionary-top-8-methods-convert-subtitles-to-srt-format-seamlessly-for-2024/"><u>Revolutionary Top 8 Methods Convert Subtitles to SRT Format Seamlessly for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/tested-and-trusted-urban-armor-rainbow-sequin-case-for-macbook-pro-a-solid-blend-of-style-and-durability/"><u>Tested & Trusted Urban Armor Rainbow Sequin Case for MacBook Pro – A Solid Blend of Style and Durability</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-battle-between-iphone-15-pro-max-and-samsung-s24-ultra-analyzing-the-contrasts/"><u>The Battle Between iPhone 15 Pro Max and Samsung S24 Ultra - Analyzing the Contrasts</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-definitive-verdict-on-the-j5-v1-pro-flashlight-your-go-to-source-of-resilient-mini-led-brightness-in-low-light-conditions/"><u>The Definitive Verdict on the J5 V1-Pro Flashlight – Your Go-To Source of Resilient, Mini LED Brightness in Low Light Conditions</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-dynamic-world-of-connected-toys-an-insightful-review-on-dash-by-wonder-workshop/"><u>The Dynamic World of Connected Toys: An Insightful Review on Dash by Wonder Workshop</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-oneplus-8t-phablet-reviewed-impressive-velocity-undermined-by-patchy-photography-capabilities/"><u>The OnePlus 8T Phablet Reviewed: Impressive Velocity Undermined by Patchy Photography Capabilities</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-perfect-blend-of-power-and-portability-unveiling-the-secrets-behind-the-lenovo-thinkpad-x1-titanium-yoga-a-2-in-1-laptop-that-will-satisfy-even-the-most120/"><u>The Perfect Blend of Power and Portability - Unveiling the Secrets Behind the Lenovo ThinkPad X1 Titanium Yoga: A 2-in-1 Laptop That Will Satisfy Even the Most Demanding ThinkPad Fans</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-poweradd-pilot-pro2-reassessed-its-impact-on-charging-efficiency-across-various-devices/"><u>The PowerADD Pilot Pro2 Reassessed: Its Impact on Charging Efficiency Across Various Devices</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-sclera-is-the-tough-outer-layer-that-helps-protect-and-maintain-the-shape-of-the-eyeball-damage-to-the-sclera-would-likely-cause-structural-issues-or-pa104/"><u>The Sclera Is the Tough Outer Layer that Helps Protect and Maintain the Shape of the Eyeball. Damage to the Sclera Would Likely Cause Structural Issues or Pain Rather than Isolated Visual Impairment for a Specific Object.</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-dbpower-600a-18000mah-jump-starters-features-and-benefits/"><u>The Ultimate Guide to the DBPOWER 600A, 18000mAh Jump Starter's Features and Benefits</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/top-conversores-dvd-para-mp4-ideais-para-mac-e-windows-11-no-ano-de-202n3-ranking-definitivo/"><u>Top Conversores DVD Para MP4 Ideais Para Mac E Windows 11 No Ano De 202N3 - Ranking Definitivo!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-cost-effective-growth-tactic-for-youtube-fanbases/"><u>[New] 2024 Approved Cost-Effective Growth Tactic for YouTube Fanbases</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-best-martial-arts-videogames-comparison-mastery-edition/"><u>[New] In 2024, Best Martial Arts Videogames Comparison Mastery Edition</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-apple-musics-role-in-professional-video-production/"><u>[Updated] Apple Music's Role in Professional Video Production</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-american-karaoke-experience-quality-entertainment-below-150/"><u>Affordable American Karaoke Experience: Quality Entertainment Below $150</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-lenovo-tab-m10-hd-202n-review-ultimate-guide-for-web-browsing-and-media-streaming/"><u>Affordable Lenovo Tab M10 HD 202N Review: Ultimate Guide for Web Browsing & Media Streaming</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-temperature-readings-or-fragile-equipment-our-in-depth-tp67-analysis/"><u>Affordable Temperature Readings or Fragile Equipment? Our In-Depth TP67 Analysis</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1726026459586-dvd/"><u>DVDファイルをモバイルデバイス仕様にリニューアルするテクニック</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-call-logs-from-xiaomi-redmi-k70e-by-fonelab-android-recover-call-logs/"><u>How to rescue lost call logs from Xiaomi Redmi K70E</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-disconnected-nvidia-graphics-top-tips-and-fixes/"><u>Resolving Disconnected Nvidia Graphics: Top Tips & Fixes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/0-innovative-yt-reactions-for-engaging-content-for-2024/"><u>Top 10 Innovative YT Reactions for Engaging Content for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-perks-and-pitfalls-a-complete-assessment-of-dell-xps-13-latest-model/"><u>Unveiling the Perks and Pitfalls: A Complete Assessment of Dell XPS 13 Latest Model</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-the-ultimate-guide-to-blurring-videos-on-iphone-and-android/"><u>Updated The Ultimate Guide to Blurring Videos on iPhone and Android</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-honor-x8b-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Honor X8b Phone Network-Ready</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-m3-macbook-air-should-be-on-your-radar/"><u>Why M3 MacBook Air Should Be on Your Radar</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-tech-enthusiasts-love-the-samsung-galaxy-s20-fe-a-detailed-look-at-its-5g-capabilities/"><u>Why Tech Enthusiasts Love the Samsung Galaxy S20 FE – A Detailed Look at Its 5G Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-the-ring-video-doorbell-2-is-a-must-have-for-your-home-safety-arsenal/"><u>Why the Ring Video Doorbell 2 Is a Must-Have for Your Home Safety Arsenal</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/would-you-benefit-from-chatgpt-plus-heres-why-you-should-consider-signing-up/"><u>Would You Benefit From ChatGPT Plus? Here's Why You Should Consider Signing Up!</u></a></li>
 </ul></div>
 

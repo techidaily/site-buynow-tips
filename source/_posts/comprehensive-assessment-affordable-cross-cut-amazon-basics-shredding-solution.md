@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
-date: 2024-10-30T19:59:10.410Z
-updated: 2024-11-04T17:04:29.396Z
+date: 2024-11-09T08:56:55.918Z
+updated: 2024-11-14T22:00:13.710Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
@@ -36,6 +36,13 @@ Lifewire / Jonno Hill
 [View On Amazon $950](https://www.amazon.com/dp/B07SW895CZ?tag=lifewire-onsite-prod-20&ascsubtag=5072832%7Cnbfa2130ffdd54ba8b950c4ad0f0be8b007%7CB07SW895CZ) [View On Microsoft](https://www.microsoft.com/en-us/p/hp-omen-obelisk-gaming-desktop/8rqn7sf9phfz?activetab=pivot%3aoverviewtab)
 
 4
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## HP Omen Obelisk
 
@@ -93,14 +100,14 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/gfeGQoUwG35q5t-JwO07Ax4jm5I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-3-f4e655ec9e684a47855e9ee7373ba4b6.jpg)
 
- Lifewire / Jonno Hill
-
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Jonno Hill
 
 ## **Performance** :**Great components for gaming and productivity**
 
@@ -111,10 +118,10 @@ Lifewire / Jonno Hill
  The Omen comes equipped with a 1TB[NVMe SSD](https://www.lifewire.com/what-is-m2-833453) and 32GB of DDR4 2666 memory. This is definitely more RAM than games alone will call for, but it’s merely an adequate amount of RAM for some creative professionals working with more demanding software like Adobe After Effects. Keep in mind though, even those that don’t normally need a lot of RAM can still benefit from having more. Among other things, it gives you the luxury of keeping all of your browser tabs and background applications running without having to start juggling applications on and off, which can be helpful from a productivity standpoint.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Gaming** :**Great for the most demanding titles**
@@ -131,27 +138,20 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Pz9tV-mhJl_Cjm8HSqEQ_VZPbVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-5-cdbd9d78a8c14b8e8bce0113d12e9fcc.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Network** :**Great speeds, but software that doesn’t do much**
 
  The HP Omen Obelisk has gigabit LAN and a Wi-Fi 5 (2x2) networking, the latter supporting a maximum speed of 866 Mbps. Everything functioned smoothly from a networking standpoint during my tests.
 
  I made a point to try out the Network Booster software found in the OMEN Command Center and didn’t see anything tremendously useful, unfortunately. I tried setting the priority of Steam to “Low” and downloading a game, but the game still downloaded at my maximum internet speed. I took it one step further and toggled the “Block” option for Steam, and tried to resume the download, but Steam kept on downloading at the maximum speed. The software was successful in blocking Chrome when that option was switched on, however.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: Just enough options**
 
@@ -173,13 +173,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **HP OMEN Obelisk vs Corsair One Pro**
 
  If you want something even smaller, and even more monolithic, the[Corsair One Pro](https://www.lifewire.com/corsair-one-pro-review-5072820) (see on[Corsair](https://www.corsair.com/us/en/Categories/Products/Systems/CORSAIR-ONE/CORSAIR-ONE-PRO-i180-Compact-Workstation-Grade-PC/p/CS-9040001-NA) ) manages to pack a high-end gaming rig in a minuscule 12-liter case, making even the HP OMEN seem large by comparison. It has a very solid construction and manages to fit water cooling for both the CPU and GPU inside its small frame.
@@ -191,6 +184,13 @@ Lifewire / Jonno Hill
  **High performance and fantastic value, but upsetting thermals.**
 
  The HP OMEN Obelisk delivers fantastic value for gamers shopping for a high-performance, pre-built PC. HP has come a long way, and now offers a much more compelling solution that will appeal to a much broader set of buyers. That said, there is work to be done still, as the case suffers from poor airflow, poor thermals, and not a lot of meaningful ways to improve them.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -226,14 +226,22 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://technical-tips.techidaily.com/ais-pivotal-role-in-advancing-humanity-and-the-modern-world/"><u>AI's Pivotal Role in Advancing Humanity and the Modern World</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/boost-your-privacy-new-wireguard-integration-for-proton-vpn-users-on-linux-systems/"><u>Boost Your Privacy: New WireGuard Integration for Proton VPN Users on Linux Systems</u></a></li>
-<li><a href="https://program-issues.techidaily.com/experience-the-thrills-of-god-of-wars-first-person-shooter-version-launched-on-pc/"><u>Experience the Thrills of God of War's First-Person Shooter Version – Launched on PC</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-vivo-y28-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Vivo Y28 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-unleash-potential-creating-a-youtube-channel-that-shines-in-games/"><u>In 2024, Unleash Potential Creating a YouTube Channel that Shines in Games</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-review-is-the-docooler-usb-20-and-12-megapixel-quality-worth-it/"><u>In-Depth Review: Is The Docooler USB 2.0 and 12 Megapixel Quality Worth It?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/is-the-newest-generation-apple-ipad-102-inch-worth-it-a-comprehensive-review/"><u>Is the Newest Generation Apple iPad 10.2-Inch Worth It? A Comprehensive Review.</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-performance-watches-find-your-perfect-match/"><u>Leading Performance Watches : Find Your Perfect Match</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-home-surveillance-a-step-by-step-review-of-the-blink-outdoor-4-wi-fi-lighted-security-camera/"><u>Mastering Home Surveillance: A Step-by-Step Review of the Blink Outdoor 4 Wi-Fi Lighted Security Camera</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-how-to-blend-beats-and-bullets-in-microsofts-presentation-tool/"><u>[New] 2024 Approved How to Blend Beats and Bullets in Microsoft's Presentation Tool</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-perfect-shots-no-hassle-leading-smartphone-tripods/"><u>[New] In 2024, Perfect Shots, No Hassle Leading Smartphone Tripods</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-ultimate-budget-friendly-gopro-adds/"><u>2024 Approved Ultimate Budget-Friendly GoPro Adds</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-free-and-paid-microsoft-office-substitutes-for-2n24/"><u>Best Free and Paid Microsoft Office Substitutes for 2N24</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/decoding-digital-domain-dynamics-metaverse-edition/"><u>Decoding Digital Domain Dynamics Metaverse Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-top-budget-morning-lifter-totobays-second-generation-wake-up-light-review/"><u>Discover the Top Budget Morning Lifter: Totobay's Second Generation Wake-Up Light Review</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/guidelines-to-gradually-reduce-audio-amplitude-in-logic-pro-for-2024/"><u>Guidelines to Gradually Reduce Audio Amplitude in Logic Pro for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-photography-at-the-tip-of-your-fingers-top-10-apps/"><u>In 2024, Photography at the Tip of Your Fingers – Top 10 Apps</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximizing-value-a-comprehvew-of-the-budget-friendly-ar-5-by-arcshell-with-impressive-specs/"><u>Maximizing Value: A Comprehvew of the Budget-Friendly AR-5 by ArcShell with Impressive Specs.</u></a></li>
+<li><a href="https://network-issues.techidaily.com/overcoming-dark-mode-in-win11-update-fall/"><u>Overcoming Dark Mode in Win11 Update Fall</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/prime-safe-video-meeting-software-rankings-for-smes-for-2024/"><u>Prime Safe Video Meeting Software Rankings for SMEs for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/stay-active-with-the-fitbit-versa-3-outstanding-inbuilt-gps-and-comprehensive-health-apps-for-enhanced-motivation/"><u>Stay Active with the Fitbit Versa 3: Outstanding Inbuilt GPS & Comprehensive Health Apps for Enhanced Motivation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-most-cost-effective-typing-experience-diving-into-the-fellowes-microban-wired-keyboard-review/"><u>The Most Cost-Effective Typing Experience? Diving Into the Fellowes Microban Wired Keyboard Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-quintessential-sonic-treatment-of-the-h8i/"><u>The Quintessential Sonic Treatment of the H8i</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-7-affordable-mobile-phone-deals/"><u>Top 7 Affordable Mobile Phone Deals</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-7-essentials-for-choosing-the-right-smart-tv/"><u>Top 7 Essentials for Choosing the Right Smart TV</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-iphones-for-gamers-which-one-reigns-supreme/"><u>Top iPhones for Gamers: Which One Reigns Supreme?</u></a></li>
 </ul></div>
 
