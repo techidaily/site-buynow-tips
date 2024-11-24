@@ -1,7 +1,7 @@
 ---
 title: "HERO9 Review: Unmatched Performance, Exorbitant Price"
-date: 2024-09-09T06:11:29.475Z
-updated: 2024-09-10T06:11:29.475Z
+date: 2024-11-19T18:26:59.193Z
+updated: 2024-11-24T18:40:00.096Z
 categories:
   - BestProducts
 description: "This Article Describes HERO9 Review: Unmatched Performance, Exorbitant Price"
@@ -14,11 +14,9 @@ thumbnail: https://thmb.techidaily.com/770723973e178e7a8930f29e3f500f2a61aa4b3cc
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## M MOOCK Car Jump Starter
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/KCvyWCCSvwCtAvcRekce_ETLqRE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
@@ -45,15 +43,13 @@ thumbnail: https://thmb.techidaily.com/770723973e178e7a8930f29e3f500f2a61aa4b3cc
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## M MOOCK Car Jump Starter
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/9HsjvcJhUjJuGMXLaAGh2B_0bAw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -80,6 +76,10 @@ thumbnail: https://thmb.techidaily.com/770723973e178e7a8930f29e3f500f2a61aa4b3cc
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: A rugged unit, a generous accessory kit, and a sturdy case to keep it all in**
 
  As mentioned, the M MOOCK's case packs a lot of style, but it's not just flash—it also provides a convenient place to keep everything together. The jump starter unit itself is thin but long, so the case ends up being a relatively large square. You can stash it under a seat without any issue, but it won't fit in most glove boxes.
@@ -90,12 +90,6 @@ thumbnail: https://thmb.techidaily.com/770723973e178e7a8930f29e3f500f2a61aa4b3cc
 
  The accessory kit that comes with the unit is full-bodied. The main piece is the jump starter module which has the two jumper clamps coming off a plastic module that plugs into the unit. To charge the unit you can choose to use either a wall charger for home use or a power port charger for use within a running vehicle. Finally, a set of laptop port adapters and a short DC cable to use with them can be used to[charge your laptop](https://www.lifewire.com/overcharging-laptop-battery-causes-life-span-to-decrease-2378126) or similar device.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: It takes time to find a spot just right to set up for a jump**
 
  Positioning the MOOCK to jump start a car is a little more difficult than it needs to be. Plugging the jumper cable module into the unit and turning it on is the easy part. Due to the short length of the cables, however, it's difficult to get them connected while also keeping the unit secure in the engine bay. Thankfully once you find that Goldilocks spot, the terminal clamps are on the small side and easy to attach, even if the area around the clamping location is cramped.
@@ -104,12 +98,6 @@ thumbnail: https://thmb.techidaily.com/770723973e178e7a8930f29e3f500f2a61aa4b3cc
 
  To charge other devices there’s a lot less fuss involved. You simply need to plug the device into the USB or DC power port and turn the unit on. A Micro USB cable is provided, so if you have a device that uses a more modern charging port, you'll want to put an extra cable for it in the MOOCK case as well.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: A nice jolt of power to start even the most drained of vehicles**
 
  Assuming you’ve carefully placed the M MOOCK in a spot where it can securely clamp onto the battery yet not fall out of the engine bay, you’ll find that the unit does a good job of jump starting a car. The test vehicle had a battery depleted down to 10V, and while the vehicle did momentarily struggle to start initially, it started just fine after double-checking the connections. It’s hard to say if that initial struggle was due to the unit’s relatively lower start and peak output currents, or if it truly just boiled down to a connectivity issue.
@@ -120,15 +108,13 @@ An inexpensive option considering what it can do.
 
 Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Key Features: A bright flashlight, but in a decidedly narrow band**
 
  The built-in flashlight in the M MOOCK Jump Starter puts out a lot of light but only in a relatively narrow band. Luckily, the full unit's basically handheld and therefore it's easy to point the flashlight at what you need. Once you start connecting cables it becomes much harder to aim the light properly. The flashlight can also be set to rapidly blink to draw attention to your situation, or to blink in the standard pattern for “SOS” to really drive home the fact that you need assistance.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Some of the best value to be found in jump starters**
 
@@ -137,11 +123,9 @@ Lifewire / Tony Mitera
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Competition: A good showing against close competition**
 
 **_DBPOWER 600A Peak 18000mAh Portable Car Jump Starter_ :** Despite the high quality of the DBPOWER, the M MOOCK 1000A Peak 18000mAh Car Jump Starter is still a better choice. It provides slightly better output current, which is important for reliable jump starts, and yet it's also slightly less expensive. You can’t go wrong either way, but the MOOCK unit has just the slightest edge.
@@ -181,8 +165,6 @@ A good choice with just a few nagging flaws.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -190,4 +172,20 @@ A good choice with just a few nagging flaws.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevate-your-channel-with-these-top-11-budget-friendly-tools-for-2024/"><u>[New] Elevate Your Channel with These Top 11 Budget-Friendly Tools for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-insta-tiktik-mastery-uniting-two-social-giants/"><u>[Updated] In 2024, Insta-TikTik Mastery Uniting Two Social Giants</u></a></li>
+<li><a href="https://win-blog.techidaily.com/football-manager-202n3-startup-issue-solution-and-prevention-tips/"><u>Football Manager 202N3 Startup Issue - Solution and Prevention Tips</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-iphone-video-zooming-made-simple/"><u>In 2024, IPhone Video Zooming Made Simple</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/marvels-new-hero-miles-morales-takes-the-limit-off-an-in-depth-review/"><u>Marvel's New Hero: Miles Morales Takes the Limit Off - An In-Depth Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/point-and-shoot-sense-with-kodak-fz53-zoom/"><u>Point & Shoot Sense with Kodak FZ53 Zoom</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/power-in-portability-unveiling-canons-sx420-camera-capabilities/"><u>Power in Portability: Unveiling Canon’s SX420 Camera Capabilities</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/secrets-to-professional-streams-selecting-from-the-best-9-filters-for-2024/"><u>Secrets to Professional Streams Selecting From the Best 9 Filters for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sub-100-wireless-revolution-with-tp-link-archer-c80-a-review-for-tech-savvy-shoppers/"><u>Sub $100 Wireless Revolution with TP-Link Archer C80: A Review for Tech Savvy Shoppers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-future-of-gaming-playstation-s4-pro-and-its-revolutionary-4k-performance/"><u>The Future of Gaming: PlayStation S4 Pro and Its Revolutionary 4K Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-new-frontier-in-console-gaming-an-inside-look-at-the-sony-playstation-5/"><u>The New Frontier in Console Gaming - An Inside Look at the Sony PlayStation 5</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-tips-for-resolving-apex-legends-voice-communication-problems/"><u>Troubleshooting Tips for Resolving Apex Legends' Voice Communication Problems</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-pictures-from-asus-rog-phone-7-by-fonelab-android-recover-pictures/"><u>Undelete lost pictures from Asus ROG Phone 7.</u></a></li>
+</ul></div>
 

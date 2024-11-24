@@ -1,7 +1,7 @@
 ---
 title: Mastering STEM with Makeblock – A Thorough Review of the Innovative mBot Coding Kit
-date: 2024-11-13T21:45:23.611Z
-updated: 2024-11-15T00:08:59.487Z
+date: 2024-11-23T19:01:48.890Z
+updated: 2024-11-24T16:53:46.359Z
 categories:
   - BestProducts
 description: This Article Describes Mastering STEM with Makeblock – A Thorough Review of the Innovative mBot Coding Kit
@@ -37,6 +37,10 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Amazon Echo Dot (4th Gen)
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/wkHXB7KTws9HfL-i1yYYsWIMm5w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Amazon-Echo-Dot-4th-Generation-1-fc73a047312d4d588ffcbeae7bdd3368.jpg)
@@ -64,22 +68,12 @@ Lifewire / Erika Rawes
  Amazon’s[Echo](https://www.lifewire.com/what-is-the-amazon-echo-4147189) Dot has become a go-to option for those looking for a compact and affordable smart speaker. The brand has now released a 4th generation of its[Echo Dot](https://www.lifewire.com/amazon-dot-4149509) , and the new version has a totally different look than its predecessors. What else is new and different about the Echo Dot (4th Gen)? How does the new Dot perform? I tested the Echo Dot (4th Gen) to find out.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: A completely new look**
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/TtbQpfhvpeKgt-Aso1WoKQ6m2VI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-2-89fbd54fb6a14efba195a0094b8d7b6f.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -91,24 +85,25 @@ Lifewire / Erika Rawes
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/HELf_jWdoxnVe1w7XOL9sC7GoO8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-4-f100069b4b7d40dc8661b1614e150934.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
  The 4th Gen Dot still has a 3.5 mm output jack, which I was really pleased to see. Google’s Nest Mini (2nd Gen) lacks a 3.5 mm jack. However, unlike Google’s newest mini smart speaker, the Echo Dot does not have a keyhole mount for mounting on a wall. The speaker is meant for placement on a flat surface, as evidenced by the rubberized bottom that prevents slipping and helps the Echo Dot stay in place.
 
  Overall, I really appreciate the design of the new Dot. Modern and elegant, it fits into my living room, kitchen, or bedroom, as it doesn’t have a cold feel that takes away from the space. The 4th-Gen Dot is made from environmentally conscious materials like post-consumer recycled plastics and fabrics, thus securing it a “Climate Pledge Friendly” tag on Amazon.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Easy as ever**
 
 [Setting up the Echo Dot](https://www.lifewire.com/set-up-amazon-echo-4153561) is simple, especially if you already have the Alexa app downloaded. In the Alexa app, you just go to the devices menu, select on the “+” to add a device, and follow the prompts to add the Echo Dot 4th Gen speaker. The process only takes a moment.
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/dVUkRuy5SxFHmCHXxSseZY5tjhw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-3-320d298cdb18405d9d326c272464ef0d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -130,13 +125,6 @@ Lifewire / Erika Rawes
 
  The Echo Dot (4th Gen) is powered by[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) . The Alexa voice assistant on the new Echo Dot is the same Alexa that you get on the Echo Dot (3rd Gen). You’ll be able to control your smart devices, listen to music, hear the news, set routines, shop, manage your schedule, and do all of the same things you could do before.[Alexa is always learning new skills](https://www.lifewire.com/alexa-skills-4126799) though. Amazon announced new Alexa features (coming soon) like Care Hub, which is a free feature that lets you check in on loved ones.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Echo Dot (4th Gen) With Clock: A Design Game Changer**
 
  The Echo Dot (4th Gen) comes in two other iterations: The Echo Dot (4th Gen) with Clock and the Echo Dot (4th Gen) Kids Edition. I tested the “with clock” iteration as a part of this review, but I did not test the kids model.
@@ -153,26 +141,21 @@ Lifewire / Erika Rawes
 
  I like the Echo Dot (4th Gen) with Clock better than the regular Echo Dot (4th Gen), as the regular version feels like it’s missing something.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: $60 with clock, $50 without**
 
  The Echo Dot (4th Gen) retails for $50, and for $10 more, you can pick up the “with clock” version. The clock is very much worth it simply because the device looks so much better with it (aside from the obvious added functionality), and for first-time buyers, the default model is definitely worth $50\. It looks great, sounds good, and provides an affordable way to access Alexa and control your smart home.
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/fdW9QpFUSBjNMTYTGdjFggaOH9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-5-Comparison-6841e2f32a734282b509976489bd0383.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Amazon Echo Dot (4th Gen) vs. Apple HomePod Mini**
 
@@ -183,13 +166,6 @@ Lifewire / Erika Rawes
 **Primarily a design upgrade.**
 
  The new Echo Dot is a great speaker at a great price, but it’s not worth an upgrade if you already have the 3rd-gen Dot unless you’re going with the clock version. For first time buyers, it's a no-brainer.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -223,20 +199,18 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-secure-your-digital-footprints-with-tiktok-video-backup/"><u>[New] 2024 Approved Secure Your Digital Footprints with TikTok Video Backup</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-harness-the-power-of-engagement-boosting-youtube-traffic/"><u>[Updated] In 2024, Harness the Power of Engagement Boosting YouTube Traffic</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-peer-reviews-unpacking-vllo-experience/"><u>[Updated] Peer Reviews Unpacking VLLO Experience</u></a></li>
-<li><a href="https://howto.techidaily.com/best-methods-for-infinix-hot-40-pro-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Infinix Hot 40 Pro Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-anker-superspeed-usb-3/"><u>Comprehensive Anker SuperSpeed USB 3.</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-and-install-latest-epson-wf-3620-printer-drivers-on-windows-10-8-or-7/"><u>Download & Install Latest Epson WF-3620 Printer Drivers on Windows 10, 8, or 7</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-jabras-robust-bluetooth-audio-devices/"><u>Exploring Jabra's Robust Bluetooth Audio Devices</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-unlock-apple-id-activation-lock-on-apple-iphone-11-pro-by-drfone-ios/"><u>How to Unlock Apple ID Activation Lock On Apple iPhone 11 Pro?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maximizing-connectivity-insights-from-our-expert-review-on-the-linksys-ea8300-router/"><u>Maximizing Connectivity: Insights From Our Expert Review on the Linksys EA8300 Router</u></a></li>
-<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-honor-magic-5-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Honor Magic 5 | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-of-mlb-the-show-19-aesthetically-pleasing-sports-game-with-hidden-rpg-features/"><u>Review of MLB The Show 19: Aesthetically Pleasing Sports Game with Hidden RPG Features</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/robomaster-s1-by-dji-a-delightful-blend-of-fun-battles-programming-skills-and-educational-play/"><u>RoboMaster S1 by DJI: A Delightful Blend of Fun Battles, Programming Skills & Educational Play</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-culminating-chapter-in-stealth-gaming-a-critical-look-at-hitman-3/"><u>The Culminating Chapter in Stealth Gaming: A Critical Look at Hitman 3</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-pc-audio-upgrades-the-leading-sound-cards-of-2024/"><u>Top-Rated PC Audio Upgrades: The Leading Sound Cards of 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/troubleshoot-your-iphone-solving-common-glitches-via-dfu-mode-technique/"><u>Troubleshoot Your iPhone: Solving Common Glitches via DFU Mode Technique</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-realtime-recording-titans/"><u>[Updated] RealTime Recording Titans</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-unlocking-the-art-of-iphone-podcast-downloads-with-ease/"><u>2024 Approved Unlocking the Art of iPhone Podcast Downloads with Ease</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-leading-ergo-friendly-typing-solutions-reviewed/"><u>2024'S Leading Ergo-Friendly Typing Solutions Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/deliberating-over-macos-sonoma-installation/"><u>Deliberating Over MacOS Sonoma Installation</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/from-two-dimensions-techniques-for-3d-text-in-illustrator/"><u>From Two-Dimensions Techniques for 3D Text in Illustrator</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/futureproofing-your-internet-the-premier-long-distance-routers-launched/"><u>Futureproofing Your Internet: The Premier Long-Distance Routers Launched</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/introducing-the-ultimate-hd-digital-frame-nixplays-x15d-reviewed/"><u>Introducing the Ultimate HD Digital Frame - Nixplay’s X15D Reviewed</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/premier-annual-update-best-free-livestream-software-and-apps-review/"><u>Premier Annual Update Best Free Livestream Software & Apps Review</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/streamline-your-footage-iphones-shortening-methods/"><u>Streamline Your Footage IPhone's Shortening Methods</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-premier-selection-of-mesh-wi-fi-systems-for-seamless-internet-experience/"><u>The Premier Selection of Mesh Wi-Fi Systems for Seamless Internet Experience</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/updated-2024-approved-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>Updated 2024 Approved Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Motorola G54 5G? | Dr.fone</u></a></li>
 </ul></div>
 

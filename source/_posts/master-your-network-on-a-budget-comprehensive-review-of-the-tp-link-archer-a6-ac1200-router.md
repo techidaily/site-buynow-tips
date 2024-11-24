@@ -1,7 +1,7 @@
 ---
 title: "Master Your Network On a Budget: Comprehensive Review of the TP-Link Archer A6 AC1200 Router"
-date: 2024-11-13T02:16:50.162Z
-updated: 2024-11-15T03:35:24.920Z
+date: 2024-11-23T19:37:37.680Z
+updated: 2024-11-24T18:03:34.843Z
 categories:
   - BestProducts
 description: "This Article Describes Master Your Network On a Budget: Comprehensive Review of the TP-Link Archer A6 AC1200 Router"
@@ -40,6 +40,10 @@ Lifewire / Claire Cohen
 
 ![TP-Link AC1200 Wi-Fi Range Extender RE305](https://www.lifewire.com/thmb/C8f1R4cMjb3MUZ1ViPdvQ67Q7tE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4LW4043312-0cb211cf35c746879e5136b3f9d62b63.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Claire Cohen
 
 [View On Amazon $38](https://www.amazon.com/dp/B01N8ROH7G/?tag=lifewire-onsite-prod-20&ascsubtag=4589559%7Cn7c9facd8b2a7476ea5e744a63f18481911%7CB01N8ROH7G) [View On Walmart $38](https://www.walmart.com/ip/TP-Link-RE305-AC1200-Wi-Fi-Range-Extender-works-with-any-router-or-WiFi-system/981199634) [View On Best Buy $50](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Ftp-link-ac1200-dual-band-wi-fi-range-extender-white%2F6295316.p)
@@ -76,10 +80,7 @@ Lifewire / Claire Cohen
  There's an[Ethernet port](https://www.lifewire.com/what-is-an-ethernet-port-817546) at the bottom of the device as well as a pinhole reset button, just in case it needs rebooted at any point. It's a bit awkward to hang an[Ethernet cord](https://www.lifewire.com/what-is-an-ethernet-cable-817548) from the extender depending on where you've placed it in your home, but it's a useful addition to bring Ethernet to a desktop, TV, or gaming console without having to put holes in your wall.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Simple and quick**
@@ -89,13 +90,6 @@ Lifewire / Claire Cohen
  First, you plug in the extender to an outlet, then use any computer to connect to its network. After plugging it into an outlet, we found that it popped up immediately on our MacBook Pro's available wireless network list. Once connected to the network, setup is done via the web address listed on the guide.
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/PS8-Iywv5MsnOo99Fir-jNOiPF8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-4-5c924206c9e77c0001ff0bb8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
 
@@ -107,6 +101,10 @@ Lifewire / Claire Cohen
 
  There is one important pain point, however, to keep in mind during setup. The extender's administrative password utilizes a default "admin/admin" login, so you'll want to change that to keep unauthorized users out. It can be changed via the TP-Link Tether app, which isn't clearly lined out in the instructions. It isn't required, but if you want to keep your network as secure as possible, it's an important part of setup.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Connectivity and Network Performance:** **Strong, multi-device connectivity**
 
  Several devices were connected to our wireless network, including a MacBook Pro,[iPhone X](https://www.lifewire.com/iphone-x-4150706) , iPad Pro,[Nintendo Switch](https://www.lifewire.com/what-is-the-nintendo-switch-4148184) , and[PlayStation 4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) . When testing the wireless extender's range, at 10 feet to around 70 or so feet away from the router in a 2,100 square foot home, its signal was quite strong, with full bars on an iPhone X and iPad Pro in most areas. One bathroom on the first floor did suffer from occasionally spotty connectivity at around 1,500 feet away from the router.
@@ -116,19 +114,13 @@ Lifewire / Claire Cohen
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/Lyz1QcuQDPYlUp5pPBJiL0YKSag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-2-5c9241dcc9e77c0001a92785.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: Clean and easy to understand**
@@ -190,20 +182,19 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/updated-premium-editing-enhance-iphone-hdr-with-these-four-master-techniques-in-adobe/"><u>[Updated] [Premium Editing] Enhance iPhone HDR with These Four Master Techniques in Adobe</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-unveiling-hidden-potential-edit-wonders-on-snapchat-app/"><u>[Updated] In 2024, Unveiling Hidden Potential Edit Wonders on Snapchat App</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-closer-look-at-the-philips-hf-3505-the-ultimate-morning-light-solution/"><u>A Closer Look at the Philips HF 3505: The Ultimate Morning Light Solution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-and-versatile-asus-chromebook-flip-c3-ca-an-in-depth-product-assessment/"><u>Affordable & Versatile Asus Chromebook Flip C3# CA - An In-Depth Product Assessment</u></a></li>
-<li><a href="https://extra-information.techidaily.com/behind-the-scenes-of-virtual-reality-films-for-2024/"><u>Behind the Scenes of Virtual Reality Films for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/digital-book-club-top-4-reasons-for-a-kindle-unlimited-membership/"><u>Digital Book Club: Top 4 Reasons for a Kindle Unlimited Membership</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-iphone-6-data-from-ios-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How to Recover iPhone 6 Data From iOS iTunes? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-mov-files-of-vivo-y100-5g-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and MOV files of Vivo Y100 5G using Video Repair Utility on Windows?</u></a></li>
-<li><a href="https://games-able.techidaily.com/how-to-view-your-steam-stats-and-see-how-you-gamed/"><u>How to View Your Steam Stats (and See How You Gamed)</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-xiaomi-redmi-13c-5g-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Xiaomi Redmi 13C 5G to Another | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/nvidia-shield-tv-pro-analysis-top-tier-gaming-and-streaming-hardware-unveiled/"><u>Nvidia Shield TV Pro Analysis: Top-Tier Gaming and Streaming Hardware Unveiled</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-of-the-motorola-one-5g-ace-unmatched-speed-and-excellent-endurance/"><u>Review of the Motorola One 5G Ace: Unmatched Speed and Excellent Endurance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-acer-chromebook-15-an-expert-review-of-its-big-screen-and-decent-performance/"><u>Unveiling the Acer Chromebook 15: An Expert Review of Its Big Screen and Decent Performance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-features-a-comprehhaview-of-samsungs-q60r-series-gaming-4k-tv/"><u>Unveiling the Features: A Comprehhaview of Samsung's Q60R Series Gaming 4K TV</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1726029217027-youtube/"><u>YouTube動画取得ガイド：ダウンロード手順</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-complete-process-for-customizing-video-game-channels/"><u>[Updated] In 2024, The Complete Process for Customizing Video Game Channels</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-ultra-clear-gameplay-best-hdmi-21-monitors-for-ps5-gamers-for-2024/"><u>[Updated] Ultra-Clear Gameplay Best HDMI 2.1 Monitors For PS5 Gamers for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-quick-fix-kinemaster-for-top-memes/"><u>2024 Approved Quick-Fix KineMaster for Top Memes</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-tecno-spark-10-pro-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Tecno Spark 10 Pro Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-beatech-bitwatch-s1-plus-smartwatch-evaluation-an-affordable-tech-marvel/"><u>Comprehensive Beatech Bitwatch S1 Plus Smartwatch Evaluation: An Affordable Tech Marvel</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-hc-wxf991-camcorder/"><u>Comprehensive Review: HC-WXF991 Camcorder</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-vivo-t2-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Vivo T2 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-honor-x7b-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Honor X7b Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-malfunctioning-function-fn-buttons-on-your-dell-notebook-a-comprehensive-guide/"><u>Fixing Malfunctioning Function (Fn) Buttons on Your Dell Notebook - A Comprehensive Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-sony-xperia-5-v-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Sony Xperia 5 V Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/microsoft-surface-pro-7-evaluation-robust-performance-enhancements-without-major-overhauls/"><u>Microsoft Surface Pro 7 Evaluation: Robust Performance Enhancements Without Major Overhauls</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/saving-big-with-smart-security-vuebell-video-doorbell-reviewed/"><u>Saving Big with Smart Security: VueBell Video Doorbell Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/stellaris-space-saga-reviewed-mastering-exploration-empire-building-and-warfare/"><u>Stellaris Space Saga Reviewed - Mastering Exploration, Empire Building, and Warfare</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-art-of-cloud-integration-in-modern-photo-systems/"><u>The Art of Cloud Integration in Modern Photo Systems</u></a></li>
 </ul></div>
 

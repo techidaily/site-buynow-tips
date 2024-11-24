@@ -1,7 +1,7 @@
 ---
 title: How Does the New Samsung Galaxy Watch Active2 Stack Up? A Comprehensive Review and Comparison with the Original Model
-date: 2024-09-09T06:16:52.233Z
-updated: 2024-09-10T06:16:52.233Z
+date: 2024-11-20T16:38:39.657Z
+updated: 2024-11-24T19:55:36.803Z
 categories:
   - BestProducts
 description: This Article Describes How Does the New Samsung Galaxy Watch Active2 Stack Up? A Comprehensive Review and Comparison with the Original Model
@@ -9,25 +9,17 @@ excerpt: This Article Describes How Does the New Samsung Galaxy Watch Active2 St
 thumbnail: https://www.lifewire.com/thmb/V32S1o20cWfFGVFPqYk6fRUFvmA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_GalaxyWatchActive2_HeroSquare-8ec2b040552f4e82b569c140246d3e1f.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123466/16836" target="_top" id="2123466">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123466" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123466/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Experience Excellent Connectivity with the Simplistic Design of ClearStream's Eclipse Antenna - A Comprehensive Review
 
 4.4
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Clearstream ECLIPSE
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/C1hoQetKMx7bAHqwsQ9gt0Fz_S0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -52,12 +44,6 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/0gXsFyigpZzsnNAEj3tIrKImB8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jonno Hill
 
 [View On Amazon $35](https://www.amazon.com/dp/B01HQ4BRIG/?tag=lifewire-onsite-prod-20&ascsubtag=4843098%7Cnd0143d72158b4d609e6ef9a213c7445e18%7CB01HQ4BRIG) [View On Walmart $33](https://www.walmart.com/ip/Antennas-Direct-ECL-Clear-Stream-Eclipse-Sure-Grip-Indoor-HDTV-Antenna/146091443?slfpid=3)
@@ -81,24 +67,20 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/AbdriPZwiRfd8iHxT9N5E6Ae2hk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_03-d434cf7b4c5f4f73b08c8c220fd0d43e.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Inoffensive but unexceptional**
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
 
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup: Simple and easy**
 
  The ClearStream Eclipse Antenna has the simplest setup of all the HDTV antennas I’ve tested. There is no mounting hardware, no power adapter, and nothing else to worry about. The antenna comes with a strip of adhesive that can be used to affix it directly to a wall or other preferred surface.
@@ -108,35 +90,25 @@ Lifewire / Jonno Hill
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Above average**
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Range: Fair to middling**
 
  Antenna’s Direct rates the ClearStream Eclipse Antenna for up to 35 miles of range, although I’ve seen reports of people getting good results from further, or having trouble from much closer. My apartment is well within the supported range, so my sentiments reflect its use in city settings more than suburbs or exurbs.
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
@@ -163,14 +135,11 @@ Lifewire / Jonno Hill
 * Range  35 miles
 * Warranty  Lifetime parts
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -179,4 +148,22 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-embark-on-a-journey-through-augmented-space/"><u>[New] In 2024, Embark on a Journey Through Augmented Space</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-expand-your-viewing-realm-on-youtube-platforms/"><u>[Updated] Expand Your Viewing Realm on YouTube Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/access-denied-heres-the-path-to-password-reload/"><u>Access Denied? Here's the Path to Password Reload</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-kobo-forma-a-commitment-to-enhancing-your-reading-experience/"><u>In-Depth Analysis of Kobo Forma: A Commitment to Enhancing Your Reading Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-tab-s5e-your-guide-to-a-high-end-android-experience/"><u>In-Depth Analysis of the Samsung Galaxy Tab S5e: Your Guide to a High-End Android Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-mobvoi-ticwatch-pro-4g-assessment-the-ultimate-smartwatch-experience/"><u>In-Depth Mobvoi Ticwatch Pro 4G Assessment - The Ultimate Smartwatch Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-extended-desktop-pad-reviews-choose-the-right-one/"><u>Leading Extended Desktop Pad Reviews: Choose the Right One !</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/making-sense-of-smartphone-needs-with-the-google-pixel-4a-review/"><u>Making Sense of Smartphone Needs with the Google Pixel 4a Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/modernize-your-space-with-style-an-insightful-taotronics-tt-dl16-led-lamp-evaluation/"><u>Modernize Your Space with Style: An Insightful TaoTronics TT-DL16 LED Lamp Evaluation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mohu-blade-tv-antenna-overview-exceptional-quality-modern-aesthetics-and-strong-in-home-reception-capabilities/"><u>Mohu Blade TV Antenna Overview: Exceptional Quality, Modern Aesthetics, and Strong In-Home Reception Capabilities</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/navigating-zoom-video-conferencing-via-email-client-for-2024/"><u>Navigating Zoom Video Conferencing via Email Client for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1726027443062-ogg/"><u>Ogg形式データの簡単な作成方法 - 入門ガイド</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-essential-guide-to-creating-beautifully-stretched-time-videos-online-for-2024/"><u>The Essential Guide to Creating Beautifully Stretched Time Videos Online for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-picks-premium-webcams-for-quality-podcasting/"><u>Top Picks Premium Webcams for Quality Podcasting</u></a></li>
+</ul></div>
 

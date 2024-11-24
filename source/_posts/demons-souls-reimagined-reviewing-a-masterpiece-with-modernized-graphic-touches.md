@@ -1,7 +1,7 @@
 ---
 title: Demon's Souls Reimagined - Reviewing a Masterpiece with Modernized Graphic Touches
-date: 2024-11-13T09:48:53.293Z
-updated: 2024-11-14T22:44:22.189Z
+date: 2024-11-22T18:22:02.089Z
+updated: 2024-11-24T16:17:33.500Z
 categories:
   - BestProducts
 description: This Article Describes Demon's Souls Reimagined - Reviewing a Masterpiece with Modernized Graphic Touches
@@ -44,6 +44,10 @@ Lifewire / Emily Isaacs
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/-RQ5Ui3BjE0KxHGHYE-UjNz7EY4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_HeroSquare-b4b1522941d44a18b75a586155788477.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Emily Isaacs
 
 [View On Amazon $1,499](https://www.amazon.com/dp/B07NHQ4CXM?tag=lifewire-onsite-prod-20&ascsubtag=4782074%7Cnbf356f5c2a82467e96b6fbc9b5b4691023%7CB07NHQ4CXM) [View On Walmart $3,497](https://www.walmart.com/ip/LG-65-Class-OLED-C9-Series-4K-2160P-Smart-Ultra-HD-HDR-TV-OLED65C9PUA-2019-Model/543371577)
@@ -70,13 +74,6 @@ Lifewire / Emily Isaacs
 
  Lifewire / Emily Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Smart and sleek**
 
 [OLED TVs](https://www.lifewire.com/oled-tv-basics-1846926) are among the best money can buy, characterized by their ability to produce a wide range of colors alongside deep, rich blacks by toggling individual pixels to emit their own light. On top of this, OLED frames are thinner and lighter than their LED predecessors. It’s a powerful combination that makes for a startlingly realistic picture alongside an expanded range of placement options. In the case of the LG C9, it’s a design that’s as smart as it is sleek thanks to the inclusion of Google Assistant and Alexa.
@@ -89,13 +86,14 @@ Lifewire / Emily Isaacs
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/mxKfDJGuIKYcsSIQoKfzwDbYYmg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_02-3da87ff8439343f691cf02e9234d1f04.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Do it yourself worthy, but you’ll need a hand**
@@ -112,13 +110,6 @@ Lifewire / Emily Isaacs
 
  Once the TV has been installed, LG’s WebOS guides the first-time setup process by prompting inputs for settings ranging from time zone and language up to and including any necessary user agreements. The LG C9 will complete a scan in order to identify the devices and then you’re free to customize the TV’s settings by pressing the gear button on the LG Magic Remote. The first setting we changed was the Auto Power Saving (APS) picture mode, which reduces power use by dimming the brightness of the TV. The other important setting to disable is TruMotion, which smooths motion in TV shows and movies by altering the frame rate of the programming. If your LG’s picture looks a bit too much like a soap opera, chances are you need to disable this setting.
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Image Quality: Stunning picture**
 
  The image quality on the LG C9 is, frankly, stunning thanks in large part to its excellent contrast and wide range of colors, combined with the OLED panel’s ability to turn individual pixels on and off. Even from wide viewing angles, the 4K picture maintains its excellence, with limited washing out and color loss.
@@ -129,18 +120,15 @@ Lifewire / Emily Isaacs
 
  These pictures are further enhanced with LG’s α9 Gen 2 intelligent processor, new to 2019’s model. It excels at drawing out detail and correcting quality discrepancies within the picture, such as banding which creates textures and strips in areas of the screen that would otherwise be smooth. This is particularly important given the large screen size and high resolution. While it’s not as bright as an LED TV since it lacks backlighting, it doesn’t need it as the TV already possesses excellent color, a change here would risk washing out the inky blacks on the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Audio: Better than expected**
 
  While OLED TVs aren’t generally known for their great sound quality, the LG C9 has a surprisingly good sound system all things considered—but a soundbar would still be recommended. Audio in TV or movies is generally good, but it struggles to regulate loud and soft noises in a scene. Streaming Lizzo’s_Cuz I Love You_ on Spotify produces a surprising depth of sound, but it’s simply not comparable to a more robust system that a soundbar or home theater system would provide.
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/SZUaFESJi6OZubIeLdK1e9L9FEM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_04-c559e4cc6de64f0c8baf4470f883dd9e-4844a7694fb74eb2904f1128ba93f760.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -152,18 +140,15 @@ Lifewire / Emily Isaacs
 
  In addition to the WebOS software, the LG C9 also comes with Google Assistant as well as Amazon’s Alexa. It makes it easy to search content, switch between apps and features, or check the weather, among other things.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: A premium price for a premium TV**
 
  65-inch 4K TV’s generally retail for between $800-$5,000, and this cost jumps further as screen size increases. The LG C9 is a premium 4K TV that sits at the top of this curve, offering integrated smart technologies and excellent picture with an intuitive, easy-to-use interface. As such, it comes at a premium price of $2,500 (Amazon) that exceeds the cost of many competitor models, but with so many additional features it’s worth the high price—even if it’s difficult to swallow.
 
 [How to Buy a TV For Your Home in 2024](https://www.lifewire.com/best-60-inch-tvs-4580159)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **LG OLED C9 65-inch vs. Samsung 65-inch Class Q60R**
 
@@ -226,22 +211,18 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/iscover-the-top-30-free-intro-creators-on-youtube-for-2024/"><u>[New] Discover the Top 30 Free Intro Creators on YouTube for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-wave-weaver-toolkit/"><u>[Updated] Wave Weaver Toolkit</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-iphone-14-icloud-activation-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing iPhone 14 iCloud Activation Lock</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/codename-47s-final-mission-evaluating-hitman-n3/"><u>Codename 47'S Final Mission - Evaluating Hitman N3</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-the-most-advanced-game-console-releases-of-2024/"><u>Discover the Most Advanced Game Console Releases of 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-visual-charm-and-roleplaying-surprises-in-mlb-the-show-2019/"><u>Exploring the Visual Charm and Roleplaying Surprises in MLB The Show 2019</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fix-your-yakuza-n6-on-windows-say-goodbye-to-game-freezes-and-errors/"><u>Fix Your Yakuza N6 on Windows: Say Goodbye to Game Freezes and Errors</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/hp-stream-11-review/"><u>HP Stream 11 Review</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/making-a-trendy-jujutsu-kaisen-tiktok-video-for-2024/"><u>Making a Trendy Jujutsu Kaisen TikTok Video for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/mastering-visibility-restoring-unhidden-apps-on-apples-device/"><u>Mastering Visibility: Restoring Unhidden Apps on Apple's Device</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/premier-game-applications-your-guide-to-the-best-google-play-pass-titles/"><u>Premier Game Applications: Your Guide to the Best Google Play Pass Titles</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/relying-on-ai-can-chatgpt-offer-dependable-health-information/"><u>Relying on AI: Can ChatGPT Offer Dependable Health Information?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-2019-apple-ipad-air-an-authoritative-review-for-multimedia-enthusiasts/"><u>The 2019 Apple iPad Air: An Authoritative Review for Multimedia Enthusiasts</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-fusion-of-style-and-smart-features-in-the-michael-kors-access-gen-e-mkgo-in-depth-review/"><u>The Fusion of Style and Smart Features in the Michael Kors Access Gen E Mkgo: In-Depth Review</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/tips-for-truly-tuning-into-your-iphone-podcasts/"><u>Tips for Truly Tuning Into Your iPhone Podcasts</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-karaoke-systems-find-your-perfect-singing-companion/"><u>Top-Rated Karaoke Systems : Find Your Perfect Singing Companion!</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/ultimate-guide-solutions-for-unfreezing-your-pc-or-mac/"><u>Ultimate Guide: Solutions for Unfreezing Your PC or Mac</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-five-must-play-street-fighter-clones/"><u>[New] 2024 Approved Five Must-Play Street Fighter Clones</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-decoding-inshot-the-ultimate-video-editing-tool-for-2024/"><u>[New] Decoding InShot The Ultimate Video Editing Tool for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-metaviews-analyzing-6-in-depth-metaverse-scenarios/"><u>[New] Metaviews Analyzing 6 In-Depth Metaverse Scenarios</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-perfecting-game-capture-techniques-and-tricks-for-2024/"><u>[New] Perfecting Game Capture Techniques & Tricks for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-innovation-on-your-wrist-the-ultimate-guide-to-the-beantech-bitwatch-s1plus-smartwatch/"><u>Affordable Innovation on Your Wrist: The Ultimate Guide to the Beantech Bitwatch S1+ Smartwatch</u></a></li>
+<li><a href="https://article-posts.techidaily.com/echoing-giggles-ultimate-ringtone-vaults-for-2024/"><u>Echoing Giggles Ultimate Ringtone Vaults for 2024</u></a></li>
+<li><a href="https://win-popular.techidaily.com/how-flipbuilder-revolutionizes-reading-experience-by-converting-txt-layouts-to-electronic-magazine-formats-is-it-the-future-of-publishing-online/"><u>How FlipBuilder Revolutionizes Reading Experience by Converting TXT Layouts to Electronic Magazine Formats – Is It the Future of Publishing Online?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/insights-into-the-advantages-and-disadvantages-of-using-pidgin-messenger/"><u>Insights Into the Advantages & Disadvantages of Using Pidgin Messenger</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ranking-the-most-advanced-and-trendy-smartwatches-available/"><u>Ranking the Most Advanced and Trendy Smartwatches Available</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/seamless-routine-for-pets-innovative-petsafe-six-port-meal-scheduler-and-dispenser/"><u>Seamless Routine for Pets: Innovative PetSafe Six-Port Meal Scheduler and Dispenser</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/software-patches-versus-full-scale-software-revamps/"><u>Software Patches, Versus Full-Scale Software Revamps</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/tech-giants-collaborate-google-and-renault-pioneer-the-future-of-self-programmable-cars/"><u>Tech Giants Collaborate: Google & Renault Pioneer the Future of Self-Programmable Cars</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/ultimate-voice-changer-for-valorant-gamers-free-to-use/"><u>Ultimate Voice Changer for Valorant Gamers – Free to Use</u></a></li>
 </ul></div>
 

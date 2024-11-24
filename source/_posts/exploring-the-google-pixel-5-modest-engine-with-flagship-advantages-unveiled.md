@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Google Pixel 5: Modest Engine with Flagship Advantages Unveiled"
-date: 2024-09-09T06:15:42.434Z
-updated: 2024-09-10T06:15:42.434Z
+date: 2024-11-23T16:56:44.102Z
+updated: 2024-11-24T18:36:08.320Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring the Google Pixel 5: Modest Engine with Flagship Advantages Unveiled"
@@ -13,16 +13,14 @@ thumbnail: https://thmb.techidaily.com/a4e1d9aad0c342b5e84a72b2aa595ddec8716c1b8
 
 3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/AjVVBONBD_MfQeA3voTlfDA2Jrc=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
  What We Like
@@ -48,12 +46,6 @@ thumbnail: https://thmb.techidaily.com/a4e1d9aad0c342b5e84a72b2aa595ddec8716c1b8
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
 [View On Steampowered.com](https://store.steampowered.com/app/464920/Surviving%5FMars/) [View On G2a.com](https://www.g2a.com/en-us/surviving-mars-first-colony-edition-steam-key-global-i10000147752001?)
@@ -74,11 +66,9 @@ thumbnail: https://thmb.techidaily.com/a4e1d9aad0c342b5e84a72b2aa595ddec8716c1b8
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -88,19 +78,15 @@ thumbnail: https://thmb.techidaily.com/a4e1d9aad0c342b5e84a72b2aa595ddec8716c1b8
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Humans have never been so annoying**
 
  The game begins with a multi-hour long tutorial program, which I highly recommend you undertake before playing the game. There are so many various aspects to the game—basic needs, threats to your colony, resources to import and export—that it would be disastrous not to get caught up to speed. It took me a total of five hours to complete these tutorials, but I had to restart a couple after a couple operator error moments when I accidentally destroyed my only water vaporizer and had no idea how to rebuild it. So, it will probably take you less.
@@ -133,24 +119,16 @@ thumbnail: https://thmb.techidaily.com/a4e1d9aad0c342b5e84a72b2aa595ddec8716c1b8
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
 ## **Competition: Other city-building games**
@@ -177,14 +155,11 @@ thumbnail: https://thmb.techidaily.com/a4e1d9aad0c342b5e84a72b2aa595ddec8716c1b8
 * Graphics  HD 4600/Geforce 620/Radeon 6450 or equivalent GPUs with 1 GB of video RAM
 * Game Updates  Green Planet, Project Laika, Space Race, Colony Design Set, Marsvision Song Contest
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -193,4 +168,20 @@ thumbnail: https://thmb.techidaily.com/a4e1d9aad0c342b5e84a72b2aa595ddec8716c1b8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-premier-selection-of-11-costless-yt-moniker-makers/"><u>[New] The Premier Selection of 11 Costless YT Moniker Makers</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-evaluating-camstudios-latest-screen-recording-features/"><u>2024 Approved Evaluating CamStudio's Latest Screen Recording Features</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Poco X5 Pro | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-realme-c67-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Realme C67 5G? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-successfully-bypass-icloud-activation-lock-on-iphone-15-pro-max-by-drfone-ios/"><u>How to Successfully Bypass iCloud Activation Lock on iPhone 15 Pro Max</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Motorola Moto G34 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/reclaim-your-loss-with-these-top-10-iphone-x-hacks/"><u>Reclaim Your Loss with These Top 10 iPhone X Hacks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/stream-media-in-style-on-a-budget-unveiling-the-lenovo-tab-m10-hds-capabilities-in-this-exclusive-2020-review/"><u>Stream Media in Style on a Budget: Unveiling the Lenovo Tab M10 HD's Capabilities in This Exclusive 2020 Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-definitive-netgee-orbi-review-for-unmatched-wireless-coverage-today/"><u>The Definitive Netgee Orbi Review for Unmatched Wireless Coverage Today</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-right-processor-for-better-computing/"><u>The Right Processor for Better Computing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-surviving-in-days-gone-motorcycle-adventures-amongst-the-dead/"><u>The Ultimate Guide to Surviving in 'Days Gone': Motorcycle Adventures Amongst the Dead</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-using-audews-functional-portable-air-compressor-review-and-insights/"><u>The Ultimate Guide to Using Audew's Functional Portable Air Compressor: Review and Insights</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-3d-video-software-best-free-and-paid-solutions/"><u>Updated In 2024, 3D Video Software Best Free and Paid Solutions</u></a></li>
+</ul></div>
 

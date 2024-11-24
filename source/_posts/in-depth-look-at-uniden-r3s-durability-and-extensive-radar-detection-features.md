@@ -1,7 +1,7 @@
 ---
 title: In-Depth Look at Uniden R3's Durability and Extensive Radar Detection Features
-date: 2024-09-09T06:15:57.606Z
-updated: 2024-09-10T06:15:57.606Z
+date: 2024-11-21T17:05:55.153Z
+updated: 2024-11-24T18:43:31.160Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Look at Uniden R3's Durability and Extensive Radar Detection Features
@@ -9,12 +9,6 @@ excerpt: This Article Describes In-Depth Look at Uniden R3's Durability and Exte
 thumbnail: https://www.lifewire.com/thmb/LFmilRU6aoSIRaw439aKzODG_8Q=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Uniden_RadarDetectors_R3_HeroSquare-112ca019065d4c22b827809e595b9995.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Navigating Style vs Functionality: An In-Depth Look at Amazfit GTS Wearable Tech
 
 4.2
@@ -23,12 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/LFmilRU6aoSIRaw439aKzODG_8Q=/400x300/fi
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/BMrWIhRHdBvfqR68yWXTZcyH-28=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_HeroSquare-067af9089d9c4269979450e8963726c9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Yoona Wagener
 
  What We Like
@@ -49,22 +37,14 @@ Lifewire / Yoona Wagener
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Amazfit GTS Smartwatch
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/A_Lpmewuqg5_v_xhsfuydQ5zl6E=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_HeroSquare-067af9089d9c4269979450e8963726c9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
 [View On Amazon $129](https://www.amazon.com/dp/B07W6V2RNK/?tag=lifewire-onsite-prod-20&ascsubtag=5120854%7Cn90dfc71ee24a4976b5267b7ff579808b08%7CB07W6V2RNK) [View On Walmart $134](https://www.walmart.com/ip/287424959) [View On Best Buy $61](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6397098.p)
@@ -101,12 +81,6 @@ _We purchased the Amazfit GTS_   _so our reviewer could put it to the test. Keep
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/hMe1Ur0Wtt9LDIiSfC3zvE_5G7E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_02-0b1e98c2de40486b9fea116eb28ccd3c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Yoona Wagener
 
  I was unable to test this device’s 50-meter water resistance for swimming or other aquatic workouts, but I did wear it in the shower without experiencing any issue. The manufacturer does note, however, that this wearable isn’t safe for hot showers or other water sports such as scuba diving, diving, and high-speed water sports, generally.
@@ -125,6 +99,10 @@ Lifewire / Yoona Wagener
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/BCJ0gqS-gzR_dq3WSGazLqPMNCk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_05-9f844a14ab734d9291e338b6fa2519da.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
  While the display looks great and is responsive, the lack of clarity about certain menu options, both the meaning and how to activate them, and the lack of control over data widget order, takes a few points away from the overall stylish look.
@@ -142,27 +120,17 @@ Lifewire / Yoona Wagener
 ![Amazfit GTS](https://www.lifewire.com/thmb/lrymbZEsmkXZy1YnjpGE5QutCbA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_04-109baf1e43444eff9789d9c02e2b2e77.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
  While sleep data is elaborate, it’s presented in a way that requires a lot of scrolling or tapping back and forth across screens. For that reason, I never felt like I received a concise tip for bettering or understanding my sleep habits, which made the data feel a little too overwhelming and repetitive to make it approachable. This is an issue I had with referring to the app for any supplementary information.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Software: More style than substance
 
  The best fitness trackers and[smartwatches](https://www.lifewire.com/best-smartwatches-4048042) also have intuitive companion apps, but that’s not a great strength of the Amazfit GTS. Like most[wearables](https://www.lifewire.com/smart-watches-and-wearables-4781531) , the Zepp app (formerly Amazfit) is required to initially set up the device and view tracked data in more detail.
@@ -185,6 +153,10 @@ Lifewire / Yoona Wagener
 
  While I gathered that a PAI of 100 seemed to be ideal for cardiovascular health, the app further complicated things by suggesting, for example, a 120-minute indoor workout to gain 15 PAI. It was difficult to grasp why that would be worth it or realistic, and like many areas of the software, it felt more flashy and underdeveloped than insightful.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Battery: Solid but considerably shy of the 14-day claim
 
  The manufacturer bills the battery longevity at an impressive 14 days with typical usage in smartwatch mode, which includes continuous heart rate and sleep monitoring and logging workouts three times a week.
@@ -192,29 +164,15 @@ Lifewire / Yoona Wagener
  That’s pretty much the way I used this device, though with maybe an extra workout or two and with the display in always-on mode, and the battery drained by day seven. On the bright side, it recharged quickly in less than the manufacturer’s 2-hour estimate. Amazfit also claims that the battery can last up to 46 days in basic mode without Bluetooth or heart-rate monitoring turned on.
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Price: Slightly pricey for what it is
 
  The Amazfit GTS retails for about $120, though it’s possible to purchase it closer to $100\. While it’s more on the budget-friendly end of the spectrum, its Apple Watch-adjacent design doesn’t extend to the benefit of the first-rate fitness technology you’ll find in its alter ego.
 
  Spending between $100 to $130 for a style-conscious, band-style fitness tracker from heavy hitters such as[Fitbit](https://www.lifewire.com/what-is-fitbit-4176010) and Garmin could increase the tracking benefits considerably with extras like VO2 Max and SPO2 monitoring. For a little more (or less), gaining a user-friendly layout and companion app could be worth losing the Apple Watch aesthetic this device works hard to mirror.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Amazfit GTS vs. Garmin vivosmart 4
 
  While the Amazfit GTS sort of looks like an Apple Watch, it doesn’t really come close to performing like one. The Garmin vivosmart 4 is much more in line with what the GTS delivers. For $130, this band-style tracker offers a streamlined design with a few upscale touches like metal finishings and attractive band colors, but it also analyzes much more than the GTS does. It tracks stress, VO2 max, blood oxygen saturation, and measures what Garmin calls body battery, which keeps you attuned to energy levels throughout the day.
@@ -255,8 +213,6 @@ Lifewire / Yoona Wagener
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -264,4 +220,26 @@ Lifewire / Yoona Wagener
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-exclusive-choice-of-cost-free-chat-apps-plus-desktop-viewing/"><u>[New] 2024 Approved Exclusive Choice of Cost-Free Chat Apps + Desktop Viewing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-high-quality-vector-graphics-top-10-sources/"><u>[New] High-Quality Vector Graphics Top 10 Sources</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-kickstarting-a-vlog-key-hardware-and-apps-for-2024/"><u>[New] Kickstarting a Vlog Key Hardware & Apps for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-podcast-perfection-editing-techniques-in-garageband/"><u>[New] Podcast Perfection Editing Techniques in GarageBand</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-swipe-to-enhance-turning-videos-upside-down/"><u>[New] Swipe to Enhance Turning Videos Upside Down</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-rev-up-your-video-earning-game-with-vimeo-strategies/"><u>[Updated] In 2024, Rev Up Your Video Earning Game with Vimeo Strategies</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-tailored-instagram-filters-a-step-by-step-process/"><u>[Updated] In 2024, Tailored Instagram Filters A Step-by-Step Process</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-optimizing-personal-video-experience-building-an-organized-watch-later-list/"><u>[Updated] Optimizing Personal Video Experience Building an Organized 'Watch Later' List</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-visionary-vistas-accessible-designs-for-youtube-artists/"><u>[Updated] Visionary Vistas Accessible Designs for YouTube Artists</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-the-ultimate-guide-to-google-wifi-your-perfect-wireless-mesh-network-solution/"><u>Comprehensive Analysis: The Ultimate Guide to Google WiFi - Your Perfect Wireless Mesh Network Solution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-assessment-of-the-newest-apple-watch-series-nine-edition/"><u>Comprehensive Assessment of the Newest Apple Watch - Series Nine Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-dell-xps-13-2-in-1-notebook-evaluation-exceptional-productivity-and-power/"><u>Comprehensive Dell XPS 13 (2-in-1) Notebook Evaluation: Exceptional Productivity & Power</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-uniden-r3-radar-detector-assessment-superior-construction-and-extended-detection/"><u>Comprehensive Uniden R3 Radar Detector Assessment - Superior Construction & Extended Detection</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/crafting-a-new-world-on-mars-building-cities-amidst-the-excitement-and-windy-weather/"><u>Crafting a New World on Mars - Building Cities Amidst the Excitement and Windy Weather</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decoding-the-value-an-insightful-reveal-on-the-google-pixelbook-gos-exceptional-quality-and-higher-pricing/"><u>Decoding the Value: An Insightful Reveal on The Google Pixelbook Go's Exceptional Quality & Higher Pricing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-best-in-budget-vr-gaming-a-comprehensive-look-at-the-oculus-quest-2/"><u>Discovering the Best in Budget VR Gaming: A Comprehensive Look at the Oculus Quest 2</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-jackery-powerbar-charging-solution-featuring-a-unique-inbuilt-ac-outlet/"><u>Evaluating Jackery PowerBar Charging Solution - Featuring a Unique Inbuilt AC Outlet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-tp-links-ac1200-wi-fi-range-extender-re305-features-benefits-and-user-experiences/"><u>Evaluating TP-Link's AC1200 Wi-Fi Range Extender (RE305): Features, Benefits, and User Experiences</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unlock-secrets-of-cybersecurity-buy-a-phone-for-just-50-and-learn-ransomware-solutions-via-our-podcast/"><u>Unlock Secrets of Cybersecurity: Buy a Phone for Just $50 and Learn Ransomware Solutions via Our Podcast</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Midland LXT500VP3 Review – An Overwhelming Array of Functions Yet Disappointing Results
-date: 2024-11-10T10:39:01.916Z
-updated: 2024-11-15T08:09:34.805Z
+date: 2024-11-21T17:28:18.232Z
+updated: 2024-11-24T16:53:13.451Z
 categories:
   - BestProducts
 description: This Article Describes The Midland LXT500VP3 Review – An Overwhelming Array of Functions Yet Disappointing Results
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/liJwE98Sv8EgOXIWVzrkFGGXxEo=/400x300/fi
 ## Radiation Therapy May Be Employed for Pain Management and Fracture Prevention in Cases of Significant Osteoblastic Growths
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## TopMate C302 Laptop Cooling Pad
 
@@ -38,10 +42,7 @@ Lifewire / Andrew Hayward
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## TopMate C302 Laptop Cooling Pad
@@ -70,13 +71,6 @@ Lifewire / Andrew Hayward
 
  The TopMate C302 is a strong example of the latter. It’s affordable and solidly effective, but the plastic design feels a bit flimsy. I wouldn’t bet on it lasting for the long haul without gentle handling, but given the price, you might not worry about it too much.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Design: Light and a little flimsy
 
  The C302 measures just over 14 inches wide and is designed for laptops with screens up to 15.6 inches diagonal. It’s primarily made of lightweight plastic, with a thin metal grate on the top above the two 4.9-inch fans to help dissipate heat.
@@ -84,6 +78,10 @@ Lifewire / Andrew Hayward
  The entire pad weighs only 1.1 pounds, but the downside to it being so lightweight is that it feels a bit flimsy and rickety. It’ll do just fine holding your laptop and sitting on a desk, but I wouldn’t bet on it surviving a hard fall without some damage.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3qjwZzxQ2KVhmQJOdD2R9jBegvI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_03-ed7074949b6f4e4794ce30be2d582058.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -94,6 +92,10 @@ Lifewire / Andrew Hayward
  It’ll do just fine holding your laptop and sitting on a desk, but I wouldn’t bet on it surviving a hard fall without some damage.
 
  The C302 has a little bit of accent lighting via a pair of blue lights beneath each fan, but it doesn’t emanate a significant glow, nor is it customizable in any way.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Setup Process: Plug and play
 
@@ -123,13 +125,6 @@ Lifewire / Andrew Hayward
 
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Price: It’s very affordable
 
  At $30, this is one of the most affordable laptop cooling pads on the market right now. While results varied across multiple tests and games/apps, the C302 was pretty well in line with some of the pricier options I tested. It feels a little flimsy and doesn’t have any premium features, but the C302 is a very good entry-level option.
@@ -137,13 +132,6 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
 
 Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## TopMate C302 vs. Kootek Laptop Cooling Pad
 
@@ -155,18 +143,15 @@ Lifewire / Andrew Hayward
 
  Durability questions aside, the TopMate C302 Laptop Cooling Pad ultimately worked about as well as the other, pricier pads I tested, helping to offset some of the heat generated by a very hot gaming laptop. If you’re concerned about long-term damage or performance degradation from an overheating laptop, the C302 is a cost-efficient way to help keep your notebook from reaching extreme heat peaks.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 * [North Face Pivoter Backpack](https://www.lifewire.com/north-face-pivoter-backpack-review-4690198)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -196,21 +181,20 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-from-zero-to-live-streaming-hero-essential-tips-and-tricks/"><u>[New] From Zero to Live-Streaming Hero Essential Tips and Tricks</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-orchestrate-online-albums-photos-pair-with-songs/"><u>[New] Orchestrate Online Albums Photos Pair With Songs</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-inspiration-in-frames-top-20-creative-instagrams/"><u>[Updated] In 2024, Inspiration in Frames Top 20 Creative Instagrams</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-seize-visual-riches-from-four-premium-youtube-portals/"><u>[Updated] Seize Visual Riches From Four Premium YouTube Portals</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/2023s-most-stylish-and-durable-apple-watch-bands-reviewed-find-your-best-match-today/"><u>2023'S Most Stylish & Durable Apple Watch Bands Reviewed – Find Your Best Match Today!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/2023s-premier-portable-internet-gadgets-comprehensive-guide/"><u>2023'S Premier Portable Internet Gadgets: Comprehensive Guide</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-mastering-soundscapes-expert-insights-on-audio-post-production-in-garageband/"><u>2024 Approved Mastering Soundscapes Expert Insights on Audio Post-Production in GarageBand</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/2024s-most-advanced-mesh-networking-devices-reviewed-and-ranked/"><u>2024'S Most Advanced Mesh Networking Devices Reviewed and Ranked!</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/delving-into-immersive-vr-storytelling/"><u>Delving Into Immersive VR Storytelling</u></a></li>
-<li><a href="https://techtrends.techidaily.com/solutions-to-resolve-normalizdll-file-absence-issues-on-your-pc/"><u>Solutions to Resolve Normaliz.dll File Absence Issues on Your PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/steering-clear-of-unwanted-facebook-screenshots/"><u>Steering Clear of Unwanted Facebook Screenshots</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-elite-home-theater-solutions-for-2n3/"><u>Ultimate Selection: Elite Home Theater Solutions for 2N3</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-leading-smart-display-devices-for-modern-living/"><u>Ultimate Selection: Leading Smart Display Devices for Modern Living</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-wireless-audio-selection-for-your-steam-deck-reviews-and-buyers-guide/"><u>Ultimate Wireless Audio Selection for Your Steam Deck - Reviews & Buyer's Guide</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/understanding-potential-downfalls-steering-clear-of-chatgpt-in-macos-app-stores/"><u>Understanding Potential Downfalls: Steering Clear of ChatGPT in macOS App Stores</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/wildwood-lake-nature-center/"><u>Wildwood Lake Nature Center</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-avoiding-pitfalls-tiktok-video-copyright-verification-guide/"><u>2024 Approved Avoiding Pitfalls TikTok Video Copyright Verification Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-glimpse-into-crystal-clear-excellence-detailed-assessment-of-sonys-49-4k-uhd-tv-model-xbr49x9/"><u>A Glimpse Into Crystal-Clear Excellence: Detailed Assessment of Sony's 49 4K UHD TV Model XBR49X9</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-macbook-pro-16-inch-m1-2021-review-apples-best-laptop/"><u>Apple MacBook Pro 16-Inch (M1, 2021) Review: Apple's Best Laptop</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/expert-evaluation-unveiling-the-features-of-the-2019-apple-ipad-air-your-go-to-entertainment-hub/"><u>Expert Evaluation: Unveiling the Features of the 2019 Apple iPad Air - Your Go-To Entertainment Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-friendster-to-meta-facebooks-revolutionary-path/"><u>From Friendster to Meta: Facebook's Revolutionary Path</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/gratis-online-konverter-fur-cr2-zu-bmp-mit-movavi-schnelle-und-einfache-umwandlung/"><u>Gratis Online Konverter Für CR2 Zu BMP Mit Movavi - Schnelle Und Einfache Umwandlung</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/handling-webpage-not-loaded-issues-in-ms-store-apps/"><u>Handling Webpage Not Loaded Issues in MS Store Apps</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-create-an-apple-developer-account-on-apple-iphone-14-pro-max-by-drfone-ios/"><u>How To Create an Apple Developer Account On Apple iPhone 14 Pro Max</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-the-easiest-way-to-edit-flv-files-on-windows-8-expert-tips-and-tools/"><u>New The Easiest Way to Edit FLV Files on Windows 8 Expert Tips and Tools</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-creme-de-la-creme-of-rechargeable-power-packs/"><u>The Crème De La Crème of Rechargeable Power Packs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-apple-homepod-mini-unpacking-its-audio-capabilities-and-intelligent-assistant/"><u>The Ultimate Guide to the Apple HomePod Mini: Unpacking Its Audio Capabilities & Intelligent Assistant</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/top-essentials-for-enhanced-uav-functionality-for-2024/"><u>Top Essentials for Enhanced UAV Functionality for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-exercise-monitors-a-comprehensive-guide/"><u>Top Rated Exercise Monitors : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleash-creativity-with-dji-robomaster-s1-a-dual-throttle-drone-for-young-programmers-and-battle-game-enthusiasts/"><u>Unleash Creativity with DJI RoboMaster S1 - A Dual-Throttle Drone for Young Programmers and Battle Game Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-dbpowers-new-peak-power-bank-is-a-must-have-unleash-its-top-features-and-reviews/"><u>Why DBPOWER's New Peak Power Bank Is a Must Have - Unleash Its Top Features & Reviews</u></a></li>
 </ul></div>
 

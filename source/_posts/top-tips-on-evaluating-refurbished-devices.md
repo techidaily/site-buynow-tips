@@ -1,7 +1,7 @@
 ---
 title: Top Tips on Evaluating Refurbished Devices
-date: 2024-11-14T05:46:31.531Z
-updated: 2024-11-14T17:59:25.329Z
+date: 2024-11-18T17:27:53.834Z
+updated: 2024-11-24T19:39:07.153Z
 categories:
   - BestProducts
 description: This Article Describes Top Tips on Evaluating Refurbished Devices
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/c71f8b11a9475a90b96c899fdeade9228f855c7ed
 ## GoPro HERO7 Black
 
 ![GoPro HERO7 Black](https://www.lifewire.com/thmb/-ao16__RvzZ8ftZrr0-WWsV13Lk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4158963-1-2553e26bad2246dea19f86f8fb2c3714.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeff Dojillo
 
@@ -43,13 +47,6 @@ Lifewire / Jeff Dojillo
 ## GoPro HERO7 Black
 
 ![GoPro HERO7 Black](https://www.lifewire.com/thmb/GYZOA14ZRWOM3tJzi8ZbmTTASe8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4158963-1-2553e26bad2246dea19f86f8fb2c3714.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Jeff Dojillo
 
@@ -93,10 +90,7 @@ Lifewire / Jeff Dojillo
  While testing the GoPro HERO7 Black we noticed that the body of the device becomes very hot when used for long periods of time. We tested it for a few hours nonstop and noticed it was still very warm even when it was not recording. This can be a big concern if the device is used for long recordings in hot temperatures.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Display: Bright and visible**
@@ -113,6 +107,10 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Sensor: Small but mighty**
 
  The GoPro HERO7 Black boasts a 1/2.3-inch 12-megapixel sensor that is built for action. The new and improved image processor now has the ability to stabilize footage through electronic image stabilization technology called HyperSmooth. This feature works by tracking unwanted motion in your videos and algorithmically correcting shake. It makes your footage impressively stable even when filming handheld or while riding on rough terrain.
@@ -122,15 +120,16 @@ Lifewire / Jeff Dojillo
  It makes your footage impressively stable even when filming handheld or while riding on rough terrain.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Lens: Great for video**
 
  The fixed lens on the GoPro HERO7 Black shoots wide or in SuperView mode, the latter of which is an extra-wide field of view and can sometimes give a kind of distorted fisheye effect to your footage. This distortion can be frustrating, but there are ways to work around it during editing, including using video editing software to correct. And when shooting at a lower resolution, the camera can shoot with a linear field of view which reduces the distortion of the lens. The SuperView is not available when shooting in a 4:3 aspect ratio.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Video Quality: Amazing 4K quality with variable frame rates**
 
@@ -154,13 +153,6 @@ Lifewire / Jeff Dojillo
 
  But generally speaking, the GoPro HERO7 Black is not a camera known for its stunning photographs—it is known for its stunning video capabilities. It’s not for someone that wants to use it specifically for still photographs.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Sound Quality: Sensitive to the touch**
 
  The GoPro HERO7 Black’s microphones are sensitive and record ambient noise easily. The microphones are located on the body of the camera and any slight touch becomes audible in your video. When taking some handheld footage, we accidentally covered up the microphones with our fingers, which caused the audio to sound muffled in our video.
@@ -179,13 +171,6 @@ Lifewire / Jeff Dojillo
 
  Inside the app, there are also options to edit mode settings, change the original set up, review camera info, changed Wi-Fi remotes, as well as monitor the battery level and[SD card](https://www.lifewire.com/how-to-format-sd-card-camera-4587017) capacity. It also makes it easier to review footage and images that the camera captures.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery Life: High-res video drains it quickly**
 
  When recording 4K video at 60 fps, the HERO7 Black’s battery only lasts about 50 minutes, so if you’re going to be shooting all day, it would be smart to have a few extra batteries available.
@@ -199,6 +184,10 @@ Lifewire / Jeff Dojillo
  Perfect for adventurers, filmmakers, and vloggers that need a rugged and compact camera to create content on the go.
 
  The portability of the GoPro HERO7 Black is perfect for adventurers, filmmakers, and vloggers that need a rugged and compact camera to create content on the go.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Less rugged, but better with still photography**
 
@@ -221,13 +210,6 @@ Lifewire / Jeff Dojillo
  **A rugged and compact action camera with fantastic video stabilization.**
 
  Between the amazing video quality and the enhanced HyperSmooth electronic image stabilization, the GoPro HERO7 Black is perfect for adventurers who want to record or even live-stream their most rugged expeditions. It produces beautiful videos with enhanced color and sharpness and is small enough to wear or mount somewhere without it getting in the way.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -266,14 +248,19 @@ Lifewire / Jeff Dojillo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-djis-minis-and-air-2-elevate-mixes-with-free-custom-luts/"><u>[New] 2024 Approved DJI's Minis & Air 2 Elevate Mixes with Free, Custom LUTS</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-kiddos-best-gaming-delights-top-girls-adventures/"><u>[Updated] Kiddo's Best Gaming Delights - Top Girls' Adventures</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-radpower-radcity-5plus-bike-assessment-performance-and-weight-analysis/"><u>Comprehensive RadPower RadCity 5+ Bike Assessment: Performance & Weight Analysis</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-limitations-of-googles-latest-nest-hub-gen-2-the-lack-of-a-camera-feature-examined/"><u>Exploring the Limitations of Google's Latest Nest Hub (Gen 2) - The Lack of a Camera Feature Examined</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-itel-a60-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Itel A60? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-leading-10-capture-applications-for-online-tutorials/"><u>In 2024, Leading 10 Capture Applications for Online Tutorials</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-assessment-of-amazonbasicss-top-security-12-sheets-micro-cut-destroyer/"><u>In-Depth Assessment of AmazonBasics's Top Security 12-Sheets Micro Cut Destroyer</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/seamless-iphone-to-iphone-music-transfer-discover-7-effective-techniques/"><u>Seamless iPhone-to-iPhone Music Transfer: Discover 7 Effective Techniques</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/stylish-and-trendy-swagtron-swagger-e-scooter-review-your-ultimate-modern-transportation-companion/"><u>Stylish & Trendy Swagtron Swagger E-Scooter Review: Your Ultimate Modern Transportation Companion</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-syncing-sounds-to-visuals-online-for-2024/"><u>[Updated] Syncing Sounds to Visuals Online for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/bypass-the-frozen-pause-of-windows-update-fails/"><u>Bypass the Frozen Pause of Windows Update Fails</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/comparing-iphones-best-video-editors-cameo-and-filmorago-for-2024/"><u>Comparing iPhone's Best Video Editors Cameo & FilmoraGo for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722979116208-easy-fixes-for-your-intel-video-driver-glitches-on-windows-11-8-and-7/"><u>Easy Fixes for Your Intel Video Driver Glitches on Windows 11, 8 and 7</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-music-from-vivo-y100i-by-fonelab-android-recover-music/"><u>Easy steps to recover deleted music from Vivo Y100i</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fitbit-charge-4-examination-where-style-meets-substantial-performance/"><u>Fitbit Charge 4 Examination: Where Style Meets Substantial Performance</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-honor-90-pro-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Honor 90 Pro Phone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-fix-the-performance-lag-in-dying-light-game/"><u>How to Fix the Performance Lag in Dying Light Game</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-vivo-s17-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Vivo S17 FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-tab-s4-your-go-to-multifunctional-tablet/"><u>In-Depth Analysis of the Samsung Galaxy Tab S4 - Your Go-To Multifunctional Tablet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-stylish-and-effective-fitbit-charge-4-tracker/"><u>In-Depth Look at the Stylish & Effective Fitbit Charge 4 Tracker</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-why-the-linksys-velop-is-a-game-changer-for-home-wifi/"><u>In-Depth Review: Why the Linksys Velop Is a Game Changer for Home WiFi</u></a></li>
+<li><a href="https://games-able.techidaily.com/next-gen-powerhouse-a-compilation-of-top-9-ps5-ideas/"><u>Next Gen Powerhouse: A Compilation of Top 9 PS5 Ideas</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/performance-and-price-tag-the-nikon-sb-700-story/"><u>Performance and Price Tag: The Nikon SB-700 Story</u></a></li>
 </ul></div>
 

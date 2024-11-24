@@ -1,7 +1,7 @@
 ---
 title: "Affordable Lenovo Chromebook Duet Evaluation: The Perfect 2-in-1 Device on a Budget"
-date: 2024-09-09T06:13:21.772Z
-updated: 2024-09-10T06:13:21.772Z
+date: 2024-11-20T17:27:34.093Z
+updated: 2024-11-24T17:40:39.011Z
 categories:
   - BestProducts
 description: "This Article Describes Affordable Lenovo Chromebook Duet Evaluation: The Perfect 2-in-1 Device on a Budget"
@@ -13,22 +13,10 @@ thumbnail: https://thmb.techidaily.com/ffbfddf161d0ac60a22be92f9cba6a955de35f0f8
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Lenovo Tab M10 HD (2nd Gen)
 
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/06yy-B-ZCvWfOzJ-tXX1fyPjkUE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_HeroSquare-00489478f3e74cb9b38444e2d94ab257.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jeremy Laukkonen
 
  What We Like
@@ -51,11 +39,9 @@ Lifewire / Jeremy Laukkonen
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Lenovo Tab M10 HD (2nd Gen)
 
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/nflgcBFiQwDyFecUir_IrCX-Gc4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_HeroSquare-00489478f3e74cb9b38444e2d94ab257.jpg)
@@ -93,6 +79,10 @@ Lifewire / Jeremy Laukkonen
 
  I recently unpacked a second-gen Tab M10 HD and used it for about a week for everything from email and web browsing to video conferencing and streaming movies from[apps like Netflix](https://www.lifewire.com/overview-of-the-netflix-streaming-service-1847831) and[HBO Max](https://www.lifewire.com/what-is-hbo-max-how-to-watch-it-4782926) . During my time with the tablet, I tested overall performance, video and audio quality, wireless speeds, and a variety of other factors to see if this budget friendly Android tablet is worth the asking price.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What’s New: Better price, better specs, lower resolution
 
  The first-generation Lenovo Tab M10 hit shelves back in 2019\. It shipped with Android 8.1 and an MSRP just shy of $200\. Right off the top you can see that Lenovo decided to chase a more budget-friendly market segment with the second generation of the hardware.
@@ -102,11 +92,9 @@ Lifewire / Jeremy Laukkonen
  Unfortunately, the second generation Tab M10 received a downgrade in screen resolution. Instead of the full HD 1920 x 1200 resolution offered by the first generation, the second gen Tab M10 has a resolution of only 1280 x 800.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Design: Attractive metal body and solid build quality
 
  The Tab M10 HD looks and feels great for a budget tablet, with solid metal construction and a big 10-inch display. The metal body is a uniform gray color, smooth to the touch, and broken up on the top and bottom with cut-outs that house various inputs and speakers.
@@ -124,11 +112,9 @@ Lifewire / Jeremy Laukkonen
  The rear of the tablet is mostly featureless, aside from the aforementioned cut-outs. The single rear-facing camera is located in the upper left corner, and that’s about it. Due to the metal construction, it does look and feel more premium than you’d expect from the price.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Display: Looks good, but the resolution could be higher
 
  The 10-inch display is surrounded by fairly slim bezels for a budget Android tablet, offering a screen to body ratio of about 82 percent. The aspect ratio is 16:10, which is pretty close to the standard widescreen ratio of 16:9\. It’s a good compromise between being great for media and usable for email and surfing the web.
@@ -136,6 +122,10 @@ Lifewire / Jeremy Laukkonen
  While the display is bright and clear, and the colors are nice and vivid, the resolution is a bit on the low side for a screen this big. The first generation of the Tab M10 hardware had a full HD display, while this one gives you only a resolution of 800 x 1280 for an abysmal pixel density of about 149 ppi on the big 10-inch IPS LCD screen. It looks fine when held at arm's length, but move it any closer and you can make out the individual pixels like you’re looking at the tablet through a screen door.
 
  While the display is bright and clear, and the colors are nice and vivid, the resolution is a bit on the low side for a screen this big.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Performance: Depends on the configuration you get
 
@@ -157,12 +147,6 @@ Lifewire / Jeremy Laukkonen
 
  These results aren’t very surprising, but they do indicate that you’re unlikely to have that great experience playing complex games on this tablet. If you’re looking for a tablet to run in Google Kids Space, it will run most of those games pretty well. If you’re looking to play anything that’s demanding on a graphics level, keep looking. Even Lenovo’s similarly-equipped Tab M10 FHD Plus performs significantly better in this department.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Productivity: Best suited to basic tasks
 
  There are two versions of this tablet: the Tab M10 HD, and the Smart Tab M10 HD. They are identical in terms of both internal hardware and external design. The difference is that the Smart Tab M10 HD comes with a dock, and the Tab M10 HD doesn’t. With its dock and integrated[Google Assistant](https://www.lifewire.com/what-is-google-assistant-4120911) voice controls, the Smart Tab M10 HD gets higher marks in terms of productivity than the Tab M10 HD.
@@ -172,6 +156,10 @@ Lifewire / Jeremy Laukkonen
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/jC-nIsNjG_LVHXw3eP-5D_jO_fY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_03-dad5bfce705b4e0c891a4088b2b77b10.jpg)
 
 Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Audio: Decent stereo sound with support for Dolby Atmos
 
@@ -195,12 +183,6 @@ Lifewire / Jeremy Laukkonen
 
  Finally, I took it out into my garage, about 100 feet from the modem, and the speed dropped to 76.4 Mbps. That’s pretty solid performance, and lines up with my experience of being able to stream media wherever I tried anywhere in my house.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Camera: Decent enough for a budget tablet
 
  Lenovo improved the camera situation in the 2020 version of the Tab M10 HD compared to the first generation, but not enough to provide anything even close to what I’d consider good results. The rear camera is an 8MP shooter that can record 1080p video at 30 FPS, and it also has a 5MP sensor around front for a selfie cam.
@@ -213,12 +195,6 @@ Lifewire / Jeremy Laukkonen
 
  The front camera is even worse, and you probably won’t be uploading any selfies taken with this tablet to your Instagram. I found it to work fine for video calls, but my face was always washed out or blown out depending on the lighting conditions.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Battery: Could be bigger
 
  The Tab M10 HD features a 5,000 mAh battery that provides decent battery life, but it could definitely be bigger. I’ve tested a lot of mid-range phones that manage to pack a 5,000 mAh battery into significantly smaller packages, and a battery that’s great for a small-screened phone just doesn’t stretch as far when it’s powering a 10-inch display. I found myself throwing the tablet on its charger every day, although you could probably squeeze two days of lighter use out of it.
@@ -239,12 +215,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Lenovo Tab M10 HD (2020)](https://www.lifewire.com/thmb/tEVLeulE6MYWbsBkYCv9cDXD3CM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10HD_05-ffe07c01135a491abdafbdc41ef6eca6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jeremy Laukkonen
 
 ## Lenovo Tab M10 HD (2020) vs. Lenovo Tab M10 FHD Plus (2020)
@@ -262,11 +232,9 @@ Lifewire / Jeremy Laukkonen
  The Lenovo Tab M10 HD (2020) looks great and feels solid, and the price is right. If you’re looking for a tablet that you’ll primarily use for email and web browsing, with some video streaming thrown in, it’s a very solid option. Thanks to the inclusion of Google Kids Space, it’s also a great choice if you’re looking for a tablet for your kids.
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Lenovo P11 Pro](https://www.lifewire.com/lenovo-p11-pro-review-5116910)
@@ -274,11 +242,9 @@ Lifewire / Jeremy Laukkonen
 * [Google Pixel Slate](https://www.lifewire.com/pixel-slate-review-a-chromeos-mess-5072398)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Tab M10 HD (2nd Gen)
@@ -307,8 +273,6 @@ Lifewire / Jeremy Laukkonen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -316,4 +280,20 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/2024-approved-elite-4k-reflections-the-best-mirrorless-picks/"><u>2024 Approved Elite 4K Reflections The Best Mirrorless Picks</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/best-5-android-video-capture-apps-for-screen-recording-for-2024/"><u>Best 5 Android Video Capture Apps for Screen Recording for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/boosting-instagram-visibility-the-ultimate-guide-to-puzzle-feeds/"><u>Boosting Instagram Visibility The Ultimate Guide to Puzzle Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-oversight-saga-the-top-5-user-failings-revealed/"><u>Facebook's Oversight Saga: The Top 5 User Failings Revealed</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-realme-12-proplus-5g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Realme 12 Pro+ 5G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-big-sur-specifications-system-and-hardware-required/"><u>In 2024, Big Sur Specifications System & Hardware Required</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/movavi-gratis-online-dts-aac-konvertierung-fur-multimedia-dateien/"><u>Movavi - Gratis Online DTS AAC Konvertierung Für Multimedia-Dateien</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-verdict-on-the-wasteland-2-directors-cut-a-riveting-tale-in-a-strategic-rpg-experience/"><u>The Ultimate Verdict on the Wasteland 2 Director's Cut: A Riveting Tale in a Strategic RPG Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-programming-lessons-the-ultimate-guide-to-learning/"><u>Top Rated Programming Lessons: The Ultimate Guide to Learning</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-reviews-on-blades-e-flite-mcx2-rtf-chopper-find-the-ultimate-pre-assembled-rc-helicopter/"><u>Top Reviews on Blade's E-Flite mCX2 RTF Chopper: Find the Ultimate Pre-Assembled RC Helicopter</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-performing-battery-booster-in-depth-analysis-of-the-600a-peak-series-with-18k-mah/"><u>Top-Performing Battery Booster: In-Depth Analysis of the 600A Peak Series with 18K mAh</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/toshiba-lf711u20-the-ultimate-55-inch-fire-tv-smart-led-tv-for-prime-shoppers/"><u>Toshiba LF711U20 - The Ultimate 55-Inch Fire TV Smart LED TV for Prime Shoppers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tp-links-budget-champion-inside-the-archer-a9-router-for-less-than-100/"><u>TP-Link's Budget Champion: Inside the Archer A9 Router for Less Than 100</u></a></li>
+</ul></div>
 

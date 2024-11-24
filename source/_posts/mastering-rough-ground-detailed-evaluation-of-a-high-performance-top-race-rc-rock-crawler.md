@@ -1,7 +1,7 @@
 ---
 title: "Mastering Rough Ground: Detailed Evaluation of a High-Performance Top Race RC Rock Crawler"
-date: 2024-09-09T06:12:50.996Z
-updated: 2024-09-10T06:12:50.996Z
+date: 2024-11-17T18:10:54.402Z
+updated: 2024-11-24T19:40:44.460Z
 categories:
   - BestProducts
 description: "This Article Describes Mastering Rough Ground: Detailed Evaluation of a High-Performance Top Race RC Rock Crawler"
@@ -17,12 +17,6 @@ thumbnail: https://thmb.techidaily.com/986874e17643e7ae409323b1b4781d84760454bfa
 
 ![Halo Bolt Portable Charger/Jump Starter](https://www.lifewire.com/thmb/VanJTMWZjo_p7o3jv1uHBa1hAf8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-HeroSquare-889ebc2fc6b54573a26c09cabb34bd5c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Andrew Hayward
 
  What We Like
@@ -45,16 +39,18 @@ Lifewire / Andrew Hayward
 
 3.7
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Halo Bolt Portable Charger/Jump Starter
 
 ![Halo Bolt Portable Charger/Jump Starter](https://www.lifewire.com/thmb/wNeN4Rq5GyM9MuDOzyg5QlRT-U4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-HeroSquare-889ebc2fc6b54573a26c09cabb34bd5c.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
  in this article
@@ -74,11 +70,9 @@ Lifewire / Andrew Hayward
  Granted, it doesn’t pack as much power as some dedicated laptop chargers, which may be a better option for that need. Still, the added versatility gives the Halo Bolt a unique edge in the market. I tested the Halo Bolt for a week with multiple devices, including laptops and smartphones.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: The shiny brick**
 
  While certainly portable, the Halo Bolt isn’t designed to be pocket-friendly. This big brick of a battery pack comes in at 7.2 x 1.6 x 3.8 inches (HWD) with a weight of more than 1.5 pounds. Smaller, cheaper battery packs are available for smartphones, but this beast is made for heavier-duty needs and is designed accordingly.
@@ -93,12 +87,6 @@ Lifewire / Andrew Hayward
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/nYYltjJN71EGK1Dwv2_XABixuhs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-04-85b590a9939a4f44b0c7a510a456b80f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
 ## **Setup Process: Load it up**
@@ -111,12 +99,6 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Charging Speed and Battery: Not so long-lasting**
 
  The Halo Bolt has 58,830mWh of battery power within, and the official description suggests that it can provide up to several hours of additional usage for a MacBook Pro or[iPad Air](https://www.lifewire.com/apple-ipad-air-2019-review-4688969) . In my testing, the results didn’t quite match those targets.
@@ -133,6 +115,10 @@ Lifewire / Andrew Hayward
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/MNFqifirQ0sn61GPO1e-bLQ1t8s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-06-8bc3449bd35243aaaf67272c1d3774a6-bc803e0a114b4116adf3078af6a2de00.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
 ## **Price: It’s priced right**
@@ -140,11 +126,9 @@ Lifewire / Andrew Hayward
  For a jack-of-all-trades power brick that can jump-start your car and charge its battery, serve as a bright flashlight for roadside emergencies, and charge a wide array of portable devices, the $100 price seen on Amazon looks pretty reasonable. However, given that it couldn’t charge my laptop to total capacity and lacks a USB-C port, handier, higher-capacity charging bricks are available specifically for laptop and smartphone charging needs.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Halo Bolt ACDC 58830 vs. ZMI PowerPack 20000**
 
  Here’s a prime example. The[ZMI PowerPack 20000](https://www.lifewire.com/zmi-powerpack-20000-review-5071991) (see on[Amazon](https://www.amazon.com/dp/B072BD98CM?linkCode=ogi&th=1&psc=1&tag=lifewire-onsite-prod-20&ascsubtag=5071993%7Cn35698be70c304b229c7a194255ab2d3620%7C) ) doesn’t have an AC port. However, it’s pocket-friendly, packs a lot of capacity (20,000mAh), and can quickly recharge laptops with its included USB-C port. It also has two USB-A ports and sufficient juice to recharge the same MacBook Pro from empty. Best of all, it only costs $70.
@@ -157,12 +141,6 @@ Lifewire / Andrew Hayward
 
  The Halo Bolt isn’t the best option for charging laptops, but it is a solid all-around device for providing backup power to a broader array of gadgets, not to mention jump-starting a car. This versatile device is smart to have around if you drive a car and are frequently mobile with your portable gadgets. I wouldn’t bring it with me on vacation, but it could prove useful before long as a backup device to keep handy.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Bolt ACDC 58830 mWh Portable Charger/Jump Starter
@@ -174,14 +152,11 @@ Lifewire / Andrew Hayward
 * Ports  2x USB-A. 1x AC, 1x Jump Start
 * Waterproof  N/A
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -190,4 +165,21 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-elevating-your-vlogs-with-high-quality-editing-premiere-pro-style-for-2024/"><u>[New] Elevating Your Vlogs with High-Quality Editing - Premiere Pro Style for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-undetectable-volume-variations-in-garageband-artistry-for-2024/"><u>[New] Undetectable Volume Variations in Garageband Artistry for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-unveiled-list-leading-top-10-facebook-video-downloaders-for-android/"><u>2024 Approved Unveiled List Leading Top 10 Facebook Video Downloaders for Android</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/boost-traffic-insights-and-performance-through-cookiebot-integration/"><u>Boost Traffic Insights & Performance Through Cookiebot Integration</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-turn-off-the-screen-lock-on-my-itel-p40plus-by-drfone-android-unlock-android-unlock/"><u>How to turn off the screen lock on my Itel P40+</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Oppo A1 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastery-with-touch-the-ultimate-walkthrough-for-lenovos-9-inch-nook-tablet/"><u>Mastery with Touch: The Ultimate Walkthrough for Lenovo's 9-Inch Nook Tablet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/oculus-quest-2-elite-strap-with-battery-and-carrying-case-review-elite-and-essential/"><u>Oculus Quest 2 Elite Strap With Battery and Carrying Case Review: Elite and Essential</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ranking-the-xbox-one-elite-series-2-controller-a-legacy-in-electronic-sports-equipment/"><u>Ranking the Xbox One Elite Series 2 Controller: A Legacy in Electronic Sports Equipment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reviews-and-insights-on-the-gotrax-gxl-v2-the-ideal-urban-e-scooter-for-speed-and-convenience/"><u>Reviews & Insights on the Gotrax GXL V2: The Ideal Urban E-Scooter for Speed and Convenience</u></a></li>
+<li><a href="https://os-tips.techidaily.com/reviving-battery-life-7-proven-strategies-to-get-your-android-phone-charging-again/"><u>Reviving Battery Life: 7 Proven Strategies to Get Your Android Phone Charging Again</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-watch-active2-evaluation-timeless-design-meets-contemporary-enhancements/"><u>Samsung Galaxy Watch Active2 Evaluation: Timeless Design Meets Contemporary Enhancements</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-7-free-educational-apps-perfect-for-the-new-school-year/"><u>Top 7 Free Educational Apps Perfect for the New School Year</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/top-rated-video-grabber-software-for-windows-10-get-your-favourites-without-charge/"><u>Top Rated Video Grabber Software for Windows 10 - Get Your Favourites Without Charge</u></a></li>
+</ul></div>
 

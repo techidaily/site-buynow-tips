@@ -1,7 +1,7 @@
 ---
 title: Which Tablet Should Bookworms Choose? IPad, Kindle or Nook Reviewed
-date: 2024-09-09T06:16:28.770Z
-updated: 2024-09-10T06:16:28.770Z
+date: 2024-11-18T18:14:42.138Z
+updated: 2024-11-24T18:12:09.287Z
 categories:
   - BestProducts
 description: This Article Describes Which Tablet Should Bookworms Choose? IPad, Kindle or Nook Reviewed
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/NG3EBZ_TfjgGouzydQruB4R979w=/400x300/fi
 ## Detailed Review of the Versatile Omnicharge Omni 20 Portable Power Bank - Now with Qi Wireless Technology
 
 4.8
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Omni 20+ Wireless Power Bank
 
@@ -44,12 +48,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/_EV0MTLRfFPHdqFJ2gKyMJff5YY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-HERO-SQ-e459d44e1a2c432f80fec058b858ccfe.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jeremy Laukkonen
 
 [View On Amazon $299](https://www.amazon.com/dp/B01NBJX99D?tag=lifewire-onsite-prod-20&ascsubtag=4843549%7Cn5152ded2d52b4aacaed13fadd747a0da04%7CB01NBJX99D) [View On B&H Photo Video $236](https://www.bhphotovideo.com/c/product/1478529-REG/omnicharge%5Fop2ha004%5Fomni%5F20%5Fpowerbank%5Fportable.html/)
@@ -78,11 +76,9 @@ Lifewire / Jeremy Laukkonen
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/lFGiT6009F_OKGOJ-sLcNKNylt0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-2-9a3217b3ee154a3ebcb38e61aac3be52.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 ## **Design: Slick all-black appearance that’s dulled a bit by soft-touch rubber**
@@ -97,18 +93,6 @@ Lifewire / Jeremy Laukkonen
 
  For a premium device with a premium price like the Omni 20+, I’d like to see a different material used for the case.
 
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Initial Setup: Frustrating due to a lack of documentation**
 
  While it’s clear that a lot of thought and care went into designing the Omni 20+, it’s just as clear that almost no thought was given over to the packaging and documentation. When you open the box, you’re greeted with the battery itself, a USB-A to C cable, a[USB-C](https://www.lifewire.com/usb-c-4149490) to C cable, and a couple of brochures. One of those brochures is marked as a quick start guide, but it really isn’t.
@@ -126,19 +110,11 @@ Lifewire / Jeremy Laukkonen
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/QOfV3Sc5THi3Z0gKZq0e-ciPUEE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-5-000854ae3c4347b7adc13130dcb9d1b9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Display: Crisp and easy to read, but confusing**
 
  The display is small, but it’s quite bright and easy to read. The only issue is that it isn’t particularly easy to figure out what the individual icons mean, or how to use the display to change input and output settings, without referring to an instruction manual that isn’t included in the box.
@@ -176,17 +152,9 @@ Lifewire / Jeremy Laukkonen
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/aZDfINCcUg9uIHRuhVr2k3wmX94=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-1-815fe3c777eb4f46a77cb00127bd88c2.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 ## **Charging Speed: True fast charging available for some USB-C devices**
@@ -208,11 +176,9 @@ Lifewire / Jeremy Laukkonen
  With an MSRP of $200, Omni 20+ is a high-end battery bank with a high-end price. You get a whole lot of functionality for that price, but the device does lag behind in terms of both battery capacity and included accessories. The glaring issue is that you can find more powerful battery banks for less money, even if you won’t find one with the exact same functionality.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Omni 20+ vs. Pilot Pro 2**
 
  With an MSRP of $90, you could buy two[Pilot Pro 2](https://www.lifewire.com/poweradd-pilot-pro2-review-4843548) battery packs for the price of a single Omni 20+. With that disparity in price, it would seem like these devices aren’t even in the same category, but they actually have some important similarities. In fact, the 23,000 mAh battery in the Pilot Pro 2 is even a bit more powerful than the Omni 20+.
@@ -230,11 +196,9 @@ Lifewire / Jeremy Laukkonen
  The Omnicharge Omni 20+ is one of the best power banks out there, and it had better be for the price they’re asking. This is the power bank you need if you count a high wattage USB-C port, barrel connector input and output, wireless charging, and a standard power outlet among your needs. You can find cheaper power banks that provide more juice, but you won’t find one with this same feature set.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  20+ Wireless Power Bank
@@ -246,14 +210,11 @@ Lifewire / Jeremy Laukkonen
 * Output  100W (outlet), 60W (USB-C), 10W (wireless)
 * Warranty  One year
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -262,4 +223,26 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-master-mac-audio-an-in-depth-look-at-using-audacity-for-recordings/"><u>[New] In 2024, Master Mac Audio An In-Depth Look at Using Audacity for Recordings</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-innovative-script-visionaries-corner/"><u>[New] Innovative Script Visionaries Corner</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-scribbles-to-spectacle-personalized-effect-crafting-for-2024/"><u>[Updated] From Scribbles to Spectacle Personalized Effect Crafting for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/an-overview-of-overwatchs-entertaining-team-shooter-features-and-competitive-mode/"><u>An Overview of Overwatch's Entertaining Team Shooter Features & Competitive Mode</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/blades-blh4100-fpv-rc-helicopter-in-depth-review-of-a-120-minute-powerhouse-designed-to-soar-outdoors/"><u>Blade's BLH4100 FPV RC Helicopter: In-Depth Review of a 120-Minute Powerhouse Designed to Soar Outdoors</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/breaking-down-the-innovations-expert-review-on-googles-cutting-edge-pixel-6-smartphone/"><u>Breaking Down the Innovations: Expert Review on Google's Cutting-Edge Pixel 6 Smartphone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-excellence-in-depth-review-of-nokia-71s-superior-display-and-camera-features/"><u>Budget-Friendly Excellence: In-Depth Review of Nokia 7.1'S Superior Display & Camera Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-the-oneplus-nord-n1e-5g-not-to-be-overlooked/"><u>Comprehensive Analysis of the OnePlus Nord N1e 5G: Not to Be Overlooked!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-the-apple-tv-4k-third-gen-a-full-reveal/"><u>Comprehensive Analysis: The Apple TV 4K (Third Gen) - A Full Reveal</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-nulaxy-km18-fm-transmission-unit-evaluation-an-excellent-pick-from-legacy-models/"><u>Comprehensive Nulaxy KM18 FM Transmission Unit Evaluation - An Excellent Pick From Legacy Models</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-best-value-pc-for-gamers-with-our-expert-review-of-the-versatile-customizable-dell-g5-5090/"><u>Discovering the Best Value PC for Gamers with Our Expert Review of the Versatile, Customizable Dell G5 5090</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/electronic-readers-faceoff-comparing-the-pros-and-cons-of-ipads-kindles-and-nooks/"><u>Electronic Readers Faceoff: Comparing the Pros and Cons of iPads, Kindles, and Nooks</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/experience-power-and-savings-get-the-macbook-pro-16-inch-m1-max-for-just-1100-at-bandh-photo-shop-smart-on-zdnet/"><u>Experience Power and Savings: Get the MacBook Pro 16-Inch M1 Max for Just $1100 at B&H Photo | Shop Smart on ZDNET!</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-nokia-130-music-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Nokia 130 Music | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/frostbite-finishes-olympic-ice-classics/"><u>Frostbite Finishes Olympic Ice Classics</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-find-and-install-the-best-audio-drivers-for-windows-7/"><u>How to Find and Install the Best Audio Drivers for Windows 7</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Xiaomi 14 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-vivo-v30-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Vivo V30 to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/surviving-ad-infinitum-insights-into-the-phenomenon-of-eternal-return-for-darkness/"><u>Surviving Ad Infinitum: Insights Into the Phenomenon of Eternal Return for Darkness</u></a></li>
+</ul></div>
 

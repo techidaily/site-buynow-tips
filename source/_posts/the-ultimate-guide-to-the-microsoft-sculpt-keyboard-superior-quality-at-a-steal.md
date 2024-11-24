@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to the Microsoft Sculpt Keyboard - Superior Quality at a Steal!
-date: 2024-09-09T06:09:52.067Z
-updated: 2024-09-10T06:09:52.067Z
+date: 2024-11-18T16:21:02.492Z
+updated: 2024-11-24T19:07:19.839Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Guide to the Microsoft Sculpt Keyboard - Superior Quality at a Steal!
@@ -17,18 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/AcpixcFY3ZyrqNUVX935ALwv7Ss=/400x300/fi
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/CbS7qDMrVVuRiuPL-4w-ip5Ked0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_HeroSquare-c0176be04bfb4d83b2f7724b1332c18b.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Emily Isaacs
 
  What We Like
@@ -51,11 +39,9 @@ Lifewire / Emily Isaacs
 4.5
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Nintendo Game & Watch: Super Mario Bros
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/Gqz0Wb1wB-1ecipbSoEbqeuT3EU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_HeroSquare-c0176be04bfb4d83b2f7724b1332c18b.jpg)
@@ -84,11 +70,9 @@ Lifewire / Emily Isaacs
  What better way to celebrate both of their birthdays than by bringing both titles together for a self-contained wombo-combo celebrating their 40th and 35th anniversaries respectively? I put the handheld to the test for three weeks.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Design: Retro, bold look & feel
 
  From the moment you pick up and pop open the box, the design oozes old-school cool and nostalgia. It’s a special edition release—and it feels like it. Intentionally stylized black and gold packaging, which resembles the retro feel of the 1980s Game & Watch classic titles, is a familiar and warm return to an era.
@@ -111,13 +95,11 @@ Lifewire / Emily Isaacs
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/IzTLcGKhslJLE9YpMMkMKBV1BME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_03-5ca824e25f85464a83c9187541b0f059.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Gameplay: Challenging, but fun
 
@@ -130,17 +112,9 @@ Lifewire / Emily Isaacs
  The Ball game is the only included Game & Watch title in the product. Balls bounce back and forth in the air as you juggle them to keep them from hitting the ground. Instead of the classic Ball character design, Mario’s head has been superimposed on the character. It’s a much simpler game, and it’s OK, but this game loses its allure fairly quickly due to the repetitive gameplay.
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Audio: Surprisingly loud and crisp
 
  The included mono speaker is surprisingly loud and crisp, emitting 8-bit chiptunes. It’s located on the left-hand side of the device, nestled into the case’s trim. While I thought my hands might get in the way and block the sound a bit during play, that didn’t turn out to be true.
@@ -151,12 +125,6 @@ Lifewire / Emily Isaacs
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/PvTcnsQLDp7SFCPIeHreGfS-dgM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_05-01b731a5406d4cbfa37be90277c6e89b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Emily Isaacs
 
 ## Price: Great value for the price
@@ -170,11 +138,9 @@ Lifewire / Emily Isaacs
  For anyone looking to bring the Game & Watch home, they should be aware that while it brings the three included classic titles to life in a fun, exciting way, the Game & Watch doesn't add anything new to the Nintendo family. It caters to long-time Nintendo lovers and collectors, more than anything else.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Nintendo Game & Watch: Super Mario Bros. vs. Nintendo Switch
 
  It would be doing it a disservice to compare the Nintendo Game & Watch to the more complex consoles. The appeal of the Nintendo Game & Watch: Super Mario Bros. edition is that it’s a nostalgic, collectible, and fun handheld gaming device that’s a throwback to an older era of gaming. From the black and gold box design, the red and gold retro frame, and even the titles chosen, its inception is meant to celebrate the long-running success of the Nintendo family.
@@ -196,11 +162,9 @@ Lifewire / Emily Isaacs
 * [PlayStation 4 Pro](https://www.lifewire.com/playstation-4-pro-review-4707193)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Game & Watch: Super Mario Bros.
@@ -223,8 +187,6 @@ Lifewire / Emily Isaacs
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -232,4 +194,21 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-from-crafting-to-screen-sharing-comprehensive-windows-pc-manual-for-tv-recording/"><u>[Updated] 2024 Approved From Crafting to Screen-Sharing Comprehensive Windows PC Manual for TV Recording</u></a></li>
+<li><a href="https://games-able.techidaily.com/end-your-steam-auto-subscriptions-quickly/"><u>End Your Steam Auto-Subscriptions Quickly</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-samsung-galaxy-m34-5g-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Samsung Galaxy M34 5G Phone Pattern Lock</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-motorola-moto-e13-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Motorola Moto E13 without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-nokia-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Nokia Phones</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-apples-homepod-mini-sound-experience-siri-usage-and-additional-perks/"><u>In-Depth Look at Apple's HomePod Mini: Sound Experience, Siri Usage, and Additional Perks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-samsung-galaxy-tab-a-202n-notably-absent-core-component-reviewed/"><u>In-Depth Look at the Samsung Galaxy Tab A (202N): Notably Absent Core Component Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/incredible-performance-meets-excellent-price-point-the-arcshell-ar-5-unveiled/"><u>Incredible Performance Meets Excellent Price Point - The ArcShell AR-5 Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/interactive-ultimate-viewing-experience-with-the-philips-evonia-49-oled-curved-screen-perfect-for-gamers/"><u>Interactive Ultimate Viewing Experience with the Philips Evonia 49 OLED Curved Screen - Perfect for Gamers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/introducing-amazon-halo-a-next-level-fitness-tracker-breaking-boundaries-in-personal-care/"><u>Introducing Amazon Halo: A Next-Level Fitness Tracker Breaking Boundaries in Personal Care</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/iphone-clones-meet-the-motorola-one-stunning-style-for-less-money/"><u>IPhone Clones? Meet the Motorola One: Stunning Style for Less Money</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/microsoft-rolls-out-custom-networking-solutions-tailored-for-ai-data-centers-latest-news/"><u>Microsoft Rolls Out Custom Networking Solutions Tailored for AI Data Centers - Latest News</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/next-gen-entertainment-experience-scrutiny/"><u>Next-Gen Entertainment Experience Scrutiny</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-googles-newly-enhanced-chrome-browser-faster-smarter-with-a-twist-explore/"><u>Unveiling Google's Newly Enhanced Chrome Browser: Faster, Smarter (with a Twist) | Explore</u></a></li>
+</ul></div>
 

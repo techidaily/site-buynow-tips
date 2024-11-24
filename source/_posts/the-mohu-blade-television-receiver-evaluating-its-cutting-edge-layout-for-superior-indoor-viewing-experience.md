@@ -1,7 +1,7 @@
 ---
 title: "The Mohu Blade Television Receiver: Evaluating Its Cutting-Edge Layout for Superior Indoor Viewing Experience"
-date: 2024-11-10T00:11:38.220Z
-updated: 2024-11-15T09:44:30.720Z
+date: 2024-11-22T17:19:03.899Z
+updated: 2024-11-24T16:36:12.960Z
 categories:
   - BestProducts
 description: "This Article Describes The Mohu Blade Television Receiver: Evaluating Its Cutting-Edge Layout for Superior Indoor Viewing Experience"
@@ -37,19 +37,6 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
@@ -75,6 +62,10 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -85,14 +76,11 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup: Easier than most**
 
@@ -101,13 +89,6 @@ Lifewire / Erika Rawes
  Once you connect the antenna’s cable to your TV, you’ll need to find the best placement. This is perhaps the most difficult part of the setup process. My test home is in a wooded area, and I found the best placement was near or directly on the window. However,[to improve your antenna’s reception](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) , it’s usually a good idea to place the antenna high up in a room close to the home’s exterior (and nearest to the transmitter towers) and to avoid obstacles like walls and tree cover.
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels**
 
@@ -119,6 +100,10 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Range: Could be better**
 
  My test home is in a rural area, and there’s a lot of tree cover on the property. The omnidirectional Antop AT-127 has a 40-mile range, which was enough to pick up local channels from neighboring cities.
@@ -128,10 +113,7 @@ Lifewire / Erika Rawes
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Mid-range**
@@ -141,6 +123,10 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
@@ -183,19 +169,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-top-rated-components-for-smooth-live-transmissions/"><u>[New] Top-Rated Components for Smooth Live Transmissions</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-perfecting-profile-playlists-on-facebook-through-mobile/"><u>[Updated] 2024 Approved Perfecting Profile Playlists on Facebook Through Mobile</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-a-step-by-written-by-a-lawyer-for-2024/"><u>[Updated] A Step-By Written by a Lawyer for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-youtubes-realm-to-igtvs-domain-3-ways/"><u>[Updated] In 2024, From YouTube's Realm to IGTV's Domain (3 Ways)</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-youtube-has-your-back-shorts-now-showing-up-for-2024/"><u>[Updated] YouTube Has Your Back - Shorts Now Showing Up for 2024</u></a></li>
-<li><a href="https://discover-cheats.techidaily.com/1728500694673-powershell-windows/"><u>啟用 PowerShell 自動化 Windows 伺服器備份步驟與技巧</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/are-electric-cars-effective-during-intense-temperature-fluctuations-a-closer-look-at-their-durability/"><u>Are Electric Cars Effective During Intense Temperature Fluctuations: A Closer Look at Their Durability</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/efficient-and-economical-a-thorough-review-of-the-topmate-c3aster-model-c302-for-laptops/"><u>Efficient & Economical: A Thorough Review of the TopMate C3aster - Model C302 for Laptops</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-the-best-of-both-worlds-with-blueears-bluetooth-enabled-fashionable-beanie-hat-audiophile-approved/"><u>Experience the Best of Both Worlds with Blueear's Bluetooth-Enabled Fashionable Beanie Hat - Audiophile Approved!</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/gratuit-konvertent-mov-van-mxf-online-met-movavi-expertise-and-vriendelijke-gebruikersoepbouw/"><u>Gratuit Konvertent MOV Van MXF Online Met Movavi - Expertise & Vriendelijke Gebruikersoepbouw</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-samsung-galaxy-s24plus-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Samsung Galaxy S24+ Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-tab-s3-an-updated-review-on-its-current-value/"><u>Samsung Galaxy Tab S3: An Updated Review on Its Current Value</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-future-is-now-exploring-the-capabilities-of-the-samsung-galaxy-note20-ultra-with-5g-technology/"><u>The Future Is Now: Exploring the Capabilities of the Samsung Galaxy Note20 Ultra with 5G Technology</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-unanticipated-voyage-within-yokus-expansive-archipelago-adventure/"><u>The Unanticipated Voyage Within Yoku's Expansive Archipelago Adventure</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/pokemon-shining-pearl-unlocking-the-secrets-to-an-unforgettable-and-fun-playthrough/"><u>'Pokemon Shining Pearl': Unlocking the Secrets to an Unforgettable and Fun Playthrough</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/watch-and-stream-in-style-how-to-optimize-your-viewing-experience-with-toshibas-fire-tv-edition-the-ultimate-choice-for-prime-fans/"><u>'Watch and Stream in Style': How to Optimize Your Viewing Experience with Toshiba's Fire TV Edition - The Ultimate Choice for Prime Fans</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-enigma-of-missing-video-suggestions-in-your-feed-for-2024/"><u>[Updated] The Enigma of Missing Video Suggestions in Your Feed for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-top-5-methods-to-obs-studio-video-editing/"><u>[Updated] Top 5 Methods to OBS Studio Video Editing</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-ultimate-guide-to-top-9-online-microphone-recorder-choices/"><u>[Updated] Ultimate Guide to Top 9 Online Microphone Recorder Choices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-mcb-channel-background-and-template-set/"><u>2024 Approved MCB Channel Background & Template Set</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/6-things-to-consider-before-buying-a-new-printer/"><u>6 Things to Consider Before Buying a New Printer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-vixia-camcorder-spotlight-the-r800/"><u>Budget-Friendly VIXIA Camcorder Spotlight: The R800</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1723808102068-effortless-downloads-of-your-favorite-tunes-learn-how-to-grab-music-from-youtube-fast/"><u>Effortless Downloads of Your Favorite Tunes - Learn How to Grab Music From YouTube Fast</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fitbit-versa-2-unveiled-a-synopsis-on-its-superior-fitness-tracking-and-advanced-smartwatch-functions/"><u>Fitbit Versa 2 Unveiled – A Synopsis on Its Superior Fitness Tracking and Advanced Smartwatch Functions</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-hard-reset-infinix-note-30-vip-racing-edition-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Infinix Note 30 VIP Racing Edition Without Password | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/jackerys-powerbar-portable-charger-unveiled-features-compact-ac-socket-for-easy-use/"><u>Jackery's PowerBar Portable Charger Unveiled: Features Compact AC Socket for Easy Use</u></a></li>
+<li><a href="https://win11.techidaily.com/quick-and-simple-steps-transforming-your-mov-videos-into-wmv-format-with-speed/"><u>Quick and Simple Steps: Transforming Your MOV Videos Into WMV Format with Speed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ring-versus-nest-a-comprehensive-side-by-side-review-of-smart-doorbells/"><u>Ring Versus Nest: A Comprehensive Side-by-Side Review of Smart Doorbells</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-artisans-algorithm-gpt-assisted-ai-masterpieces/"><u>The Artisan's Algorithm: GPT-Assisted AI Masterpieces</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-lenovo-ideapad-a-sturdy-and-straightforward-laptop-experience-reviewed/"><u>Unveiling the Lenovo Ideapad: A Sturdy and Straightforward Laptop Experience Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-performance-of-the-netgear-c3700-more-than-just-a-modem/"><u>Unveiling the Performance of the Netgear C3700 - More Than Just a Modem!</u></a></li>
+<li><a href="https://howto.techidaily.com/xiaomi-13t-pro-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Xiaomi 13T Pro Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
 </ul></div>
 

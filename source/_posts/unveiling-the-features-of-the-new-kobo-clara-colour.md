@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Features of the New Kobo Clara Colour
-date: 2024-11-08T17:41:30.269Z
-updated: 2024-11-15T05:33:17.454Z
+date: 2024-11-17T19:36:06.891Z
+updated: 2024-11-24T16:30:03.817Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Features of the New Kobo Clara Colour
@@ -13,9 +13,17 @@ thumbnail: https://www.lifewire.com/thmb/p87KTX9w2nvzlOOitLgg_0NznYY=/400x300/fi
 
 2.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/87Y0vp91-Opdxctf3M6BGQ6r1d8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -39,15 +47,16 @@ Lifewire / Emily Ramirez
 
 2.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
@@ -81,10 +90,7 @@ Lifewire / Emily Ramirez
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Hardware: Some odd decisions**
@@ -95,13 +101,6 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process/Installation: Easy install, irritating setup**
 
  To install the hardware, we popped open our mid-size PC tower and inserted the sound card and daughter board into two available PCIe slots. Creative Labs had the foresight to build the main card with a PCIe 1x slots, giving the user flexibility in where they connect their cards to the motherboard. Once the cards were secured, we plugged the headphones and microphone into the corresponding jacks.
@@ -111,13 +110,6 @@ Lifewire / Emily Ramirez
  Unfortunately, configuring Creative Labs’ drivers and software suite was a much less intuitive process. The ZxR’s outputs are controlled via the Sound Blaster Z-series Software, where users can select whether they’re listening with their headphones or their speakers, apply EQ effects, and more. By default, the software is set to output to speakers with several different EQ effects turned on. We had to manually switch it to headphone output and turn off EQ; the software does not automatically detect which jacks are in use.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -130,10 +122,7 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
@@ -213,24 +202,24 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-immediate-access-best-5-convertors-no-download-required/"><u>[New] Immediate Access Best 5 Convertors, No Download Required</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-comparative-study-of-youtubes-and-dailymentions/"><u>[New] In 2024, Comparative Study of YouTubes and DailyMentions</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-analyzing-user-feedback-the-latest-on-lg-bp350-display-tech/"><u>[Updated] Analyzing User Feedback The Latest on LG BP350 Display Tech</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-fast-film-techniques-taking-screens-on-a-dell-for-2024/"><u>[Updated] Fast Film Techniques Taking Screens on a Dell for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-unveiling-hidden-facebook-data-and-protecting-yourself-online-for-2024/"><u>[Updated] Unveiling Hidden Facebook Data & Protecting Yourself Online for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/5-crucial-considerations-to-make-when-selecting-a-fitness-monitor/"><u>5 Crucial Considerations to Make When Selecting a Fitness Monitor</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ath-m50x-studio-gear-unmatched-audio-experience/"><u>ATH-M50x Studio Gear: Unmatched Audio Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/choosing-the-perfect-iphone-for-enhanced-mobile-gaming/"><u>Choosing the Perfect iPhone for Enhanced Mobile Gaming</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-seatechs-external-blu-ray-drive-with-usb-connectivity-a-mixed-bag-in-writing-quality/"><u>Comprehensive Analysis of SeaTech's External Blu-Ray Drive with USB Connectivity: A Mixed Bag in Writing Quality</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-newly-launched-galaxy-tab-s7-by-samsung-the-optimal-mid-range-option-for-android-aficionados/"><u>Expert Analysis of the Newly-Launched Galaxy Tab S7 by Samsung: The Optimal Mid-Range Option for Android Aficionados</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fix-your-microsoft-teams-microphone-issue-solutions-for-windows-11-and-10-users/"><u>Fix Your Microsoft Teams Microphone Issue: Solutions for Windows 11 and 10 Users</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/how-to-create-home-dvds-with-best-movie-making-software/"><u>How to Create Home DVDs with Best Movie Making Software</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-asus-rog-gt-ac5300-the-perfect-choice-for-gamers-and-tech-experts/"><u>In-Depth Analysis of Asus ROG GT-AC5300: The Perfect Choice for Gamers & Tech Experts</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/personalized-smart-assistance-which-fits-you-best-alexa-or-google-assistant/"><u>Personalized Smart Assistance: Which Fits You Best, Alexa or Google Assistant?</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-role-of-a-dac-why-it-matters-for-high-quality-sound/"><u>The Role of a DAC - Why It Matters For High-Quality Sound</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-list-of-2024s-most-effective-health-monitoring-bracelets/"><u>The Ultimate List of 2024'S Most Effective Health Monitoring Bracelets</u></a></li>
-<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-realme-c33-2023-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Realme C33 2023 Screen | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-ion-audio-tailgater-plus-unmatched-hours-of-sound-bliss-powerful-bass-enhancement-at-your-fingertips/"><u>Unveiling the Ion Audio Tailgater Plus: Unmatched Hours of Sound Bliss, Powerful Bass Enhancement at Your Fingertips</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-oppo-a1x-5g-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Oppo A1x 5G Phone Network-Ready</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-webcam-advancements-revolutionizing-video-capture-at-home/"><u>[New] 2024 Approved WebCam Advancements Revolutionizing Video Capture at Home</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-elevate-your-video-edits-ken-burns-in-camtasia-for-2024/"><u>[New] Elevate Your Video Edits Ken Burns in Camtasia for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-affordable-art-of-youtube-introsends/"><u>[Updated] In 2024, The Affordable Art of YouTube Intros/Ends</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-path-to-polished-photo-borders-in-instagram/"><u>[Updated] In 2024, The Path to Polished Photo Borders in Instagram</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-transforming-vision-into-action-building-a-successful-fb-reel-channel/"><u>2024 Approved Transforming Vision Into Action Building a Successful FB Reel Channel</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-mobvoi-ticwatch-e2-assessment-is-it-worth-the-savings/"><u>Affordable Mobvoi TicWatch E2 Assessment - Is It Worth the Savings?</u></a></li>
+<li><a href="https://win-answers.techidaily.com/amazon-prime-video-connectivity-troubles-heres-how-to-restore-it/"><u>Amazon Prime Video Connectivity Troubles? Here's How to Restore It!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/breaking-down-the-lenovo-thinkpad-x1-nano-a-game-changer-in-slim-laptop-design-review/"><u>Breaking Down the Lenovo ThinkPad X1 Nano: A Game-Changer in Slim Laptop Design (Review)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-the-2021-apple-macbook-pro-with-m1-chip-the-ultimate-high-performance-laptop/"><u>Comprehensive Guide to the 2021 Apple MacBook Pro with M1 Chip – The Ultimate High-Performance Laptop</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-ultimate-wireless-speed-with-netgear-nighthawk-rax120-the-fastest-routers-reviewed/"><u>Experience Ultimate Wireless Speed with Netgear Nighthawk RAX120 - The Fastest Routers Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-latest-features-of-the-samsung-galaxy-s24-ultra/"><u>Exploring the Latest Features of the Samsung Galaxy S24 Ultra</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-poco-f5-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Poco F5 5G Quickly? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/reviving-a-dying-twitch-stream-in-seconds-for-2024/"><u>Reviving a Dying Twitch Stream in Seconds for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/score-amazing-discounts-on-oneplus-dont-miss-out-this-prime-day/"><u>Score Amazing Discounts on OnePlus - Don't Miss Out This Prime Day!</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/steps-to-activate-windows-11-hdr-automatically-for-2024/"><u>Steps to Activate Windows 11 HDR Automatically for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-acurite-pro-model-01036m-weather-station-evaluated-hassle-free-configuration-and-solid-design/"><u>The AcuRite Pro Model 01036M Weather Station Evaluated: Hassle-Free Configuration & Solid Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlocking-seamless-connectivity-with-d-links-powerline-model-2000-a-review-on-setup-and-speed-delight/"><u>Unlocking Seamless Connectivity with D-Link's Powerline Model 2000 – A Review on Setup and Speed Delight</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlocking-the-potential-a-thorough-review-of-the-netgear-c3700-gateway/"><u>Unlocking the Potential: A Thorough Review of the Netgear C3700 Gateway</u></a></li>
 </ul></div>
 

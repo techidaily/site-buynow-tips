@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Review of the Barnes & Noble Nook GlowLight 4 Tablet
-date: 2024-11-08T10:25:45.372Z
-updated: 2024-11-14T18:52:36.428Z
+date: 2024-11-23T19:58:30.170Z
+updated: 2024-11-24T16:19:57.217Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Review of the Barnes & Noble Nook GlowLight 4 Tablet
@@ -43,6 +43,10 @@ Lifewire / Andy Zahn
 
 ![Razer Book 13](https://www.lifewire.com/thmb/0i6VvZqT39MNfVUbDSY7z3l8-Tw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_HeroSquare-80401fcfbef94a1b8444cd0832388aac.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Andy Zahn
 
 [View On Amazon](https://www.amazon.com/dp/B08LP734G3/?tag=lifewire-onsite-prod-20&ascsubtag=5176895%7Cnf0e7737a413045878ab8a2384bc1f06617%7CB08LP734G3) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6442337.p) [View On Adorama.com](https://www.adorama.com/rz0903571em2.html)
@@ -69,13 +73,6 @@ Lifewire / Andy Zahn
 
  An[ultrabook](https://www.lifewire.com/best-laptops-to-buy-4043650) is typically a thing of compromises, and if you want a laptop that’s thin and light, power is often sacrificed. However, the Razer Book 13 challenges that stereotype and offers a sleek and attractive alternative to other high-end[ultra-portables](https://www.lifewire.com/best-lightweight-laptops-to-buy-4065134) . I tested it for 40 hours to find if it can live up both to its stunning ultrabook looks and Razer’s prowess in building high-powered gaming laptops.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Design: Beauty in minimalism
 
  Razer is known for their flashy gaming-focused laptops, mice, and keyboards that are clearly marketed towards gamers, but they have always also employed a certain degree of restraint over some more exuberant gaming products. With the Book 13, that restraint is pushed even further with only a few tasteful reminders of the laptop’s gaming heritage—the twisted snaky Razer logo on the top, and of course RGB backlighting for the keyboard.
@@ -93,15 +90,16 @@ Lifewire / Andy Zahn
  For such a thin laptop, there’s a surprising amount of ports included with the Book 13\. You get 4[Thunderbolt ports](https://www.lifewire.com/what-is-thunderbolt-832713) , a USB type-A port,[HDMI port](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) , a microSD slot, and a 3.5mm headphone/microphone combo port. Such a versatile array of inputs is not to be taken for granted these days, and is a big point in the Book 13’s favor.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Setup Process: Very straightforward
 
  There’s not a lot to say about setting up the Razer Book 13\. It’s just a standard install of Windows 10 Home with no surprises along the way so you can be up and running in just a few minutes.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Display: Positively stunning
 
@@ -110,10 +108,7 @@ Lifewire / Andy Zahn
 ![Razer Book 13](https://www.lifewire.com/thmb/C308jEtLYxnwMp68uF5Sd-2hjyA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_02-4da7b450ac1c4b879f1b0bebfa9815b5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
@@ -130,18 +125,15 @@ Lifewire / Andy Zahn
 
  The Book 13 is equipped with a 512GB SSD. This is good enough, but it would have been nice to have a full terabyte of storage.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Software: No bloat
 
  I’m pleased to report that the Book 13 is pretty much free of bloat. Aside from the usual bits and bobs you get with Windows 10 Home, the laptop does come with Razer Synapse installed, which is absolutely essential as it allows you to control the customizable RGB backlighting in the keyboard, among a few other useful functions.
 
 ![Razer Book 13](https://www.lifewire.com/thmb/hKfA1c1e0-bRVVhMU22PtI2GewM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_03-23b08f335541443ebe1e7d7763140eca.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -155,21 +147,7 @@ Lifewire / Andy Zahn
 
 ![Razer Book 13](https://www.lifewire.com/thmb/6yYQ1e8vR0Ldvs2GP61CrvFy3zg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_05-1c8a8e1bdd78413fb72cc6307a07ea40.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Audio: Big sound for a small laptop
 
@@ -184,19 +162,6 @@ Lifewire / Andy Zahn
 ## Camera: Competent webcam
 
  The webcam on the Book 13 is about average for a laptop. It captures 720p video and is perfectly acceptable, though not exceptional in any way. Video quality looks decent, even in relatively challenging situations.
-
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Price: The cost of quality
 
@@ -218,11 +183,19 @@ Lifewire / Andy Zahn
 
  There’s a lot to love about the Razer Book 13, and not a lot of negative things to say about it. It’s not a graphical powerhouse, but the fact that it’s able to game at all is remarkable. Between its solid design, attractive aesthetics, and nice little touches that tie the whole package together, this is one awesome little ultrabook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Microsoft Surface Laptop Go](https://www.lifewire.com/microsoft-surface-laptop-go-review-5088869)
 * [Asus Zephyrus G14](https://www.lifewire.com/asus-zephyrus-g14-review-a-no-compromises-gaming-laptop-5084841)
 * [Razer Blade 15](https://www.lifewire.com/razer-blade-15-review-4845229)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -256,17 +229,17 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/updated-the-essential-guide-to-motion-blur-in-adobe-photoshop/"><u>[Updated] The Essential Guide to Motion Blur in Adobe Photoshop</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/akaso-ek7000-pro-4k-action-camera-review/"><u>AKASO EK7000 Pro 4K Action Camera Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apc-back-ups-pro-1500va-review-plenty-of-power-outlets-and-hot-swappable-batteries/"><u>APC Back-UPS Pro 1500VA Review: Plenty of Power, Outlets, and Hot Swappable Batteries</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-graphical-enhancements-of-demons-souls-remaster-consistent-gaming-brilliance/"><u>Exploring the Graphical Enhancements of Demon's Souls Remaster: Consistent Gaming Brilliance</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-unveiling-virtual-background-magic-a-streamers-guide-to-chroma-key/"><u>In 2024, Unveiling Virtual Background Magic A Streamer's Guide to Chroma Key</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-oculus-quest-2-superb-value-for-premium-vr-gaming/"><u>In-Depth Analysis of the Oculus Quest 2: Superb Value for Premium VR Gaming</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/is-the-alcatel-joy-tab-press-for-a-budget-discovering-the-wonders-of-this-affordable-lte-tablet/"><u>Is the Alcatel Joy Tab Press for a Budget? Discovering the Wonders of This Affordable LTE Tablet</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/maximize-savings-on-tech-products-with-amazons-prime-day-specials-2amoonguide-2024-edition/"><u>Maximize Savings on Tech Products with Amazon's Prime Day Specials - 2Amoonguide 2024 Edition</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-exploring-the-aural-landscape-finding-professional-sound-design-resources/"><u>New Exploring the Aural Landscape Finding Professional Sound Design Resources</u></a></li>
-<li><a href="https://solve-howtos.techidaily.com/schnell-lernen-zwei-einfache-losungen-fur-die-automatische-verbindung-ihrer-dateien-zu-microsofts-onedrive-service/"><u>Schnell Lernen: Zwei Einfache Lösungen Für Die Automatische Verbindung Ihrer Dateien Zu Microsofts OneDrive-Service</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/subtle-symmetry-balancing-visuals-like-a-pro-for-2024/"><u>Subtle Symmetry Balancing Visuals Like a Pro for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unlocking-the-power-of-artificial-intelligence-through-vector-databases-explained/"><u>Unlocking the Power of Artificial Intelligence Through Vector Databases Explained</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-in-depth-the-art-of-photo-editing-workflow/"><u>[New] 2024 Approved In-Depth The Art of Photo Editing Workflow</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rafting-content-that-captivates-youtube-keyword-mastery/"><u>[New] Crafting Content that Captivates YouTube Keyword Mastery</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-recording-google-voice-a-comprehensive-tutorial/"><u>[New] Recording Google Voice A Comprehensive Tutorial</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/camera-quest-gopro-hero5-b-vs-session-edition-for-2024/"><u>Camera Quest – GoPro Hero5 B vs Session Edition for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/deciphering-customization-the-art-of-iphone-rings/"><u>Deciphering Customization The Art of iPhone Rings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-strengths-and-weaknesses-of-webex-as-an-online-meetings-platform/"><u>Evaluating the Strengths & Weaknesses of WebEx as an Online Meetings Platform</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/frontier-footage-finder-perfect-for-journeying-lensmen/"><u>Frontier Footage Finder: Perfect for Journeying Lensmen</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-the-cubefit-terramat-the-ultimate-solution-for-desk-bound-exercise-enthusiasts/"><u>Review of the CubeFit TerraMat: The Ultimate Solution for Desk-Bound Exercise Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/silence-seekers-top-headphone-picks-24/"><u>Silence Seekers: Top Headphone Picks '24</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-choosing-the-perfect-mesh-wi-fi-setup/"><u>The Ultimate Guide to Choosing the Perfect Mesh Wi-Fi Setup</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/top-5-editoras-mais-populares-de-filmes-mov-em-2024-acesso-completamente-livre/"><u>Top 5 Editoras Mais Populares De Filmes MOV Em 2024 - Acesso Completamente Livre</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-realme-c67-5g-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Realme C67 5G Offline? Troubleshooting Guide | Dr.fone</u></a></li>
 </ul></div>
 

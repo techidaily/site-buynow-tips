@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of the TP-Link RE305 Wireless Network Enhancer (AC1200)
-date: 2024-11-12T02:35:19.040Z
-updated: 2024-11-15T06:50:48.665Z
+date: 2024-11-17T19:36:19.020Z
+updated: 2024-11-24T18:31:12.953Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of the TP-Link RE305 Wireless Network Enhancer (AC1200)
@@ -36,9 +36,17 @@ Lifewire / Claire Cohen
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## TP-Link RE305 AC1200 Wi-Fi Range Extender
 
 ![TP-Link AC1200 Wi-Fi Range Extender RE305](https://www.lifewire.com/thmb/C8f1R4cMjb3MUZ1ViPdvQ67Q7tE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4LW4043312-0cb211cf35c746879e5136b3f9d62b63.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Claire Cohen
 
@@ -64,16 +72,7 @@ Lifewire / Claire Cohen
  We spent over a week testing it in our home, evaluating design, ease of setup and network performance.
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design:** **Neither seen nor heard**
@@ -87,13 +86,6 @@ Lifewire / Claire Cohen
  The RE305 is quite small and unobtrusive, with a plastic white exterior and silver accents that’s meant to blend in, not stand out.
 
  There's an[Ethernet port](https://www.lifewire.com/what-is-an-ethernet-port-817546) at the bottom of the device as well as a pinhole reset button, just in case it needs rebooted at any point. It's a bit awkward to hang an[Ethernet cord](https://www.lifewire.com/what-is-an-ethernet-cable-817548) from the extender depending on where you've placed it in your home, but it's a useful addition to bring Ethernet to a desktop, TV, or gaming console without having to put holes in your wall.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Simple and quick**
 
@@ -123,6 +115,10 @@ Lifewire / Claire Cohen
 
  Lifewire / Claire Cohen
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: Clean and easy to understand**
 
  The browser-based setup procedure couldn't be easier, and there's no extraneous software to concern yourself with save for the aforementioned optional app for device management. It's a pleasant, minimalistic mint green website with a clean interface and easy-to-read text. Two tabs at the top include the Quick Setup option or Settings, where more advanced users can tweak options to their liking.
@@ -135,14 +131,11 @@ Lifewire / Claire Cohen
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/bG-oXoYxR83gVSUH4vzz37hfYxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-1-5c92424b46e0fb000172f127.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Claire Cohen
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: More of the same**
 
@@ -155,13 +148,6 @@ Lifewire / Claire Cohen
 **A no-frills option for smaller homes.**
 
  The TP-Link AC1200 Wi-Fi Range Extender RE305 is a no-frills extender with supports dual-band Wi-Fi support and an Ethernet port for wired connectivity. It won’t fare well in homes beyond 2,000 square feet, but it's a value-priced extender that can be relied on at shorter ranges.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -196,20 +182,24 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-from-adventure-to-audience-transforming-gopro-footage-with-social-media/"><u>[New] In 2024, From Adventure to Audience Transforming Gopro Footage with Social Media</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-worldwide-rich-list-top-earning-youtubers/"><u>[New] In 2024, Worldwide Rich List Top Earning YouTubers</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-from-conflict-to-resolution-an-in-depth-tutorial-on-reporting-users-on-discord/"><u>[Updated] From Conflict to Resolution An In-Depth Tutorial on Reporting Users on Discord</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-top-photo-and-video-slideshow-makers-for-macos-sierra/"><u>[Updated] Top Photo and Video Slideshow Makers for macOS Sierra</u></a></li>
-<li><a href="https://win-blog.techidaily.com/achieve-optimal-horizon-zero-dawn-performance-tips-to-increase-frame-rates-and-enhance-playability/"><u>Achieve Optimal Horizon Zero Dawn Performance: Tips to Increase Frame Rates & Enhance Playability</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/an-honest-review-on-genius-widecam-f100-addressing-image-distortion-and-sound-reverberation/"><u>An Honest Review on Genius WideCam F100: Addressing Image Distortion and Sound Reverberation</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-analysis-on-the-top-off-road-racing-rc-vehicles-the-best-rock-crawlers-compared/"><u>Expert Analysis on the Top Off-Road Racing RC Vehicles: The Best Rock Crawlers Compared</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-evaluation-of-the-uniden-r3-exceptional-craftsmanship-meets-extended-distance-scanning/"><u>Expert Evaluation of the Uniden R3 – Exceptional Craftsmanship Meets Extended Distance Scanning</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-style-and-usability-in-the-latest-fitbit-charge/"><u>Expert Insights on Style and Usability in the Latest Fitbit Charge</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-find-my-iphone-without-apple-id-from-your-apple-iphone-15-pro-by-drfone-ios/"><u>How to Remove Find My iPhone without Apple ID From your Apple iPhone 15 Pro?</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-guiding-viewers-eyes-leading-lines-for-iphone-photography/"><u>In 2024, Guiding Viewers' Eyes Leading Lines for iPhone Photography</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/oneplus-nord-n100-review-a-solid-budget-phone/"><u>OnePlus Nord N100 Review: A Solid Budget Phone</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/the-2023-dive-into-apeaksofts-video-capture-marvels/"><u>The 2023 Dive Into Apeaksoft’s Video Capture Marvels</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-petsafe-healthy-pet-automatic-feeder-unveiled-a-vital-tool-for-effective-weight-control-in-pets/"><u>The PetSafe Healthy Pet Automatic Feeder Unveiled: A Vital Tool for Effective Weight Control in Pets</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-the-xp-pen-artist-16-pro-drawing-tablet-performance-breakdown/"><u>Ultimate Guide to the XP-Pen Artist 16 Pro: Drawing Tablet Performance Breakdown</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-definitive-top-5-superlight-cinematography-devices-for-2024/"><u>[New] Definitive Top 5 Superlight Cinematography Devices for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-gifs-and-graphics-iphone-laughter/"><u>[New] In 2024, GIFs & Graphics IPhone Laughter</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/1-zyada-alslama-taatyl-fhs-nskh-ahtyaty-raid-0-lko-braaaa-igraatk/"><u>1. زيادة السلامة: تعطيل فحص نسخ احتياطي RAID-0 لقوى براءة إجرائاتك</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/adventurous-at-a-price-you-can-afford-try-the-akaso-ek7000/"><u>Adventurous at a Price You Can Afford - Try the AKASO EK7000</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/boosting-vividness-in-iphone-videos-three-keys-unveiled/"><u>Boosting Vividness in iPhone Videos – Three Keys Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-performance-a-look-at-the-apple-tv-hds-third-iteration/"><u>Evaluating Performance - A Look at the Apple TV HD's Third Iteration</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/gpt-powered-therapy-ensuring-client-safety/"><u>GPT-Powered Therapy: Ensuring Client Safety</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oneplus-nord-n30-se-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from OnePlus Nord N30 SE to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-wish-to-look-at-all-my-contacts-media-shared-in-chats/"><u>In 2024, Wish to Look at All My Contacts' Media Shared in Chats</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-and-verdict-on-the-dell-xps-13-2-in-1-ultrabook-top-tier-efficiency-and-performance/"><u>In-Depth Analysis and Verdict on The Dell XPS 1'3 (2-in-1) Ultrabook: Top-Tier Efficiency & Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-asus-rog-zephyrus-gx501-s-compromises-for-performance/"><u>In-Depth Analysis of the ASUS ROG Zephyrus GX501 S - Compromises for Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-j5-tactical-v1-pro-high-performance-and-compact-night-illumination/"><u>In-Depth Look at the J5 Tactical V1-Pro: High Performance & Compact Night Illumination</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mobile-match-made-in-heaven-comparing-iphones-and-androids-for-the-perfect-fit/"><u>Mobile Match Made in Heaven: Comparing iPhones and Androids for the Perfect Fit</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/romers-powerful-and-portable-chargeable-searchlight-review-ideal-for-camping-and-hiking/"><u>Romer's Powerful and Portable Chargeable Searchlight Review: Ideal for Camping and Hiking</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-ultimate-guide-to-unlocking-your-apple-iphone-14-plus-on-metropcs-by-drfone-ios/"><u>The Ultimate Guide to Unlocking Your Apple iPhone 14 Plus on MetroPCS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transforming-learning-through-fun-insightful-analysis-on-wonder-workshops-dash-toy-range/"><u>Transforming Learning Through Fun: Insightful Analysis on Wonder Workshop's Dash Toy Range</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-features-and-price-appeal-of-the-logitech-c615-webcam/"><u>Unveiling the Features and Price Appeal of the Logitech C615 Webcam</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-portable-marvel-in-depth-look-at-lenovo-thinkpad-x1-nano/"><u>Unveiling the Portable Marvel: In-Depth Look at Lenovo ThinkPad X1 Nano</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-infinix-note-30-vip-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Infinix Note 30 VIP Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Redefining Power and Efficiency in Computing: A Deep Dive Into the New MacBook Air, MacBook Pro & Mac Mini's M1 Processor"
-date: 2024-09-09T06:15:06.605Z
-updated: 2024-09-10T06:15:06.605Z
+date: 2024-11-21T17:23:12.909Z
+updated: 2024-11-24T17:29:39.148Z
 categories:
   - BestProducts
 description: "This Article Describes Redefining Power and Efficiency in Computing: A Deep Dive Into the New MacBook Air, MacBook Pro & Mac Mini's M1 Processor"
@@ -9,18 +9,6 @@ excerpt: "This Article Describes Redefining Power and Efficiency in Computing: A
 thumbnail: https://thmb.techidaily.com/a59cf765d06f5418cdef7d00a3b67e1ee9116697553e1d530781cf64808b0b00.png
 ---
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Crafting a New Reality in Torment: A Comprehensive Guide to Science Fiction RPG and Its Unique Setting in Numenera
 
 2.7
@@ -29,12 +17,6 @@ thumbnail: https://thmb.techidaily.com/a59cf765d06f5418cdef7d00a3b67e1ee91166975
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/HYgHMUDMFh7JI98Hj0JMbI2wcpw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Kelsey Simon
 
  What We Like
@@ -54,12 +36,6 @@ Lifewire / Kelsey Simon
 
 2.7
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
@@ -83,11 +59,9 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
@@ -103,16 +77,18 @@ Lifewire / Kelsey Simon
  You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Gameplay: Dialogue prompts and effort**
 
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -128,6 +104,10 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -138,12 +118,6 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Only worth it if you’re keen on the story**
 
  Torment: Tides of Numenera is still an expensive game, costing $50 on[Steam](https://www.lifewire.com/best-free-steam-games-4176308) when it’s not on sale. It’s a game created with a very specific type of player in mind―and I suspect most people are not going to like it.
@@ -151,6 +125,10 @@ Lifewire / Kelsey Simon
  That said, if role-playing games with a text-heavy focus are of interest to you, then the game does have a lot to offer for the cost. The world of Numenera is vast, and considering all the prompts that alter the story, the game also has a lot of replayability. While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else, and for those players, the $50 cost will be worth it.
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Other story focused RPGs**
 
@@ -164,18 +142,6 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Torment: Tides of Numenera
@@ -184,14 +150,11 @@ Lifewire / Kelsey Simon
 * ESRB Rating  M for Mature
 * Available Platforms  PC, MaxOS,Xbox One, PlayStation 4
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -200,4 +163,26 @@ Lifewire / Kelsey Simon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-mastering-vector-editing-without-acid-pro/"><u>[New] Mastering Vector Editing without ACID Pro</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-get-1000-subscribers-for-your-youtube-channel/"><u>[Updated] 2024 Approved Get 1000 Subscribers for Your YouTube Channel</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-tailoring-speech-interpretation-a-guide-with-google-translate/"><u>[Updated] In 2024, Tailoring Speech Interpretation A Guide with Google Translate</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-fitbit-versa-2-the-ultimate-gadget-for-health-enthusiasts-with-advanced-smartwatch-capabilities/"><u>Comprehensive Review of the Fitbit Versa 2: The Ultimate Gadget for Health Enthusiasts with Advanced Smartwatch Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-on-moto-g-powers-superior-durability-and-excellent-energy-consumption/"><u>Comprehensive Review on Moto G Power's Superior Durability and Excellent Energy Consumption</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/conquer-any-landscape-with-the-top-race-rc-rock-crawler-a-comprehensive-evaluation/"><u>Conquer Any Landscape with the Top Race RC Rock Crawler – A Comprehensive Evaluation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/debating-over-whether-to-adopt-the-changes-in-ios-17/"><u>Debating Over Whether to Adopt the Changes in iOS 17</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-how-to-edit-images-on-a-mac-with-preview-an-easy-to-follow-manual/"><u>Discover How to Edit Images on a Mac With Preview - An Easy-to-Follow Manual</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-critical-considerations-for-purchasing-a-new-video-game-console-today/"><u>Discover the Critical Considerations for Purchasing a New Video Game Console Today</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-whats-inside-the-cutting-edge-apple-iphone-15-pro-exclusive-look/"><u>Discover What's Inside the Cutting-Edge Apple iPhone 15 Pro - Exclusive Look!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-why-zmi-powerpack-20000-is-hailed-as-the-ultimate-go-anywhere-power-unit/"><u>Discover Why ZMI PowerPack 20000 Is Hailed as the Ultimate Go-Anywhere Power Unit</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/essential-recorder-applications-for-educators-for-2024/"><u>Essential Recorder Applications for Educators for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-hitman-3-the-satisfying-grand-finale/"><u>Evaluating Hitman 3: The Satisfying Grand Finale</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/guida-rapida-e-semplice-da-immagine-iso-a-video-mp4-trasforma-il-tuo-file-in-meno-di-5-minuti/"><u>Guida Rapida E Semplice: Da Immagine ISO a Video MP4 - Trasforma Il Tuo File in Meno Di 5 Minuti!</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-apple-id-activation-lock-from-iphone-14-plus-by-drfone-ios/"><u>How to Unlock Apple ID Activation Lock From iPhone 14 Plus?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-oneplus-12-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on OnePlus 12 Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-vivo-v27e-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Vivo V27e | Dr.fone</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/tecnicas-efectivas-de-recuperacion-de-informacion-borrada-en-un-unidad-exterior/"><u>Técnicas Efectivas De Recuperación De Información Borrada en Un Unidad Exterior</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/the-essentialists-guide-to-iphone-sound-recording-for-2024/"><u>The Essentialist's Guide to iPhone Sound Recording for 2024</u></a></li>
+</ul></div>
 

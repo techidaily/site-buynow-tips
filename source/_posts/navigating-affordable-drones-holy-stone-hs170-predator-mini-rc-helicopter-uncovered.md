@@ -1,7 +1,7 @@
 ---
 title: Navigating Affordable Drones - Holy Stone HS170 Predator Mini RC Helicopter Uncovered
-date: 2024-11-10T17:39:29.161Z
-updated: 2024-11-14T16:26:43.997Z
+date: 2024-11-21T18:27:53.992Z
+updated: 2024-11-24T18:40:57.680Z
 categories:
   - BestProducts
 description: This Article Describes Navigating Affordable Drones - Holy Stone HS170 Predator Mini RC Helicopter Uncovered
@@ -13,9 +13,17 @@ thumbnail: https://www.lifewire.com/thmb/QZz-CxdzNsxSs74LM7PrAw1PBmA=/400x300/fi
 
 3.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -42,10 +50,7 @@ Lifewire / Todd Braylor
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
@@ -79,13 +84,6 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Easy installation**
 
  The S55 is straightforward and easy to install. Simply stick the windshield mount in place and plug the SmartCord lighter adapter into your car's DC cigarette lighter input. Plugging the modular jack into the S55 will automatically power on the radar detector and you can quickly customize settings for display brightness, detector sensitivity levels, and volume. Then you're ready to hit the road.
@@ -98,6 +96,10 @@ Lifewire / Todd Braylor
 
  It reliably delivers on its promise of long-distance sensitivity.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Not exactly enhanced**
 
  The S55 has different modes designed to adjust to specific frequency bands and sensitivity levels for city or highway driving. You can quickly customize the settings by using the included quick reference guide. You can also turn off specific frequency bands if they tend to give a lot of false alerts.
@@ -105,13 +107,6 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: You get what you pay for**
 
@@ -132,10 +127,7 @@ Lifewire / Todd Braylor
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -167,24 +159,22 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-essential-audio-archives-where-to-find-copyright-free-tunes/"><u>[New] 2024 Approved Essential Audio Archives Where to Find Copyright-Free Tunes</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-harnessing-the-power-of-hdr-an-advanced-guide-to-ps/"><u>[New] Harnessing the Power of HDR An Advanced Guide to PS</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-mastering-photo-capture-techniques-of-smart-hdr-3-and-4-modules/"><u>[New] In 2024, Mastering Photo Capture Techniques of Smart HDR 3 & 4 Modules</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-reverse-silent-tweets-audible-video-connection-for-2024/"><u>[New] Reverse Silent Tweets Audible Video Connection for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/299-apple-10gen-ipad-sale-after-prime-day-ends-why-you-shouldnt-miss-out-gadgetguru/"><u>$299 Apple 10Gen iPad Sale After Prime Day Ends – Why You Shouldn't Miss Out! | GadgetGuru</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/deciding-factors-for-investing-in-an-ultra-smart-tv/"><u>Deciding Factors for Investing in an Ultra-Smart TV</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/eos-t7-kit-review-step-up-in-canon-camera-technology/"><u>EOS T7 Kit Review: Step Up in Canon Camera Technology</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-depths-of-madden-19-exceptional-features-yet-aging-in-place/"><u>Exploring the Depths of Madden 19: Exceptional Features Yet Aging in Place</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fix-your-screen-mirroring-problems-when-miracast-is-unavailable-via-graphics-card/"><u>Fix Your Screen Mirroring Problems When Miracast Is Unavailable via Graphics Card</u></a></li>
-<li><a href="https://discover-exceptional.techidaily.com/geautomatiseerde-data-importsoftware-efficient-herstellen-van-gegevens-uit-een-gespannte-hoeveelheid/"><u>Geautomatiseerde Data-Importsoftware: Efficiënt Herstellen Van Gegevens Uit Een Gespannte Hoeveelheid</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Infinix Note 30 Pro | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/premium-picks-discover-the-ultimate-4k-uhd-video-players-on-pcmac-detailed-comparisons-and-free-access/"><u>Premium Picks: Discover the Ultimate 4K UHD Video Players on PC/Mac - Detailed Comparisons & Free Access</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/problembehebung-warum-ipod-nicht-unter-windows-11-erkannt-wird-und-was-du-tun-kannst/"><u>Problembehebung: Warum iPod Nicht Unter Windows 11 Erkannt Wird Und Was Du Tun Kannst</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/switched-on-gaming-a-battle-between-nintendos-latest-models/"><u>Switched On Gaming: A Battle Between Nintendo's Latest Models</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-definitive-guide-to-the-innovative-features-that-set-the-samsung-galaxy-tab-s4-apart/"><u>The Definitive Guide to the Innovative Features That Set the Samsung Galaxy Tab S4 Apart</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-5-essentials-preparing-to-purchase-a-refurbished-ipad/"><u>Top 5 Essentials: Preparing to Purchase a Refurbished iPad</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-ipad-mouse-compatible-options/"><u>Top-Rated iPad Mouse Compatible Options</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-smart-eyewear-innovations-of-2024/"><u>Top-Rated Smart Eyewear Innovations of 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-philips-hf3505-wake-up-light-a-simple-guide-to-a-brighter-morning-routine/"><u>Unveiling the Philips HF3505 Wake Up Light: A Simple Guide to a Brighter Morning Routine</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-guide-to-the-prime-10-websites-for-photo-acquisition-without-expense/"><u>[Updated] 2024 Approved Guide to the Prime 10 Websites for Photo Acquisition Without Expense</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-best-color-correction-app/"><u>[Updated] Best Color Correction App</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-quicken-video-playback-on-instagram-apps/"><u>2024 Approved Quicken Video Playback on Instagram Apps</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/buyers-pick-elite-collection-of-expanded-mouse-pad-sets-for-the-modern-age/"><u>Buyer's Pick: Elite Collection of Expanded Mouse Pad Sets for the Modern Age</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Vivo Y200e 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/how-to-shoot-hdr-photos-with-iphone-for-2024/"><u>How to Shoot HDR Photos with iPhone for 2024</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/i-migliori-8-programmi-free-per-convertire-le-foto-in-cartoni-animati-online/"><u>I Migliori 8 Programmi Free per Convertire Le Foto in Cartoni Animati Online</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-of-the-linksys-wrt1900acs-a-comprehensive-open-source-wireless-router-assessment/"><u>In-Depth Evaluation of the Linksys WRT1900ACS: A Comprehensive Open Source Wireless Router Assessment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-the-samsung-galaxy-s10plus-still-relevant-against-the-s20-a-comprehensive-review/"><u>Is the Samsung Galaxy S10+ Still Relevant Against the S20? A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/must-know-elements-in-buying-sound-gear/"><u>Must-Know Elements in Buying Sound Gear</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-through-innovation-an-expert-take-on-the-multifaceted-world-of-samsungs-galaxy-tab-s5e/"><u>Navigating Through Innovation: An Expert Take on the Multifaceted World of Samsung's Galaxy Tab S5e</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/russian-counting-made-simple-a-guide/"><u>Russian Counting Made Simple: A Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-a71-5g-unveiled-the-smart-choice-for-flagship-features-without-breaking-the-bank/"><u>Samsung Galaxy A71 5G Unveiled: The Smart Choice for Flagship Features without Breaking the Bank</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-budget-lte-tablet-showdown-review-of-the-alcatel-joy-tab-2/"><u>The Ultimate Budget LTE Tablet Showdown: Review of the Alcatel Joy Tab 2</u></a></li>
+<li><a href="https://os-tips.techidaily.com/unleash-a-world-of-vintage-gaming-on-your-mobile-with-retroarchs-latest-ios-and-tvos-release/"><u>Unleash a World of Vintage Gaming on Your Mobile with RetroArch's Latest iOS and tvOS Release</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unmatched-performance-in-a-phone-in-depth-review-of-the-samsung-galaxy-s21-ultra/"><u>Unmatched Performance in a Phone: In-Depth Review of the Samsung Galaxy S21 Ultra</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-enhanced-customer-service-resource-mondlys-faqs/"><u>Unveiling Enhanced Customer Service Resource - Mondly's FAQs</u></a></li>
 </ul></div>
 

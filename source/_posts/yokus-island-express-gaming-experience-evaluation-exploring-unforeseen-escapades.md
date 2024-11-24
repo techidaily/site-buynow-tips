@@ -1,7 +1,7 @@
 ---
 title: Yoku's Island Express Gaming Experience Evaluation - Exploring Unforeseen Escapades
-date: 2024-09-09T06:14:23.273Z
-updated: 2024-09-10T06:14:23.273Z
+date: 2024-11-18T16:49:05.390Z
+updated: 2024-11-24T17:53:33.304Z
 categories:
   - BestProducts
 description: This Article Describes Yoku's Island Express Gaming Experience Evaluation - Exploring Unforeseen Escapades
@@ -13,12 +13,6 @@ thumbnail: https://www.lifewire.com/thmb/sl5zlyuSDfyJd5hxBpmX4b5aTN4=/540x405/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Amazon Luna
 
 ![Amazon Luna](https://www.lifewire.com/thmb/D9MecP2109T2iYhabM0CPBRirFA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_Hero_Square-cced3e5a3d3e4d24af1b85a59c76932d.jpg)
@@ -104,11 +98,9 @@ Lifewire / Jeremy Laukkonen
  Overall, the Luna controller has quickly become one of my favorite alternatives to the Xbox One or Xbox Series X/S controller; the only real issues being the mushy d-pad and the texture of the analog sticks. I ended up snapping on some performance thumb grips, which worked great.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Setup Process: Quick and easy
 
  Luna is just about as easy to use as a gaming service can be. To use Luna, there’s zero setup involved. If you’re playing on Windows, macOS, iOS, or Android, you can just connect a compatible controller, navigate to the Luna website, and start playing. The Fire TV app is similarly easy to get up and running.
@@ -118,11 +110,9 @@ Lifewire / Jeremy Laukkonen
 ![Amazon Luna](https://www.lifewire.com/thmb/6427gP-MSnqe4st8hfuI-7yxlos=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_03-f12a92bc606e43caa77b445a2fdcf1c1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
  If you do opt to link your controller to your Amazon account when you buy it, and you already own other Amazon devices like[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) that are connected to your Wi-Fi connection, then you can take advantage of Amazon’s Wi-Fi simple setup that shaves some time off the setup process. Otherwise, you just use the Luna controller app on your Android or iPhone to hook the controller up to Wi-Fi.
@@ -149,12 +139,6 @@ Lifewire / Jeremy Laukkonen
 
  If you have a slow internet connection or suffer from poor connectivity, then it’s likely that the brief issues I experienced could be amplified to an unacceptable point. If you have a decent connection, live closer to a major metropolitan area than I do, and have more than 10Mbps of downstream bandwidth available, the service should work just fine.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Software: Dozens of games, but the library is a bit thin with a lot of holes
 
  Luna’s biggest issue, and its biggest question mark going forward, is its streaming library. Amazon is taking a page from Microsoft’s book in that they’re trying to function as a Netflix of game streaming, but Amazon just doesn’t have the same deep library as Microsoft.
@@ -168,17 +152,9 @@ Lifewire / Jeremy Laukkonen
 ![Amazon Luna](https://www.lifewire.com/thmb/NBB1N6qtwbtdjrUgwr1YaBaTuBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_02-37837bf860d244d3ab11ff01f37c609c-db472e204ada4ccca88e7510eacfae34.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
  For some reason, the fighting category is populated by titles like the rogue-like shooter Everspace and the co-op brawler River City Girls. No actual fighting games, though. The horror category was empty until Amazon scored Resident Evil 7 Gold Edition and also saddled gorefest pixel art platformer Valfaris with the horror tag.
@@ -186,16 +162,18 @@ Lifewire / Jeremy Laukkonen
  It’s clear that Amazon is working to bring a nice mix of games to the service, but the depth and breadth of the titles you can access with a basic subscription remain the biggest question as Luna moves through beta and toward general launch.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Price: Affordable fee reflects the thin library
 
  Luna comes with a price tag of $4.95 per month during the beta period, with the insinuation that it will increase later on. It’s uncertain as to whether or not the price will actually go up, but right now it’s a pretty good deal. The only real caveat is that the attractive price tag is balanced by a somewhat thin library. Go ahead and check the library before you sign up. If you see more than a handful of games you’re interested in, then Luna is absolutely worth the price of admission.
 
  The Luna controller has a heftier price tag of $50, but that’s actually pretty reasonable if you compare it to other wireless controllers. It’s cheaper than a lot of the other options, and you can use it via Wi-Fi with Luna, or via Bluetooth or USB-C to play non-Luna games on your PC. All in all, it’s a good controller that’s priced competitively.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Amazon Luna vs. Microsoft Game Pass Ultimate
 
@@ -215,12 +193,6 @@ Lifewire / Jeremy Laukkonen
 
  Amazon Luna is an impressive game streaming service that works surprisingly well whether or not you buy the optional controller. It isn’t perfect, and you’re likely to experience hiccups here and there, but it’s an extremely affordable way to experience dozens of games, many of which would otherwise require an expensive gaming PC or console, without any kind of initial investment. The future of the service remains uncertain, and the precedent of locking Ubisoft games behind an expensive additional paywall isn’t a great sign, but Amazon has a chance to make a real splash in the gaming world with Luna.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Xbox Series X|S Controller](https://www.lifewire.com/xbox-series-x-or-s-controller-review-5113227)
@@ -228,17 +200,9 @@ Lifewire / Jeremy Laukkonen
 * [Xbox One Elite Controller](https://www.lifewire.com/xbox-one-elite-controller-review-4770957)
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Luna
@@ -254,14 +218,11 @@ Lifewire / Jeremy Laukkonen
 * Ports  USB-C, 3.5mm audio (controller)
 * Peripherals  Luna controller (Wi-Fi, Bluetooth) is optional
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -270,4 +231,16 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-zoomed-success-on-set-harnessing-kinemasters-viewer-focus/"><u>[New] 2024 Approved Zoomed Success on Set Harnessing Kinemaster’s Viewer Focus</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exploring-peak-performance-best-oculus-rift-players/"><u>[Updated] Exploring Peak Performance Best Oculus Rift Players</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-trending-tutorial-tracker-for-2024/"><u>[Updated] Trending Tutorial Tracker for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/assessing-value-the-enduring-appeal-of-the-samsung-galaxy-tab-s3-unveiled-in-review/"><u>Assessing Value: The Enduring Appeal of the Samsung Galaxy Tab S3 Unveiled in Review</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1723175687738-effortless-heat-transfer-with-the-stupid-proof-x-apply-temperatures-fixed-kit-upcoming-accessories/"><u>Effortless Heat Transfer with the 'Stupid Proof' X-Apply Temperatures Fixed Kit - Upcoming Accessories</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/travel-gears-new-power-bank-unicharger-pro-review-a-game-changer-in-travel-batteries/"><u>Travel Gear’s New Power Bank: UniCharger Pro Review - A Game Changer in Travel Batteries</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-docooler-usb-20-camera-unveiling-the-truth-of-its-12mp-performance/"><u>Ultimate Guide to Docooler USB 2.0 Camera - Unveiling the Truth of Its 12MP Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-using-your-new-amazon-kindle-paperwhite-gen7-for-books-anywhere/"><u>Ultimate Guide to Using Your New Amazon Kindle Paperwhite Gen7 for Books Anywhere</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleash-gaming-potential-on-the-big-screen-expert-review-of-nvidias-latest-streaming-marvel-shield-tv-pro/"><u>Unleash Gaming Potential on the Big Screen: Expert Review of Nvidia's Latest Streaming Marvel, Shield TV Pro</u></a></li>
+</ul></div>
 

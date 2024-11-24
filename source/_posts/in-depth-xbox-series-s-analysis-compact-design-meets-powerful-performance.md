@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Xbox Series S Analysis: Compact Design Meets Powerful Performance"
-date: 2024-09-04T19:56:22.812Z
-updated: 2024-09-05T19:56:22.812Z
+date: 2024-11-19T18:20:13.742Z
+updated: 2024-11-24T16:55:56.241Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Xbox Series S Analysis: Compact Design Meets Powerful Performance"
@@ -71,6 +71,10 @@ Lifewire / Jordan Provost
 
 ![IPad Pro 11-Inch](https://www.lifewire.com/thmb/jYGLTeSXEAGonvbdFrussmvvPDU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_2-74153fdc1da44cbba893312f82da0547.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jordan Provost
 
 ## **Design and Features: Cutting edge**
@@ -83,12 +87,6 @@ Lifewire / Jordan Provost
 
 ![Ipad Pro 11-Inch](https://www.lifewire.com/thmb/TpucPEgB2OHgSplLwk2Q6sbI6Yo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_5-a6f20cf2b7b84caf8a6290fcb5e9fb5f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Jordan Provost
 
 ## **Accessories: Useful for productivity**
@@ -111,20 +109,12 @@ Lifewire / Jordan Provost
 
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/GV44W9kKlQd3SXT_XaWI-tjo6Cw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_6-2bcb5b2009154c92931411045a9b6ddc.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Jordan Provost
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Display: Rich colors and smooth motion**
 
  Apple is well known for its gorgeous screens, and the iPad Pro absolutely delivers. The display is what Apple is calling ‘Liquid Retina’, an upgraded version of the technology that drives the screen on the iPhone XR. Wonderfully rich color reproduction, crisp text can be found across all of Apple’s proprietary apps and third-party optimized software. Reading articles and watching video content on streaming services is wonderful, and it even fares well amidst glare from sunlight. It’s still an LCD screen though, so OLED tablets will still have better-looking blacks and richer, more saturated colors. Fortunately for Apple, there aren’t many of those in the market.
@@ -147,18 +137,6 @@ Lifewire / Jordan Provost
 
  Lifewire / Jordan Provost
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Productivity: Not a laptop replacement just yet**
 
  The 2018 iPad Pro is an absolute force of nature as far as productivity is concerned. With the brilliant viewing angles, and options to attach both a nimble Apple Pencil and a Smart Keyboard to the device with relative ease, this tablet will suit the needs of many modern creatives and workers looking for an all-in-one device.
@@ -172,33 +150,13 @@ Lifewire / Jordan Provost
  Outside of that, you can’t connect some external drives, Thunderbolt devices or use a mouse. Split View is also certainly a compromise to professionals used to using more than three programs at once.
 
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Audio: Thunderous sound**
 
  One of the major upgrades to the Pro is the stereo effect audio playback with four powerful speakers, two on either side of the device. The iPad Pro has truly stunning audio, and if you crank it up it could easily act as a party speaker. There is absolutely no need for anything external when watching video content. Amazingly, the fidelity of the audio never seems to suffer, even at full volume. Apple ditching the headphone jack poses an interesting problem in that you’re going to need a pair of Bluetooth headphones or buy an adapter to receive audio on the go.
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Network: Reasonable connectivity**
 
  In terms of signal strength, we struggled to get the WiFi to break by walking outside and away from our router. In the garden and the garage ( a usual drop-out spot for other devices) it held true in very reasonable fashion.
@@ -219,6 +177,10 @@ Lifewire / Jordan Provost
 
  Take a peek at some of the[best camera apps](https://www.lifewire.com/best-iphone-camera-apps-4176231) you can download.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery: All-day usage**
 
  This is an all-day device, and should last you roughly around 10 hours of regular use, as per our testing. We spent almost a full working day pushing it using Split View to draft articles, with some Procreate drawing and Netflix streaming in between, and the iPad Pro clocked out at around 9 hours. However, we found some apps like Google Docs drain the battery more than most, so it varies depending on your workflow. Much like the Apple Watch, if you’re not a power user this tablet could last you a number of days before needing a fresh charge.
@@ -226,19 +188,11 @@ Lifewire / Jordan Provost
 ![IPad Pro 11 Inch](https://www.lifewire.com/thmb/Q4zUu4bRCg_V0xhMi5Yh7Ns7znc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_4-bef539783bbd48ae98e1becea11ce4dc.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Jordan Provost
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: The best yet**
 
  This is interesting because iOS 12 is by far and away the best version of the operating system yet, but there are still some blatant compromises that eat away at the possibility of the iPad Pro being a laptop replacement. You can't just unzip files. And moving photos or documents between programs, even cloud-storage services like Google Drive and Dropbox, is a nightmare. In most cases, it’s actually doable if you find the right app, but it’s always far too much busy work when its a very simple five-second solution on any laptop. This wasted time adds up, and iOS 12 starts to get in the way of the iPad Pro’s potential.
@@ -248,11 +202,9 @@ Lifewire / Jordan Provost
  iOS 12 is by far and away the best version of the operating system yet, but there are still some blatant compromises that eat away at the possibility of the iPad Pro being a laptop replacement.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Well worth the money if you can justify it**
 
  As far as tablets go, one of the main reasons many people are put off by the iPad Pro is the existence of far cheaper options. Our review model (11-inch, 64GB) retails for $799, and you may well be inclined to upgrade both the size and the capacity to suit your needs. This doesn’t factor in some of the more essential accessories with jaw-dropping prices like the Apple Pencil, Smart Keyboard, and the Bluetooth headphones necessary to navigate the lack of a headphone jack. That can lead to a very expensive purchase, and with Apple products, it can be hard to tell whether they are worth it case by case.
@@ -260,11 +212,9 @@ Lifewire / Jordan Provost
  Luckily, the 11-inch iPad Pro is such a revolutionary upgrade on most tablets that you do truly get what you pay for here. The A12X Bionic puts it leagues ahead of the competition, making it the most powerful productivity machine for professional creatives on the market. There is nothing really competing at this price range beyond.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Competition: Hard to beat**
 
  Nothing can really compete as far as power is concerned when it comes to the iPad Pro, so you’re mostly looking at compromises with certain benefits. The Samsung Galaxy Tab S4 doesn’t suffer from the same locked off functionality of iOS 12 with its Android architecture and has a better AMOLED screen. It also comes packaged with a stylus, which mitigates some of the cost of the Apple Pencil if you find a stylus necessary. This device retails at $649.99, making it more affordable than the iPad. The Microsoft Surface Pro 6 is another option, and may be a better fit for replacing your laptop than the iPad, with its fully functional Windows 10 OS, but it’s still costly at $799\. You could always roll back to the early 2018 9.7-inch iPad if you want to save some money. This will set you back $329 and cover most of your bases, but you’ll miss out on updates like Face ID, the sleek new design, and accessories.
@@ -277,11 +227,19 @@ Lifewire / Jordan Provost
 
  With utterly seamless navigation and playback, fantastic speakers and world-class accessories and performance, this is a beautifully designed piece of hardware. Unfortunately, whilst the power is there, it is held back by its own operating system, forcing you into busywork or compromising missteps. It cannot replace your laptop just yet, but it may well make it redundant based on your use case.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Apple iPad 10.2-inch (7th Generation)](https://www.lifewire.com/apple-ipad-10-2-inch-7th-generation-review-4772313)
 * [Microsoft Surface Go](https://www.lifewire.com/microsoft-surface-go-review-4690827)
 * [Apple iPad Mini (2019)](https://www.lifewire.com/apple-ipad-mini-2019-review-4688991)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -296,14 +254,11 @@ Lifewire / Jordan Provost
 * RAM  4 GB
 * Camera  12 MP
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -312,4 +267,24 @@ Lifewire / Jordan Provost
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://network-issues.techidaily.com/resolved-connectivity-fixes-for-online-cod-cold-war/"><u>[RESOLVED] Connectivity Fixes for Online CoD Cold War</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-fresh-filmmaking-innovative-biographical-ideas-to-triple-your-tiktok-following-on-filmora/"><u>[Updated] 2024 Approved Fresh Filmmaking Innovative Biographical Ideas to Triple Your TikTok Following on Filmora</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-ultimate-guide-to-7-superior-vids-on-mac/"><u>[Updated] In 2024, Ultimate Guide to 7 Superior Vids on Mac</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-tranquil-sleep-soundtrack-expertly-selected-voices/"><u>[Updated] Tranquil Sleep Soundtrack Expertly Selected Voices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-inside-look-3d-lut-creation-process/"><u>2024 Approved Inside Look 3D LUT Creation Process</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/effortless-methods-for-converting-your-divx-videos-into-high-quality-mp4-files/"><u>Effortless Methods for Converting Your DivX Videos Into High-Quality MP4 Files</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/from-everyday-to-elite-discovering-why-furbos-dog-camera-eclipses-all-others/"><u>From Everyday to Elite: Discovering Why Furbo's Dog Camera Eclipses All Others</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-does-netgears-hefty-powerline-1200-design-impact-its-internet-speed-a-comprehensive-review/"><u>How Does Netgear's Hefty Powerline 1200 Design Impact Its Internet Speed? A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-tab-s5e-your-ultimate-android-tablet-guide/"><u>In-Depth Analysis of the Samsung Galaxy Tab S5e - Your Ultimate Android Tablet Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-googles-battery-operated-nest-video-doorbell/"><u>In-Depth Review: Google's Battery-Operated Nest Video Doorbell</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/insight-into-the-oneplus-8t-brisk-operations-weighed-down-by-variable-photographic-output/"><u>Insight Into the OnePlus 8T: Brisk Operations Weighed Down by Variable Photographic Output</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/insights-on-logitechs-c615-camcorder-where-budget-meets-excellence-in-performance/"><u>Insights on Logitech's C615 Camcorder: Where Budget Meets Excellence in Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/insta360-x2-pro-capture-your-adventures-anywhere-even-wet/"><u>Insta360 X2 Pro: Capture Your Adventures Anywhere, Even Wet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-metropolitan-magic-in-depth-analysis-of-cities-skylines/"><u>Mastering Metropolitan Magic: In-Depth Analysis of Cities: Skylines</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/restoring-functionality-to-your-malfunctioning-paradox-software-suite/"><u>Restoring Functionality to Your Malfunctioning Paradox Software Suite</u></a></li>
+<li><a href="https://win-answers.techidaily.com/simple-instructional-tips-for-transforming-mpc-audio-into-mp3-compatible-tracks/"><u>Simple Instructional Tips for Transforming MPC Audio Into MP3 Compatible Tracks</u></a></li>
+<li><a href="https://windows11.techidaily.com/top-5-command-prompt-gambits-for-a-laugh/"><u>Top 5 Command Prompt Gambits for a Laugh</u></a></li>
+</ul></div>
 

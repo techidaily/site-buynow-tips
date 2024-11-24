@@ -1,7 +1,7 @@
 ---
 title: "Expert Review: How the Razer Portal Revolutionizes Wi-Fi Connectivity for Gaming"
-date: 2024-11-08T22:19:08.012Z
-updated: 2024-11-14T23:06:16.771Z
+date: 2024-11-20T16:06:51.964Z
+updated: 2024-11-24T19:28:43.321Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Review: How the Razer Portal Revolutionizes Wi-Fi Connectivity for Gaming"
@@ -36,22 +36,12 @@ Lifewire / Jonno Hill
 
 4.4
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Clearstream ECLIPSE
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/0gXsFyigpZzsnNAEj3tIrKImB8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
@@ -79,9 +69,17 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Inoffensive but unexceptional**
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup: Simple and easy**
 
@@ -90,6 +88,10 @@ Lifewire / Jonno Hill
  The ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones.
 
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Above average**
 
@@ -101,14 +103,11 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Not bad for the performance**
 
@@ -123,13 +122,6 @@ Lifewire / Jonno Hill
 **The best unpowered indoor antenna.**
 
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -158,22 +150,20 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-synthesizing-success-in-metaverse-sales-techniques/"><u>[New] 2024 Approved Synthesizing Success in Metaverse Sales Techniques</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-expert-recommended-sub-to-srt-tools-top-8-guide-reviewed/"><u>[Updated] 2024 Approved Expert Recommended Sub to SRT Tools Top 8 Guide Reviewed</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-master-your-youtube-thumbnail-size-and-ratio/"><u>[Updated] 2024 Approved Master Your YouTube Thumbnail Size & Ratio</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-black-hero-4-or-ghost-s-choosing-the-best-motorsport-camera/"><u>2024 Approved Black Hero 4 or Ghost-S Choosing the Best Motorsport Camera</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/battle-of-portable-gaming-nintendo-switch-lite-vs-nintendo-switch-oled-reviewed/"><u>Battle of Portable Gaming: Nintendo Switch Lite Vs. Nintendo Switch OLED Reviewed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/cliffhanger-endings/"><u>Cliffhanger Endings:</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-suminds-bt70b-for-seamless-audio-streaming-in-vehicles/"><u>Comprehensive Guide to Sumind's BT70B for Seamless Audio Streaming in Vehicles</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/eastern-mini-homes-top-6-creative-concepts-in-mc-for-2024/"><u>Eastern Mini-Homes Top 6 Creative Concepts in MC for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/effortless-installation-of-new-acer-audio-drivers-step-by-step-tips/"><u>Effortless Installation of New Acer Audio Drivers - Step-by-Step Tips</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/expert-tutorial-how-to-use-diskpart-to-remove-all-partitions-permanently/"><u>Expert Tutorial: How to Use Diskpart to Remove All Partitions Permanently</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mobile-readers-unite-discovering-the-kobo-clara-hds-efficiency-for-avid-bibliophiles/"><u>Mobile Readers Unite: Discovering the Kobo Clara HD's Efficiency for Avid Bibliophiles</u></a></li>
-<li><a href="https://games-able.techidaily.com/nintendo-switch-and-3-best-live-stream-platforms/"><u>Nintendo Switch & 3 Best Live-Stream Platforms</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/small-economical-yet-striking-the-samsung-galaxy-s10e-review-for-savvy-smartphone-enthusiasts/"><u>Small, Economical, Yet Striking: The Samsung Galaxy S10e Review for Savvy Smartphone Enthusiasts</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-the-arctis-7-crackling-noise-issue-in-your-pcs-speakers/"><u>Solving the Arctis 7 Crackling Noise Issue in Your PC's Speakers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-midland-lxt500vp3-review-an-overwhelming-array-of-functions-yet-disappointing-results/"><u>The Midland LXT500VP3 Review – An Overwhelming Array of Functions Yet Disappointing Results</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-lg-stylo-6-design-meets-precision-writing/"><u>The Ultimate Guide to the LG Stylo 6: Design Meets Precision Writing</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-linksys-wrt32x-pro-router-a-masterclass-in-intelligent-network-management-for-modern-homes/"><u>Unveiling the Linksys WRT32X Pro Router: A Masterclass in Intelligent Network Management for Modern Homes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-step-by-step-livestreaming-to-facebook-from-iphonestablets/"><u>[New] 2024 Approved Step-by-Step Livestreaming to Facebook From iPhones/Tablets</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ngaging-video-credits-the-best-fonts-for-thumbnails/"><u>[New] Engaging Video Credits The Best Fonts for Thumbnails</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-ranking-top-10-srt-modifications-for-pc-and-macos/"><u>[New] Ranking Top 10 SRT Modifications for PC & macOS</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-the-game-changer-elevating-your-virtual-reality-film-quality/"><u>[Updated] 2024 Approved The Game Changer Elevating Your Virtual Reality Film Quality</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-clear-vision-through-stillness-control/"><u>2024 Approved Clear Vision Through Stillness Control</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/analyzing-iphones-latest-features-a-must-upgrade/"><u>Analyzing iPhone's Latest Features: A Must-Upgrade?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-gotrax-gxl-v2-the-ultimate-urban-commuter-electric-scooter/"><u>Comprehensive Evaluation of the Gotrax GXL V2 - The Ultimate Urban Commuter Electric Scooter</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-the-latest-features-on-the-fitbit-charge-6-smartwatch-reviewed/"><u>Comprehensive Guide to the Latest Features on the Fitbit Charge 6 Smartwatch Reviewed</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/demystifying-artifice-intelligence-top-9-chatbot-myths-exposed/"><u>Demystifying Artifice Intelligence: Top 9 Chatbot Myths Exposed</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-visual-voyage-enhancing-videos-using-youtube-studios-tools/"><u>In 2024, Visual Voyage Enhancing Videos Using YouTube Studio's Tools</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-the-skies-with-djis-mavic-air-n-s-top-reviews-and-insights/"><u>Mastering the Skies with DJI's Mavic Air N S – Top Reviews & Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/netflixs-allure-5-reasons-that-justify-subscription-cost/"><u>Netflix's Allure: 5 Reasons That Justify Subscription Cost</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/overwatch-critique-immersive-gunfights-and-strategic-team-dynamics/"><u>Overwatch Critique: Immersive Gunfights and Strategic Team Dynamics</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/solar-generator-reveal-by-aeiousy-top-notch-inverter-for-medical-equipment-preservation-and-efficiency-checked-out/"><u>Solar Generator Reveal by Aeiousy: Top-Notch Inverter for Medical Equipment Preservation & Efficiency Checked Out</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-the-ultimate-guide-to-converting-videos-to-live-photos-on-mobile-for-2024/"><u>Updated The Ultimate Guide to Converting Videos to Live Photos on Mobile for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Look at the Lenovo 130S Laptop: Moderate Battery Life with Impressive Functionality"
-date: 2024-09-09T06:15:56.265Z
-updated: 2024-09-10T06:15:56.265Z
+date: 2024-11-23T18:44:07.153Z
+updated: 2024-11-24T18:04:15.528Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Look at the Lenovo 130S Laptop: Moderate Battery Life with Impressive Functionality"
@@ -9,18 +9,6 @@ excerpt: "This Article Describes In-Depth Look at the Lenovo 130S Laptop: Modera
 thumbnail: https://thmb.techidaily.com/c0c3ff7158c5ed074bf14161f2b9dd7e6d6a38364c8a3f7d8b03f364961bda60.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Nintendo's Console Revolutionized: Discover How the Switch Lite Delivers Quality Entertainment for Less
 
 4.2
@@ -53,12 +41,6 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/ral6yRtba1CN2dg2W4Log4OcjAg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Nintendo-Switch-Lite-1-66fc3642c4d448b18f4a0775c059247d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Zach Sweat
 
 [View On Walmart $165](https://www.walmart.com/ip/Nintendo-Switch-Lite-Console-Turquoise/306029956) [View On Best Buy $200](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnintendo-switch-32gb-lite-turquoise%2F6257139.p%3FskuId%3D6257139) [View On Macy's $240](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.macys.com%2Fshop%2Fproduct%2Fswitch-gaming-console-32gb-lite%3FID%3D10316544%26pla%255Fcountry%3DUS%26CAGPSPN%3Dpla%26slpfid%3D3)
@@ -87,6 +69,10 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Cute and compact**
 
  It's hard not to swoon at the sight of the Switch Lite. The handheld console is cute and compact, featuring unique color options, bright white buttons, and joysticks wrapped around a downsized screen. The whole unit is about the size of a beefy phablet. The screen alone is about the size of an iPhone SE.
@@ -114,11 +100,9 @@ Lifewire / Zach Sweat
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7502vZ1Vh2D4nRux6hEnq4BL3Rk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-5-2fb7aa309cc54dd79c07bd799ef7fe84.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 ## **Setup Process: Hit the switch**
@@ -148,25 +132,11 @@ Lifewire / Zach Sweat
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/kQx9K3tATPBWAMgyJJymqBqYPao=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-3-7349fa7d79f34dbaa50c25cb59aec820.jpg)
 
 <!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Decent for mobile gaming, but no FHD**
 
  Much like the original Switch, the Lite is by no means a powerhouse console sporting top-of-the-line graphics and hardware. That said, it doesn't necessarily need to be. The Switch Lite performs similarly to its larger counterpart while in handheld mode, but let's delve into specifics.
@@ -203,18 +173,6 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/KxMaFgooi4rm3qbImmLKatuUtVI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-4-ef84dbbbde3d48ff97515e5c6b9981a4.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
 ## **Software: Still a bit drab, but smooth and snappy**
@@ -233,14 +191,16 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/eFyBn6jL7cdHOO4q7zc6pALdQzw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-6-42a5bc5ea4e544bdb6d3fbbd074583c2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Battery Life: Slightly better, but not the best**
 
  Battery life on the original Switch was just okay, to put it lightly, but typically you were lucky to get anything over 3 hours of screen time with most titles. It eventually received a bigger battery in a minor hardware revision, which helped. The Switch Lite has a slightly smaller battery than the revised Switch but also has lower power needs due to its small screen.
@@ -255,6 +215,10 @@ Lifewire / Zach Sweat
 
  Lastly, the battery is internal, so you can't easily pop in a new one when it starts to degrade. While I haven't seen any degradation with mine, it'll happen at some point. When it does, sending it to Nintendo for repair is the only real option.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Inexpensive console gaming in your hands**
 
  It’s no surprise that since Nintendo removed many features from the Switch to create the Lite model, the price has also decreased considerably. The Switch is already at a pretty sweet price of $300, so how does the Lite stack up?
@@ -263,20 +227,8 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7XA6hgAK2B4hDSlWdmB8VQddrjw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-7-Comparison-44dcf88ec51247a2b0756445a3c7884d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Nintendo Switch Lite vs. Nintendo Switch**
 
  The biggest competitor to the Switch Lite is the original Switch. Nintendo has done an excellent job with both of these devices, but they each have some strengths and weaknesses you should consider before buying.
@@ -297,6 +249,10 @@ Lifewire / Zach Sweat
 
  Despite being stripped of some of the Switch’s more unique features and strengths, the Switch Lite is a perfect console for gamers on the go or those who prefer handheld. It features an extensive library of exclusives that are perfect for a highly mobile system like Animal Crossing—and it’s hard to argue with the price.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 [Nintendo Switch Review](https://www.lifewire.com/nintendo-switch-review-4707563)
@@ -307,12 +263,6 @@ Lifewire / Zach Sweat
 
 [Sony PlayStation 5 Review](https://www.lifewire.com/sony-playstation-5-review-5088394)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Switch Lite
@@ -336,8 +286,6 @@ Lifewire / Zach Sweat
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -345,4 +293,26 @@ Lifewire / Zach Sweat
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-rise-of-a-marketer-top-5-tips-from-the-prosphere/"><u>[New] 2024 Approved Rise of a Marketer Top 5 Tips From the Prosphere</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-imageclarity-converter-high-res-for-all-systems/"><u>2024 Approved ImageClarity Converter - High Res for All Systems</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/a-comprehensive-guide-to-apple-iphone-14-pro-max-blacklist-removal-tips-and-tools-drfone-by-drfone-ios/"><u>A Comprehensive Guide to Apple iPhone 14 Pro Max Blacklist Removal Tips and Tools | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-comprehensive-guide-to-choosing-ipad-or-ipad-air-essential-differences-decoded/"><u>A Comprehensive Guide to Choosing iPad or iPad Air – Essential Differences Decoded</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-and-durable-omoton-t1-tablet-stand-comprehensive-review/"><u>Affordable and Durable Omoton T1 Tablet Stand - Comprehensive Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-apeman-c450-dashcam-comprehensive-review-and-insights/"><u>Affordable Apeman C450 Dashcam - Comprehensive Review & Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-sandisk-clip-jam-portable-mp3/"><u>Affordable SanDisk Clip Jam Portable MP3</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-gaming-experience-on-an-iphone-top-picks-unveiled/"><u>Best Gaming Experience on an iPhone: Top Picks Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/can-you-trust-hps-economical-15-notebook-with-amd-cpu-to-perform-under-pressure-find-out-here/"><u>Can You Trust HP’s Economical 15” Notebook with AMD CPU to Perform Under Pressure? Find Out Here!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cat-s42-fortified-telephone-scrutiny-exceptional-armor-yet-restricted-rapidity-for-users/"><u>CAT S42 Fortified Telephone Scrutiny: Exceptional Armor, Yet Restricted Rapidity for Users</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-voice-ai-leaders-which-provides-better-service-google-assistant-or-amazons-alexa/"><u>Comparing Voice AI Leaders: Which Provides Better Service, Google Assistant or Amazon's Alexa?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-the-onetastic-add-in-enhancing-your-microsoft-onenote-experience/"><u>Comprehensive Analysis: The Onetastic Add-In Enhancing Your Microsoft OneNote Experience</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/script-to-screen-crafting-your-unique-youtube-tale/"><u>From Script to Screen Crafting Your Unique YouTube Tale</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-updated-epson-wf-3620-drivers-compatible-with-windows-1087-free-download/"><u>Get Updated Epson WF-3620 Drivers Compatible with Windows 10/8/7 - Free Download</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-bypass-apple-iphone-se-passcode-easily-video-inside-by-drfone-ios/"><u>In 2024, How to Bypass Apple iPhone SE Passcode Easily Video Inside</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Nokia C110? | Dr.fone</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/in-depth-comparison-test-of-top-dvd-tools-wonderfox-vs-winx-which-wins/"><u>In-Depth Comparison Test of Top DVD Tools: WonderFox VS WinX - Which Wins?</u></a></li>
+<li><a href="https://driver-download.techidaily.com/microsoft-windows-bluetooth-driver-installation-and-updates-guide-for-versions-10-11-8-and-7/"><u>Microsoft Windows Bluetooth Driver Installation & Updates Guide for Versions 10, 11, 8 & 7</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-process-switching-between-standard-sata-and-achi-controllers-in-windows/"><u>Step-by-Step Process: Switching Between Standard SATA & ACHI Controllers in Windows</u></a></li>
+</ul></div>
 

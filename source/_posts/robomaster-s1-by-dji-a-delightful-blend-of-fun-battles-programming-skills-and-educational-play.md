@@ -1,7 +1,7 @@
 ---
 title: "RoboMaster S1 by DJI: A Delightful Blend of Fun Battles, Programming Skills & Educational Play"
-date: 2024-11-07T19:45:29.648Z
-updated: 2024-11-14T16:33:20.904Z
+date: 2024-11-21T17:53:17.544Z
+updated: 2024-11-24T18:58:31.070Z
 categories:
   - BestProducts
 description: "This Article Describes RoboMaster S1 by DJI: A Delightful Blend of Fun Battles, Programming Skills & Educational Play"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
 ## TopMate C302 Laptop Cooling Pad
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/aiCouzmBGM4njr9Ovpa0MfLae4E=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -63,6 +67,10 @@ Lifewire / Andrew Hayward
 
  The TopMate C302 is a strong example of the latter. It’s affordable and solidly effective, but the plastic design feels a bit flimsy. I wouldn’t bet on it lasting for the long haul without gentle handling, but given the price, you might not worry about it too much.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Design: Light and a little flimsy
 
  The C302 measures just over 14 inches wide and is designed for laptops with screens up to 15.6 inches diagonal. It’s primarily made of lightweight plastic, with a thin metal grate on the top above the two 4.9-inch fans to help dissipate heat.
@@ -70,13 +78,6 @@ Lifewire / Andrew Hayward
  The entire pad weighs only 1.1 pounds, but the downside to it being so lightweight is that it feels a bit flimsy and rickety. It’ll do just fine holding your laptop and sitting on a desk, but I wouldn’t bet on it surviving a hard fall without some damage.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3qjwZzxQ2KVhmQJOdD2R9jBegvI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_03-ed7074949b6f4e4794ce30be2d582058.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -95,10 +96,7 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
@@ -123,33 +121,17 @@ Lifewire / Andrew Hayward
 
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Price: It’s very affordable
 
  At $30, this is one of the most affordable laptop cooling pads on the market right now. While results varied across multiple tests and games/apps, the C302 was pretty well in line with some of the pricier options I tested. It feels a little flimsy and doesn’t have any premium features, but the C302 is a very good entry-level option.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## TopMate C302 vs. Kootek Laptop Cooling Pad
 
@@ -161,18 +143,15 @@ Lifewire / Andrew Hayward
 
  Durability questions aside, the TopMate C302 Laptop Cooling Pad ultimately worked about as well as the other, pricier pads I tested, helping to offset some of the heat generated by a very hot gaming laptop. If you’re concerned about long-term damage or performance degradation from an overheating laptop, the C302 is a cost-efficient way to help keep your notebook from reaching extreme heat peaks.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 * [North Face Pivoter Backpack](https://www.lifewire.com/north-face-pivoter-backpack-review-4690198)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -202,19 +181,15 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-the-definitive-window-on-game-recording-in-windows-11/"><u>[Updated] In 2024, The Definitive Window on Game Recording in Windows 11</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-mastering-the-art-of-import-in-windows-10-photo-space-for-2024/"><u>[Updated] Mastering the Art of Import in Windows 10 Photo Space for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-overcoming-virtual-reality-nausea/"><u>[Updated] Overcoming Virtual Reality Nausea</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-review-and-insight-into-movavi-editor-plus-now-available-for-2024/"><u>[Updated] Review & Insight Into Movavi Editor Plus, Now Available for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-top-5-vivo-y17s-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Vivo Y17s Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/procreate-brings-hope-a-boon-for-visionary-illustrators/"><u>Procreate Brings Hope - A Boon for Visionary Illustrators</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revamping-my-damaged-macbook-into-an-impressive-plex-media-server/"><u>Revamping My Damaged MacBook Into an Impressive Plex Media Server</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/reviving-grooves-the-unexpected-comeback-thats-saving-vinyl-records-from-extinction/"><u>Reviving Grooves: The Unexpected Comeback That's Saving Vinyl Records From Extinction</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revolutionizing-viewing-experience-youtubes-use-of-artificial-intelligence-for-skipping-dull-video-segments/"><u>Revolutionizing Viewing Experience: YouTube's Use of Artificial Intelligence for Skipping Dull Video Segments</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/score-big-savings-250-off-on-the-compact-and-powerful-xgimi-mogo-2-pro-projector/"><u>Score Big Savings - $250 Off on the Compact & Powerful XGIMI MoGo 2 Pro Projector!</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/seamless-worldwide-engagement-with-chatgpt/"><u>Seamless Worldwide Engagement with ChatGPT</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/segas-superior-strategies-in-maintaining-iconic-arcades-an-unmatched-approach/"><u>Sega's Superior Strategies in Maintaining Iconic Arcades: An Unmatched Approach</u></a></li>
-<li><a href="https://techidaily.com/step-by-step-guide-eliminating-background-from-images-in-windows-11/"><u>Step-by-Step Guide: Eliminating Background From Images in Windows 11</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/windows-photos-command-center-key-navigation/"><u>Windows Photos: Command Center Key Navigation</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/boundless-savings-for-your-captured-moments-for-2024/"><u>Boundless Savings for Your Captured Moments for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-midlands-gxt1000vp4-the-pinnacle-of-clear-two-way-radios/"><u>Comprehensive Review of Midland's GXT1000VP4: The Pinnacle of Clear Two-Way Radios</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/critique-of-tropico-6-dictatorship-in-the-caribbean-setting/"><u>Critique of Tropico 6: Dictatorship in the Caribbean Setting</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-infinix-hot-40i-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Infinix Hot 40i Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-unveiling-the-features-and-performance-of-apple-tv-4k-gen-3/"><u>Expert Review: Unveiling the Features and Performance of Apple TV 4K (Gen 3)</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-vivo-s17e-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Vivo S17e without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolve-minecraft-game-failures-due-to-faulty-video-card-software-for-windows-users/"><u>Resolve Minecraft Game Failures Due to Faulty Video Card Software for Windows Users</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/shield-no-more-flicker-in-windows-11/"><u>Shield: No More Flicker in Windows 11</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-solution-to-the-missing-wpcapdll-system-error/"><u>Step-by-Step Solution to the 'Missing wpcap.dll' System Error</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-best-in-class-review-why-kooteks-innovative-chiller-is-a-must-have-for-laptop-owners/"><u>The Best in Class Review: Why Kootek's Innovative Chiller Is a Must-Have for Laptop Owners</u></a></li>
 </ul></div>
 

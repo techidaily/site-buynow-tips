@@ -1,7 +1,7 @@
 ---
 title: In-Depth Review of the Mohu Leaf 30 TV Antenna for Quality Performance at Affordable Prices
-date: 2024-09-04T19:56:21.619Z
-updated: 2024-09-05T19:56:21.619Z
+date: 2024-11-22T18:31:04.575Z
+updated: 2024-11-24T18:57:15.424Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Review of the Mohu Leaf 30 TV Antenna for Quality Performance at Affordable Prices
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/bLtleSUHUny2HyUtrVdOZ9KgFSE=/400x300/fi
 ## Acer Predator Triton 300 SE
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/NyMNso4w7RvAOB9yPKnTs3aeA94=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Acer-Predator-Triton-300-SE-Gaming-Laptop-1-d6f9eeb5a43845a9a328125976c835b0.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -85,32 +89,14 @@ Lifewire / Matthew S. Smith
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/RkOepytb4JglYF6g8lqap4lR4Uk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-5-b8c978f2d42a4865be1ea11a4785c104.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Matthew S. Smith
 
  All the laptop’s ports are placed near the front of the chassis. You’ll have to deal with tangled cables more often than with a laptop that places most ports on the rear. I found this annoying when using an external mouse, as cables jutting from the laptop’s flanks often bumped my hand while playing games.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What’s New: This one is special
 
  The Acer Predator Triton 300 SE has little in common with other Predator Triton or Helios models. A few common design elements can be found in the speaker grill, fans, and PreadtorSense software, but the design is otherwise distinct.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Display: Better than first glance
 
  I wasn’t immediately impressed by the Acer Predator Triton 300 SE’s display. It’s not especially bright and has a matte coating, so lacks the brilliant, eye-catching look that is common to high-end laptops with glossy, high-brightness displays.
@@ -127,12 +113,6 @@ Lifewire / Matthew S. Smith
 
  There’s one downside: poor viewing angles. This is unusual in a modern laptop, though I’ve noticed this trait in many high-refresh laptop displays. I can’t give the Triton 300 SE too much flak for this given its otherwise excellent performance.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Performance: Great for games, ok for everything else
 
  The Acer Predator Triton 300 SE’s most unusual feature is its Intel Core i7-11375H processor. It’s odd because it has just four cores (running eight threads) but is still sold as a top-tier component. The Core i7-11375H has higher minimum and maximum clock speeds than the comparable Intel Core i7-1165G7 found in thinner notebooks. The i7-11375H can clock as high as 5GHz. My review unit also had 16GB of RAM and a 512GB solid-state hard drive.
@@ -151,6 +131,10 @@ Lifewire / Matthew S. Smith
 
  For me, the Triton 300 SE is easily fast enough: it can handle most games at an average of 60 frames per second (fps), and often much higher, at 1080p resolution. I wouldn’t recommend the Triton 300 SE if you plan to use an external 1440p or 4K monitor, however. Pushing a higher pixel count will lead to sub-60fps performance in most demanding games.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Productivity: All business
 
  The Acer Predator Triton 300 SE’s business-like design carries over to the keyboard and mouse. Key feel is good, with significant key travel and firm bottoming action, and the spacious layout will be comfortable for most users.
@@ -162,11 +146,9 @@ Lifewire / Matthew S. Smith
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/IiMzYmVU-_I6PnObn0bkjyCzqUk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-3-7cae0e5d13154048bbc93c40976706ca.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Matthew S. Smith
 
  The touchpad is about four inches wide and two and a half inches deep. That’s not bad for a gaming laptop, but average for a productivity machine, and it can feel cramped. It’s responsive and rejects any quick, unintended brush by a palm or thumb. It’s smooth when using multi-touch gestures like two-finger scroll or pinch-to-zoom.
@@ -180,11 +162,9 @@ Lifewire / Matthew S. Smith
  There are limits, of course. It isn’t loud enough to project impressive volume in a living room or kitchen. It can also sound muddy and confused when playing bass-forward music or the most frantic action games. Still, it’s an impressive set of speakers that will rarely leave you wanting for more.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Network: Killer performance
 
  Downloading a big, hot new game can be a real hassle, especially over Wi-Fi, but the Triton 300 SE can help. It has Intel’s Killer Wi-Fi 6 AX1650 and let me tell you: this thing rips.
@@ -196,6 +176,10 @@ Lifewire / Matthew S. Smith
 ## Camera: BYOW (Bring Your Own Webcam)
 
  Acer’s Predator Triton 300 SE straddles the line between entertainment and productivity in its design, but the camera falls short of its professional aspirations. It’s a tiny 720p pinhole camera that squeezes between the display and the top bezel. Video quality is grainy in all but the brightest rooms and uneven lighting can easily confuse it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Battery: Ouch
 
@@ -211,12 +195,6 @@ Lifewire / Matthew S. Smith
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/RSfl2dEVmErlvh3BUUFcxqsbt9w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-2-c5eed4bfe7e44014952b5503566097d9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Matthew S. Smith
 
 ## Software: Planet what now?
@@ -226,6 +204,10 @@ Lifewire / Matthew S. Smith
  Despite this, most laptop functions are controlled through the PredatorSense software interface. It can control fan modes, adjust keyboard lighting, and monitor temperatures, among other functions. PredatorSense is not much to look at, but I find it less confusing than the alternatives from Asus and Razer.
 
  The laptop comes with Norton antivirus installed. It’s eager to remind you of its presence whenever you download a file or visit an unfamiliar website. The antivirus is easy to uninstall, but its presence takes away from what otherwise feels like a special laptop in Acer’s Predator line.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Price: An outstanding value
 
@@ -250,11 +232,9 @@ Lifewire / Matthew S. Smith
  Acer’s Predator Triton 300 SE is an excellent value that has what gamers want: a great gaming experience and a quality display. Its short battery life and mediocre multi-core processor hold it back in everyday use, but the laptop’s competitive price makes these flaws easy to forgive.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Microsoft Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584)
@@ -262,11 +242,9 @@ Lifewire / Matthew S. Smith
 * [Microsoft Surface Laptop 2](https://www.lifewire.com/microsoft-surface-laptop-2-review-4779760)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Predator Triton 300 SE
@@ -292,8 +270,6 @@ Lifewire / Matthew S. Smith
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -301,4 +277,26 @@ Lifewire / Matthew S. Smith
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/avigating-through-common-youtube-short-difficulties/"><u>[New] Navigating Through Common YouTube Short Difficulties</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-pixels-and-power-revisiting-magix-manager/"><u>[New] Pixels and Power Revisiting MAGIX Manager</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-solo-mastery-how-to-turn-off-apex-legends-cross-play-feature-for-2024/"><u>[New] Solo Mastery How to Turn Off Apex Legends' Cross-Play Feature for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/op-15-youtube-recording-software-for-gamers/"><u>[New] Top 15 YouTube Recording Software for Gamers</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-tactics-podcast-recording-on-ios-devices-for-voice-broadcasts/"><u>[Updated] Top Tactics Podcast Recording on iOS Devices for Voice Broadcasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-chargetechs-impressive-27000mah-power-bank/"><u>Comprehensive Review of ChargeTech's Impressive 27000mAh Power Bank</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-uniden-r3-radar-detector-assessment-durability-and-extended-reach/"><u>Comprehensive Uniden R3 Radar Detector Assessment: Durability & Extended Reach</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/critique-and-score-why-you-cant-ignore-yakuza-like-a-dragon-in-the-realm-of-jrpgs/"><u>Critique & Score: Why You Can't Ignore 'Yakuza: Like a Dragon' In the Realm of JRPGs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/deciding-between-ipad-pro-and-surface-pro-key-differences-explored/"><u>Deciding Between iPad Pro and Surface Pro – Key Differences Explored</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-essential-reviews-for-a-child-safe-screen-experience-amazing-kids-fire-hd-10-tablet-insights-and-controls/"><u>Discover Essential Reviews for a Child-Safe Screen Experience: Amazing Kid’s Fire HD 10 Tablet Insights & Controls</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-leading-asus-wi-fi-routers-for-202-cuyano-the-ultimate-list/"><u>Discover the Leading ASUS Wi-Fi Routers for 202 Cuyano - The Ultimate List</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-strengths-and-weaknesses-of-fongo-a-canadian-based-voip-platform/"><u>Discovering the Strengths and Weaknesses of Fongo - A Canadian-Based VOIP Platform</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-performance-the-garmin-forerunner-745-as-the-ultimate-tracker-for-fitness-buffs/"><u>Evaluating Performance: The Garmin Forerunner 745 as the Ultimate Tracker for Fitness Buffs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-lenovo-thinkpad-x1-fold-a-revolutionary-folding-laptop-with-ups-and-downs/"><u>Exploring the Lenovo ThinkPad X1 Fold: A Revolutionary Folding Laptop with Ups and Downs</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-tecno-spark-20-proplus-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Tecno Spark 20 Pro+ Phone without Any Data Loss</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Samsung Galaxy S23 FE | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Infinix Smart 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Samsung Galaxy F04 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-entertainment-on-a-budget-with-the-caixun-4k-android-tv-75-inch-model-an-in-depth-analysis/"><u>Maximizing Entertainment on a Budget with the Caixun 4K Android TV 75-Inch Model - An In-Depth Analysis.</u></a></li>
+</ul></div>
 

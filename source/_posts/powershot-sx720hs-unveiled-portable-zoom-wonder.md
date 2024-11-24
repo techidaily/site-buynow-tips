@@ -1,7 +1,7 @@
 ---
 title: "PowerShot SX720HS Unveiled: Portable Zoom Wonder"
-date: 2024-09-09T06:12:56.338Z
-updated: 2024-09-10T06:12:56.338Z
+date: 2024-11-21T19:48:56.089Z
+updated: 2024-11-24T16:23:20.353Z
 categories:
   - BestProducts
 description: "This Article Describes PowerShot SX720HS Unveiled: Portable Zoom Wonder"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/00d8a989d7a324ab139f90cea816e72b6f2451ab8
 ## LG Gram 15.6-Inch Laptop Unleashed: A Powerhouse of Portability & Endurance From 2018
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## LG Gram 15.6-inch (2018)
 
@@ -40,22 +44,14 @@ Lifewire / Andrew Hayward
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## LG Gram 15.6-inch (2018)
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/R_aYhYLFGT6--hIRDTNUJTlIVn8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_hero-Square-f2b4744360d644a1b93b7541af7eb182.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Andrew Hayward
 
 [View On Amazon $699](https://www.amazon.com/dp/B078WRSHV4/?tag=lifewire-onsite-prod-20&ascsubtag=4779835%7Cnbd1cf0f7690f4c68a44d26c3ec46a2c410%7CB078WRSHV4)
@@ -87,12 +83,6 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Amazingly light, but not wholly convincing**
 
  Weight aside, the LG Gram 15.6-inch doesn't make the strongest impression in the category. It's a relatively minimal design that's not too fussed-over, but doesn't give the impression that it was chiseled out of a solid brick of aluminum like a MacBook Air or Pro. In fact, it's made from nano carbon magnesium, which must be how LG kept it so darn light.
@@ -122,11 +112,9 @@ Lifewire / Andrew Hayward
  There's little reason to worry about getting the LG Gram 15.6-inch laptop up and running quickly. It has Windows 10 pre-installed, so you'll simply follow the onscreen prompts to enter your Wi-Fi info, check for updates, select a few options, and ultimately find yourself ready to roll on the desktop. It shouldn't take more than a handful of minutes.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Display: Large and capable enough**
 
  The LG Gram's 15.6-inch screen is good, but not great. It's certainly large: the widescreen panel stretches out longer than the 13-inch screens seen on a lot of ultraportable computers, and the extra real estate is absolutely noticeable. It gives you enough extra space to comfortably multitask, such as having a web browser and a document side-by-side, or a Slack window in full view to distract you from whatever you're supposed to be doing for work.
@@ -138,17 +126,9 @@ Lifewire / Andrew Hayward
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/TFbt9G36hk5JyrBL8cIdIuYQ66E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Keyboard_03-fd7e355ac5944f12a8107746d0afbf24.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 ## **Performance: Solid power for everyday tasks**
@@ -163,22 +143,14 @@ Lifewire / Andrew Hayward
 
  As an aside, while the LG Gram often runs near-silently, there are extended periods of time in which there's an audible hum coming from the back. It's not the typical, very loud fan noise that pops up while gaming or heavy multitasking from some computers, but it can be a bit grating. We noticed it while charging the computer, but also while running on the battery—with no consistency on that front. It's a mild annoyance, but it's one we noticed whenever it emerged.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Audio: It makes an impression**
 
  You won't see the speakers when the LG Gram is standing up as normal, but you'll hear them loud and clear. The stereo speakers are tucked underneath the laptop at the left and right edges near where your wrists rest, and thanks to the slight elevation from the rubbery feet on the bottom of the laptop, they're given enough space for the output to shine. Audio playback sounds robust and clear—not quite to the level of Apple's current MacBook Air and MacBook Pro, but very close. We were pleased with it.
 
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Network: Connects as expected**
 
  The LG Gram had no problem connecting to a few different networks, including a home Wi-Fi network, the Google Wi-Fi network at Starbucks, and a mobile hotspot. The connection always seemed speedy and downloads ran at a steady clip. Testing it on a home Wi-Fi network during peak evening hours, we saw a download speed of about 30Mbps and an upload speed of 13Mbps. We tested the network on an iPhone XS Max immediately after and saw comparable speeds there, as well. You can connect to both 2.4Ghz and 5Ghz networks with ease.
@@ -187,20 +159,12 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/AhDZOG33ttJ8LfKQnzvHO7K-S8I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Closed_02-d40445064b4945729278aeae3d8ae1c0.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Battery: Seriously amazing**
 
  The battery is undoubtedly one of the key highlights of the LG Gram 15.6-inch (2018) experience. This massive 72Wh cell is estimated to provide upwards of 19 hours of uptime, according to LG—but as is usually the case with[laptops](https://www.lifewire.com/best-laptops-to-buy-4043650) , that estimate isn't reflective of typical use cases. Even so, with max brightness, the fact that we could get about half that amount still makes for a long-lasting experience.
@@ -209,18 +173,6 @@ Lifewire / Andrew Hayward
 
  With our typical workflow of browsing the web, chatting on Slack, typing up documents, and streaming a little bit of media, we typically saw 8-9 hours of uptime at 100% brightness.
 
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: Hello, Windows (but no Windows Hello)**
 
  The LG Gram 15.6-inch comes with Windows 10 Home preinstalled, and if you've used Windows over the years, then you should be pretty comfortable here. Windows 10 has lightly evolved the PC operating system with feature enhancements and tweaks without losing the classic, familiar DNA within, and it's the OS of choice for computer gaming and apps of all shapes and sizes. It's easy to use and understand, and runs well with the Intel Core i5 and an SSD onboard.
@@ -235,12 +187,6 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/5yzhAkphyYfWOMofqawuktHJlA0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-v.-Surface-comparison-4946178bf2e94230820d2b19d2fb7197.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
 ## **LG Gram 15.6-inch (2018) vs. Microsoft Surface Laptop 2: Better than Microsoft's own?**
@@ -258,11 +204,9 @@ Lifewire / Andrew Hayward
  There are better all-around ultraportable laptops in this price range, and we had some issues with the feeling of the build, the keyboard layout, and the merely good display quality. However, if you're in the market for an incredibly light laptop with a big screen and a battery that lasts and lasts, it's hard to ignore the LG Gram 15.6-inch (2018). You get a very capable computer for the price, and it's a notebook that can legitimately last through a full workday even at max brightness.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Gram 15.6-inch (2018)
@@ -280,14 +224,11 @@ Lifewire / Andrew Hayward
 * Battery Capacity  72 Wh
 * Ports  1x USB-C, 3x USB-3, HDMI, microSD, 3.5mm headphone port
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -296,4 +237,20 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cross-platform-streaming-techniques-from-youtube-to-30plus-platforms/"><u>[Updated] 2024 Approved Cross-Platform Streaming Techniques From YouTube to 30+ Platforms</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/all-in-one-security-solution-comprehensive-arlo-video-doorbell-evaluation/"><u>All-in-One Security Solution: Comprehensive Arlo Video Doorbell Evaluation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/beyond-expectations-an-in-depth-review-of-motorolas-stellar-mid-range-device-the-one-hyper/"><u>Beyond Expectations: An In-Depth Review of Motorola's Stellar Mid-Range Device, The One Hyper</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-dreame-bot-l10-pro-the-smart-mopping-and-vacuuming-robot/"><u>Comprehensive Review of the Dreame Bot L10 Pro: The Smart Mopping and Vacuuming Robot</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cost-vs-benefit-of-replacing-apple-device-batteries/"><u>Cost Vs. Benefit of Replacing Apple Device Batteries</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/d-links-pl-2000-powerline-solution-evaluation-user-friendly-setup-lightning-fast-data-sharing/"><u>D-Link's PL 2000 Powerline Solution Evaluation - User-Friendly Setup, Lightning-Fast Data Sharing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decoding-the-advantages-of-applecare-plus-extended-coverage/"><u>Decoding the Advantages of AppleCare Plus Extended Coverage</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-vivo-t2-pro-5g-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Vivo T2 Pro 5G to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-poco-x6-pro-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Poco X6 Pro Pattern Lock Screen</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-samsung-galaxy-s24-ultra-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Samsung Galaxy S24 Ultra Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-prime-15-gear-to-enhance-your-gopro-shots/"><u>In 2024, Prime 15 Gear to Enhance Your GoPro Shots</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-webm-to-mp4-converter-roundup-top-10-picks/"><u>New 2024 Approved WebM to MP4 Converter Roundup Top 10 Picks</u></a></li>
+<li><a href="https://apple-account.techidaily.com/your-account-has-been-disabled-in-the-app-store-and-itunes-on-apple-iphone-7-by-drfone-ios/"><u>Your Account Has Been Disabled in the App Store and iTunes On Apple iPhone 7?</u></a></li>
+</ul></div>
 

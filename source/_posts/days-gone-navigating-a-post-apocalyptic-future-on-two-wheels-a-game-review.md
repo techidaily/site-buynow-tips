@@ -1,7 +1,7 @@
 ---
 title: "'Days Gone': Navigating a Post-Apocalyptic Future on Two Wheels – A Game Review"
-date: 2024-09-09T06:10:15.770Z
-updated: 2024-09-10T06:10:15.770Z
+date: 2024-11-18T18:58:39.256Z
+updated: 2024-11-24T16:42:40.643Z
 categories:
   - BestProducts
 description: "This Article Describes 'Days Gone': Navigating a Post-Apocalyptic Future on Two Wheels – A Game Review"
@@ -14,27 +14,13 @@ thumbnail: https://thmb.techidaily.com/d1308294694574ea6db8acba4a99168df2eb7c1da
 4.4
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/F035WaL3U8Q-n4fK2WBE6844lMo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Emily Isaacs
 
  What We Like
@@ -58,6 +44,10 @@ Lifewire / Emily Isaacs
 [View On Walmart $138](https://www.walmart.com/ip/Microsoft-Sculpt-Ergonomic-Desktop-Black-Wireless-USB-Keyboard-Keypad-and-Mouse/31390902?slfpid=3) [View On Best Buy $66](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F1818024.p) [View On Newegg.com $169](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.newegg.com%2Fmicrosoft-sculpt-ergonomic-desktop-l5v-00001-usb-rf-wireless%2Fp%2FN82E16823109349%3Fitem%3D9SIA24G28N0197%26slfpid%3D3)
 
 4.4
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Microsoft Sculpt Ergonomic Keyboard
 
@@ -84,11 +74,9 @@ Lifewire / Emily Isaacs
  You can tell Microsoft put a considerable amount of thought into the Sculpt Ergonomic Keyboard’s design. From the manta ray style folds, which keep shoulders and hands at a relaxed, comfortable angle, to the detached numpad and magnetized risers for increased customization options when you want them, the Sculpt is quite the package. As with anything new, it took a period of adjustment, but we found it relatively quick thanks to the intuitive, easy-to-use design.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Made for comfort**
 
  The Sculpt is an ergonomic keyboard with a split design akin to that of a manta ray. The two halves of the keyboard sweep outwards and downwards creating an empty, raised space in the center of its swoop design. Its keys vary in size, with those nearest to the split being slightly wider than those on the outer edges of the keyboard. It’s largely made with plastic and has a bit of a clacky sound as you type. The Sculpt employs a standard layout with a fabric wrist pad at the front for extra comfort. This intuitive, split design combined with the wrist pad help your wrists, hands, and shoulders sit at a neutral, natural angle in order to[alleviate repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) that frequent typists are prone to over time.
@@ -114,17 +102,9 @@ Lifewire / Emily Isaacs
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
 
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
  Backlighting—we love it, but the Sculpt doesn’t have it. This is, in large part, thanks to its battery-powered design. It wouldn’t make a great deal of sense for the Sculpt to have backlighting since the two AAA[alkaline batteries](https://www.lifewire.com/best-aa-and-aaa-rechargeable-batteries-4134295) would drain significantly faster, but we sure did miss it. It’s important to note that our love of backlighting is also a matter of personal preference. If it’s important to you, you might want to consider a different model. If you can live without it, the Sculpt still has a lot to offer.
@@ -133,12 +113,6 @@ Lifewire / Emily Isaacs
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Great for the features**
 
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
@@ -146,11 +120,9 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
@@ -165,12 +137,6 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Emily Isaacs
 
  The Surface is a high-end keyboard, but that quality comes at a higher price. The Surface tends to retail for around $129, much more than the Sculpt which retails for around $80\. That said, it’s an upgrade in almost every way. If you’re on a budget, the Sculpt is a great option, but if you’re able to splurge, the Surface is our top pick for wireless ergonomic keyboards.
@@ -204,8 +170,6 @@ Lifewire / Emily Isaacs
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -213,4 +177,24 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-mastering-channel-artistry-explore-these-10-visual-creation-tools/"><u>[Updated] Mastering Channel Artistry Explore These 10 Visual Creation Tools</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-masterclass-review-galaxy-s8-with-its-4k-features/"><u>2024 Approved Masterclass Review Galaxy S8 with Its 4K Features</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-techs-leading-edge-in-video-capturing-software/"><u>2024 Approved Tech's Leading Edge in Video Capturing Software</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/windows-uefi/"><u>开机Windows ‧ 没有UEFI选择的原因及设定细节解释</u></a></li>
+<li><a href="https://win11.techidaily.com/addressing-steam-error-unauthorized-file-reading-in-win11/"><u>Addressing Steam Error: Unauthorized File Reading in Win11</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-iphone-is-disabled-here-is-the-way-to-unlock-disabled-iphone-7-plus-drfone-by-drfone-ios/"><u>In 2024, iPhone Is Disabled? Here Is The Way To Unlock Disabled iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leap-forward-upgrading-windows-11-from-32-to-64-bit/"><u>Leap Forward: Upgrading Windows 11 From 32 to 64-Bit</u></a></li>
+<li><a href="https://win-able.techidaily.com/master-the-art-of-troubleshooting-pc-failures-2024s-definitive-guide/"><u>Master the Art of Troubleshooting PC Failures: 2024'S Definitive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-alert-the-high-performance-docooler-usb-20-12mp-compact-digital-slr-examined/"><u>Review Alert: The High-Performance Docooler USB 2.0 12MP Compact Digital SLR Examined</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-totobabays-second-generation-luminous-awakening-light-the-smart-way-to-start-your-morning-on-a-budget/"><u>Review: Totobabay's Second Generation Luminous Awakening Light – The Smart Way to Start Your Morning on a Budget</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sonys-acoustic-revolution-an-in-depth-study-of-wh-1000xm4/"><u>Sony's Acoustic Revolution: An In-Depth Study of WH-1000XM4</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/survival-sweepstakes-robust-jabra-audio-devices/"><u>Survival Sweepstakes: Robust Jabra Audio Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-perfect-blend-of-form-and-fitness-in-our-complete-review-of-the-fitbit-charge-4/"><u>The Perfect Blend of Form and Fitness in Our Complete Review of the Fitbit Charge 4</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-ereader-unboxing-and-testing-the-2019-kindle-oasis/"><u>The Ultimate Ereader: Unboxing and Testing the 2019 Kindle Oasis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-asus-chromebook-c202-sa-ideal-durability-and-use-for-education-settings/"><u>The Ultimate Guide to Asus Chromebook C202 SA: Ideal Durability and Use for Education Settings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-understanding-the-features-mobility-and-efficiency-of-the-pioneer-bdr-xs06-blu-ray-writer-reviewed/"><u>The Ultimate Guide to Understanding the Features, Mobility & Efficiency of the Pioneer BDR-XS06 Blu-Ray Writer Reviewed</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721460165384-unsteady-sounds-in-airpods-the-solution-could-be-disabling-head-tracking-dynamics/"><u>Unsteady Sounds in AirPods? The Solution Could Be Disabling Head Tracking Dynamics</u></a></li>
+</ul></div>
 

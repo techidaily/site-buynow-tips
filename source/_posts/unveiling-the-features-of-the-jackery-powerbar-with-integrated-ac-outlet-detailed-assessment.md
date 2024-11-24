@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Features of the Jackery PowerBar with Integrated A/C Outlet – Detailed Assessment
-date: 2024-11-14T10:18:18.266Z
-updated: 2024-11-15T04:40:36.037Z
+date: 2024-11-22T17:09:06.747Z
+updated: 2024-11-24T16:59:16.378Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Features of the Jackery PowerBar with Integrated A/C Outlet – Detailed Assessment
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/1e0cJN-BsKLogB5b5Fm0imOzPoA=/400x300/fi
 ## Logitech C615 HD Laptop Webcam
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/jgH6j34_PXXE9fO2vS4Nr4d3pSM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_HERO_3LW4065141_3_Final_Square-204b4e949e864f148cd513b3511eac69.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / James Huenink
 
@@ -37,22 +41,12 @@ Lifewire / James Huenink
 4.5
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Logitech C615 HD Laptop Webcam
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/9YqP4BNKZ_F27rxIYbc3f1vqzd0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_HERO_3LW4065141_3_Final_Square-204b4e949e864f148cd513b3511eac69.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / James Huenink
 
@@ -78,6 +72,10 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design:** **Flexible, foldable design**
 
  The Logitech C615 is a compact webcam. The whole device folds up into a very small package, just 2.5” wide, 1.25” tall, and 1.5” wide, so you can tuck it into a pocket. When you open it up, the flexible design is simple to position. Unfolded, the webcam has three pieces: the base, neck, and[camera](https://www.lifewire.com/best-digital-cameras-under-100-3897833) . The base is the heaviest part, which means that the camera stays upright even if you don’t perfectly balance everything. The top is made out of a soft, rubbery plastic, and the bottom has a rubbery dot that keeps the base from sliding around. The dot comes off the base to reveal a tripod post, so this camera is compatible with a standard tripod. The only problem is that the dot comes off completely when the tripod post is exposed. If you're prone to losing things, this may be an issue.
@@ -92,13 +90,6 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Camera Quality: Quality camera with some autofocus troubles**
 
  The camera takes 1080p video and has a 2 MP sensor. We tested the webcam’s photo capabilities by taking a picture of some packaging. Color was well represented, but the autofocus was just a bit off. The image was just a bit blurry, and we couldn’t read the smaller words at all. This wasn’t a problem close up, but it made a bigger difference when people were far away.
@@ -111,7 +102,15 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/Bko9Uk1HIIMt9aNgtBf9ATCy0AA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_14_Final_Horiz-4f1b9fe91b8c4229b17dbbe6afb81b8c.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / James Huenink
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Decent sound quality for a small mic**
 
@@ -142,19 +141,6 @@ Lifewire / James Huenink
  **Strikes a balance between affordability and performance.**
 
  The Logitech C615 Webcam strikes the perfect balance between performance and affordability. The quality design, high definition video, and quality sound make this an excellent webcam for most tasks at a great price.
-
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -188,18 +174,17 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-expert-tags-analyzer-software-fb-tweet-and-insta-edition/"><u>[New] Expert Tags Analyzer Software FB, Tweet & Insta Edition</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-essential-guide-to-writing-click-worthy-youtube-titles/"><u>[Updated] 2024 Approved Essential Guide to Writing Click-Worthy Youtube Titles</u></a></li>
-<li><a href="https://discover-best.techidaily.com/effiziente-workaround-und-substitute-fur-ein-nicht-funktionierendes-handbrake-auf-windows-11-erfahrbare-anleitung/"><u>Effiziente Workaround Und Substitute Für Ein Nicht Funktionierendes HandBrake Auf Windows 11 - Erfahrbare Anleitung</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/instagram-stories-mastering-the-art-of-time-manipulation/"><u>Instagram Stories – Mastering the Art of Time Manipulation</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/integrating-airpods-seamlessly-with-windows-pcs/"><u>Integrating AirPods Seamlessly with Windows PCs</u></a></li>
-<li><a href="https://techtrends.techidaily.com/steps-to-fix-the-msodll-error-on-windows-computers/"><u>Steps to Fix the Mso.dll Error on Windows Computers</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-vivo-v27-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Vivo V27 | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/troubleshooting-your-fire-tv-stick-top-7-fixes-for-common-issues/"><u>Troubleshooting Your Fire TV Stick: Top 7 Fixes for Common Issues</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unleashing-the-full-power-of-google-tv-top-10-features-every-user-needs-to-know/"><u>Unleashing the Full Power of Google TV: Top 10 Features Every User Needs to Know</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlock-epic-deals-for-iphone-gamers-shop-now-before-prime-day-ends/"><u>Unlock Epic Deals for iPhone Gamers – Shop Now Before Prime Day Ends!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlock-immediate-savings-drop-90-off-your-directtv-stream-subscription-with-our-promo/"><u>Unlock Immediate Savings: Drop $90 Off Your DIRECTTV Stream Subscription with Our Promo!</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/up-to-date-driver-software-for-hp-deskjet-2600-optimized-for-windows-7810-downloads/"><u>Up-to-Date Driver Software for HP Deskjet 2600: Optimized for Windows 7/8/10 Downloads</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-face-off-the-best-face-swap-apps-for-iphone-and-android-for-2024/"><u>Updated Face Off The Best Face Swap Apps for iPhone and Android for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-engage-audiences-with-substance-mastering-the-art-of-tiktok-captions-top-5/"><u>[New] In 2024, Engage Audiences with Substance Mastering the Art of TikTok Captions (Top 5)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-iphone-hdr-masterclass-from-basics-to-brilliance/"><u>[New] In 2024, IPhone HDR Masterclass From Basics to Brilliance</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-into-the-future-with-these-7-premier-live-streaming-apps-iphoneandroid/"><u>[Updated] Step Into the Future with These 7 Premier LIVE Streaming Apps (iPhone/Android)</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-live-gaming-zenith-revealed-9-edition/"><u>2024 Approved Live Gaming Zenith Revealed, #9 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/first-impressions-and-usage-tips-for-the-samsung-galaxy-budsplus/"><u>First Impressions and Usage Tips for the Samsung Galaxy Buds+</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-xiaomi-redmi-13c-5g-is-unlocked-by-drfone-android/"><u>How To Check if Your Xiaomi Redmi 13C 5G Is Unlocked</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/insights-into-the-oneplus-9-pro-outstanding-visual-appeal-quick-responsiveness-and-camera-innovations/"><u>Insights Into the OnePlus 9 Pro - Outstanding Visual Appeal, Quick Responsiveness & Camera Innovations</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-best-prime-day-deals-on-samsung-devices-you-can-still-get/"><u>The Best Prime Day Deals on Samsung Devices You Can Still Get</u></a></li>
+<li><a href="https://windows11.techidaily.com/top-4-microcomputers-pure-windows-environment/"><u>Top 4 Microcomputers: Pure Windows Environment</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/ultimate-guide-mastering-manycam-features-and-virtual-backgrounds/"><u>Ultimate Guide: Mastering ManyCam Features and Virtual Backgrounds</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/yn560ivs-manual-control-capturing-moments-efficiently-and-economically/"><u>YN560IV's Manual Control: Capturing Moments Efficiently & Economically</u></a></li>
 </ul></div>
 

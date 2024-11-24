@@ -1,7 +1,7 @@
 ---
 title: YN560IV - Affordable Speedlite with Advanced Manual Control
-date: 2024-09-09T06:14:21.934Z
-updated: 2024-09-10T06:14:21.934Z
+date: 2024-11-22T19:32:17.903Z
+updated: 2024-11-24T18:48:09.941Z
 categories:
   - BestProducts
 description: This Article Describes YN560IV - Affordable Speedlite with Advanced Manual Control
@@ -13,16 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/D3JB0dOJvbzFClasEyEehvWN5c8=/400x300/fi
 
 3.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Todd Braylor
 
  What We Like
@@ -44,27 +42,13 @@ Lifewire / Todd Braylor
 3.8
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Todd Braylor
 
 [View On Amazon $280](https://www.amazon.com/dp/B019HF60EI/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7CB019HF60EI) [View On Walmart $140](https://www.walmart.com/ip/Escort-Passport-S55-High-Performance-Pro-Radar-and-Laser-Detector-w-DSP/49140972)
@@ -96,23 +80,15 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Easy installation**
 
  The S55 is straightforward and easy to install. Simply stick the windshield mount in place and plug the SmartCord lighter adapter into your car's DC cigarette lighter input. Plugging the modular jack into the S55 will automatically power on the radar detector and you can quickly customize settings for display brightness, detector sensitivity levels, and volume. Then you're ready to hit the road.
 
  Lifewire / Todd Braylor
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Range: Impressive detection**
 
@@ -129,29 +105,15 @@ Lifewire / Todd Braylor
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
 <!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: You get what you pay for**
 
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
  A popular competitor brand to Escort that makes a wide selection of radar detectors is Uniden. The Uniden DFR9 (view on[Amazon](https://www.amazon.com/Uniden-DFR9-Detection-Cameras-Display/dp/B07F6PZXHM/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7C) ) is a model that can be considered the next price tier above the S55\. The DFR9's MSRP is $300 but it can often be found on sale for about $270.
@@ -163,6 +125,10 @@ Lifewire / Todd Braylor
  **A basic radar detector that's ideal for beginners or anyone on a budget.**
 
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -184,8 +150,6 @@ Lifewire / Todd Braylor
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -193,4 +157,22 @@ Lifewire / Todd Braylor
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-stream-success-starts-here-choosing-the-right-camera-for-twitch/"><u>[New] 2024 Approved Stream Success Starts Here Choosing the Right Camera for Twitch</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-fix-blurry-facebook-videos-on-iphoneandroidchrome-in-2024/"><u>[New] How to Fix Blurry Facebook Videos on iPhone/Android/Chrome, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-maximize-offline-viewing-8-best-youtube-downloaders/"><u>[New] In 2024, Maximize Offline Viewing 8 Best YouTube Downloaders</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-saving-linkedin-videos-made-easy-with-this-6-app-selection-guide/"><u>[Updated] Saving LinkedIn Videos Made Easy with This 6-App Selection Guide</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>How does the stardust trade cost In pokemon go On Apple iPhone 12 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-site-trust-on-windows-11/"><u>Mastering Site Trust on Windows 11</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/screen-time-saviors-expert-evaluations-of-video-tech/"><u>Screen Time Saviors Expert Evaluations of Video Tech</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/stylish-tracking-device-unveiling-the-pros-and-cons-of-the-amazfit-gts-wearable-tech-review/"><u>Stylish Tracking Device? Unveiling the Pros and Cons of the Amazfit GTS Wearable Tech Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-definitive-guide-choosing-your-perfect-ipad-model/"><u>The Definitive Guide: Choosing Your Perfect iPad Model</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-elite-in-sports-video-games-an-in-depth-look-at-fifa-nineteenth-editions-triumph/"><u>The Elite in Sports Video Games - An In-Depth Look at FIFA Nineteenth Edition's Triumph</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-barnes-and-nobles-nook-glowlight-4-e-reader/"><u>The Ultimate Review of Barnes & Noble's Nook GlowLight 4 E-Reader</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-verdict-on-hisense-40h55-(u)inch(u)-5590f-smart-tv-best-budget-choice/"><u>The Ultimate Verdict on Hisense 40H55 <U>Inch</U> 5590F Smart TV - Best Budget Choice?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-key-tracking-devices-in-2er-2024-a-comprehensive-review/"><u>Top-Rated Key Tracking Devices in 2Er 2024: A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-best-top-race-rc-rock-crawlers-mastering-any-terrain/"><u>Ultimate Guide to the Best Top Race R/C Rock Crawlers - Mastering Any Terrain</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/what-is-virtual-reality-video-in-2024/"><u>What Is Virtual Reality Video, In 2024</u></a></li>
+</ul></div>
 

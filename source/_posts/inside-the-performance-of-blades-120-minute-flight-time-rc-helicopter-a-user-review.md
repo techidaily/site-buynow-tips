@@ -1,7 +1,7 @@
 ---
 title: "Inside the Performance of Blade's 120-Minute Flight Time RC Helicopter: A User Review"
-date: 2024-09-09T06:12:45.759Z
-updated: 2024-09-10T06:12:45.759Z
+date: 2024-11-19T19:13:44.557Z
+updated: 2024-11-24T16:34:21.969Z
 categories:
   - BestProducts
 description: "This Article Describes Inside the Performance of Blade's 120-Minute Flight Time RC Helicopter: A User Review"
@@ -9,31 +9,17 @@ excerpt: "This Article Describes Inside the Performance of Blade's 120-Minute Fl
 thumbnail: https://thmb.techidaily.com/0a8efd832e4ff850ed2946c105917f658a3e5ec7d74782a26831b6d30a49981c.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Ultimate Guide to Docooler USB 2.0 Camera - Unveiling the Truth of Its 12MP Performance
 
 1.4
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Docooler USB 2.0 12 Megapixel
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/9tSqTK9OEckACvQEhU5iBbHvMfM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_HERO_1LW4065141_7_Final_Square-bd507bc5d1d646f9a0d8d7466601f569.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / James Huenink
 
@@ -93,20 +79,12 @@ Lifewire / James Huenink
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/a_8Gd66JN0RtfWzKKcRq95S8EmY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_6_Final_Horiz-1dd3a45479614483b0f4f5883f27094a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / James Huenink
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup process: Awkward to position**
 
  It takes almost no time to get the Docooler USB 2.0 12 Megapixel up and running. We just plugged the USB cord into the computer and it worked.
@@ -125,6 +103,10 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Underwhelming performance in video and audio**
 
  We used[Photobooth](https://www.lifewire.com/how-to-turn-on-camera-on-mac-4175436) and[Skype](https://www.lifewire.com/how-to-make-hd-skype-calls-3426508) to test out the video and audio performance using the webcam for recording and[conference calls](https://www.lifewire.com/top-free-web-conferencing-tools-2377241) . It was difficult to position the Docooler USB 2.0 12 Megapixel correctly, because by the time we clipped it on and sat down, the camera had slipped out of position. This happened several times before we finally resigned ourselves to using a tilted camera in our calls.
@@ -138,21 +120,13 @@ Lifewire / James Huenink
  The audio performance of the Docooler USB 2.0 12 Megapixel was also lackluster. The built-in microphone produced poor quality sound, and when we tested it on Skype, voices were both muffled and echoey. People on the other end could understand what we were saying, but it was an unpleasant experience.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Cheap price, even cheaper webcam**
 
  The Docooler USB 2.0 12 Megapixel is the most inexpensive webcam you can buy, ranging from $8 up to around $15, but there’s a reason it’s priced so low. The image and audio quality are both terrible, and the camera is difficult to use.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: Falls short**
 
 **_Logitech C270_ :** The Logitech C270 is a low-cost webcam that goes for $40 MSRP, though you can frequently find it for approximately $20\. For $10 more than the Docooler, you get a big upgrade. It has 720p video calling and takes photos at 3MP. The microphone filters out background noise, so it shouldn’t have the same echo effects as the Docooler Web Cam. Even though it’s twice the price, you get a lot more camera for your ten bucks.
@@ -168,11 +142,9 @@ Lifewire / James Huenink
  The Docooler USB 2.0 12 Megapixel is one of the most inexpensive cameras on the market for a reason. This camera doesn’t come close to delivering what it promises, meaning it's not worth even the trifle you'd pay for it.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  USB 2.0 12 Megapixel
@@ -190,14 +162,11 @@ Lifewire / James Huenink
 * Frame rate  30fps
 * What’s Included  Docooler USB 2.0 12 Megapixel, Quick Start Guide
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -206,4 +175,21 @@ Lifewire / James Huenink
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-the-final-showdown-is-obs-studio-superior-to-bandicam/"><u>[New] The Final Showdown Is OBS Studio Superior to Bandicam?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-exclusive-photo-safekeeping-top-free-and-paid-cloud-storage-solutions-for-2024/"><u>[Updated] Exclusive Photo Safekeeping Top Free & Paid Cloud Storage Solutions for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-zenith-pinnacle-design-review/"><u>[Updated] In 2024, Zenith Pinnacle Design Review</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-realme-12plus-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-marvels-spider-man-miles-morales-a-compact-game-with-a-grand-impact/"><u>Comprehensive Analysis of Marvel's Spider-Man: Miles Morales - A Compact Game with a Grand Impact</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-unboxing-the-best-in-mid-range-the-samsung-galaxy-tab-s7/"><u>Comprehensive Guide: Unboxing the Best in Mid-Range - The Samsung Galaxy Tab S7</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-unleashing-the-power-of-anthropics-smart-photo-editor/"><u>Comprehensive Review: Unleashing the Power of Anthropics Smart Photo Editor</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/critical-evaluation-of-pioneers-bdr-xd05b-burner-model-identifying-key-design-issues/"><u>Critical Evaluation of Pioneer's BDR-XD05B Burner Model - Identifying Key Design Issues</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-premier-power-converters-expert-picks/"><u>Discover the Premier Power Converters: Expert Picks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-world-of-simple-technology-with-hp-stream-11s-slim-design/"><u>Discover the World of Simple Technology with HP Stream 11'S Slim Design</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/free-green-screen-magic-top-android-and-ios-apps-for-2024/"><u>Free Green Screen Magic Top Android and iOS Apps for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-tunes-choosing-best-offline-audio-to-text-tools/"><u>In 2024, Top Tunes Choosing Best Offline Audio-to-Text Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/sheryls-strategies-and-successes-at-facebook/"><u>Sheryl’s Strategies and Successes at Facebook</u></a></li>
+</ul></div>
 

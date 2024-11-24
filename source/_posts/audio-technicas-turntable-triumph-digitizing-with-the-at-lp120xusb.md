@@ -1,7 +1,7 @@
 ---
 title: "Audio-Technica's Turntable Triumph: Digitizing with the AT-LP120XUSB"
-date: 2024-09-09T06:18:52.373Z
-updated: 2024-09-10T06:18:52.373Z
+date: 2024-11-20T17:43:13.008Z
+updated: 2024-11-24T17:33:56.314Z
 categories:
   - BestProducts
 description: "This Article Describes Audio-Technica's Turntable Triumph: Digitizing with the AT-LP120XUSB"
@@ -13,28 +13,10 @@ thumbnail: https://thmb.techidaily.com/88c6b83c6e65598f301ec5b1e8fb9b13fd16a0c81
 
 4.2
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Audio-Technica AT-LP120XUSB
 
 ![Audio-Technica AT-LP120XUSB-BK](https://www.lifewire.com/thmb/Y226RhUsfbd82FQQo5_2Bg5_850=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW4066854-HeroSquare-b64d56107a3247e685fc7fdbff3f1663.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jeff Dojillo
 
  What We Like
@@ -55,11 +37,9 @@ Lifewire / Jeff Dojillo
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Audio-Technica AT-LP120XUSB
 
 ![Audio-Technica AT-LP120XUSB-BK](https://www.lifewire.com/thmb/gUSGcxbX4twCFknmSc1Ok71bc1A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW4066854-HeroSquare-b64d56107a3247e685fc7fdbff3f1663.jpg)
@@ -88,18 +68,6 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Modern but plastic**
 
  The Audio-Technica AT-LP120XUSB-BK is a lightweight turntable with a modern design. The all black, polished metal turntable comes with a professional-grade, anti-resonance, die-cast aluminum platter and a felt mat to help reduce vibration when playing records.
@@ -113,6 +81,10 @@ Lifewire / Jeff Dojillo
  To keep the Audio-Technica turntable clean, there’s a removable hinged dust cover. Dust is a major issue when playing vinyl records as any debris on the record will cause records to crackle, hiss, and skip, so the cover is a welcome addition. It not only keeps the turnable clean, it helps reduce vibration from[speakers](https://www.lifewire.com/all-about-speakers-4125129) during playback.
 
  Lifewire / Jeff Dojillo
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Set up: Quick and painless**
 
@@ -131,17 +103,9 @@ Lifewire / Jeff Dojillo
  Lifewire / Jeff Dojillo
 
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Sound Quality: Varies from system to system**
 
  The Audio-Technica AT-LP120XUSB-BK generally sounds great, but audio quality can vary significantly depending on the system to which the turntable is attached. When testing the AT-VM95E Dual Magnet phono cartridge with a dedicated stereo amp it created a wonderful soundstage with crisp high tones and rich bass. Even though our tests were positive, the sound produced from the turntable relies more on the quality of speakers, amp, and sound dynamics of the room than other models.
@@ -151,11 +115,9 @@ Lifewire / Jeff Dojillo
  Lifewire / Jeff Dojillo
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Digital to Analog Conversion: Quick and easy**
 
  According to the instructions that were provided with the Audio-Technica AT-LP120XUSB-BK, all we had to do to convert vinyl records to digital audio was to connect the turntable via[USB](https://www.lifewire.com/universal-serial-bus-usb-2626039) and download Audacity recording software. Converting analog audio to digital was then as simple as selecting the turntable as our input device. This turntable is perfect for those looking for a simple way to record their favorite records or archive a rare vinyl collection.
@@ -163,6 +125,10 @@ Lifewire / Jeff Dojillo
 ## **Price: Decent price for what it delivers**
 
  Retailing at around $250 the Audio-Technica AT-LP120XUSB-BK is a great direct-drive turntable. Geared toward those that enjoy high-definition music through vinyl records, this is a great turntable that not only looks wonderful but delivers great functionality.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Audio-Technica AT-LP120XUSB-BK vs Sony PS-LX310BT**
 
@@ -182,12 +148,6 @@ Lifewire / Jeff Dojillo
 * [Edifier R1280T Powered Bookshelf Speakers](https://www.lifewire.com/edifier-r1280t-powered-bookshelf-speakers-review-4780162)
 * [Polk T50](https://www.lifewire.com/polk-t50-review-4772109)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  AT-LP120XUSB
@@ -221,8 +181,6 @@ Lifewire / Jeff Dojillo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -230,4 +188,26 @@ Lifewire / Jeff Dojillo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-expressiveness-in-yt-adopting-emojis/"><u>[Updated] 2024 Approved Expressiveness in YT Adopting Emojis</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-magic-of-time-expansion-a-comprehensive-guide-to-making-beautifully-long-movies-with-still-images-and-online-tools/"><u>[Updated] The Magic of Time Expansion A Comprehensive Guide to Making Beautifully Long Movies with Still Images & Online Tools</u></a></li>
+<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-call-recorder-iphone-captures-all-calls/"><u>2024 Approved Call Recorder IPhone Captures All Calls</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/choosing-between-the-classics-an-in-depth-look-at-nintendos-lite-vs-oled-variants/"><u>Choosing Between the Classics: An In-Depth Look at Nintendo's Lite Vs. OLED Variants</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-past-to-present-smith-v-jones-case-study-on-subsequent-purchasers-and-urban-planning-implications/"><u>Comparing Past to Present: Smith V. Jones Case Study on Subsequent Purchasers and Urban Planning Implications</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-samsungs-new-in-ear-earbuds-the-galaxy-budsplus/"><u>Comprehensive Evaluation of Samsung's New In-Ear Earbuds – The Galaxy Buds+</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-razer-blade-stealth-nix-redefining-ultp-innovation/"><u>Comprehensive Evaluation of the Razer Blade Stealth Nix: Redefining ULTP Innovation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-and-assessment-of-rcas-powerful-doorbell-surveillance-device/"><u>Comprehensive Guide & Assessment of RCA's Powerful Doorbell Surveillance Device</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-reviews-of-petsafes-automatic-pet-feeder-for-maintaining-your-furry-friends-ideal-weight/"><u>Comprehensive Reviews of PetSafe's Automatic Pet Feeder for Maintaining Your Furry Friend’s Ideal Weight</u></a></li>
+<li><a href="https://techtrends.techidaily.com/creating-a-secondary-email-address-on-gmail-the-ultimate-walkthrough/"><u>Creating a Secondary Email Address on Gmail: The Ultimate Walkthrough</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/critical-elements-for-choosing-high-quality-vr-devices/"><u>Critical Elements for Choosing High-Quality VR Devices</u></a></li>
+<li><a href="https://win-able.techidaily.com/cure-your-csgo-login-woes-5-effective-remedies-for-no-user-logon-error/"><u>Cure Your CSGO Login Woes: 5 Effective Remedies for ‘No User Logon’ Error</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discophiles-dreamlist-top-cd-tech/"><u>Discophile's Dreamlist: Top CD Tech</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-benefits-of-a-gentle-awakening-with-the-philips-hf3505-wake-up-light-a-comprehensive-analysis/"><u>Discover the Benefits of a Gentle Awakening with the Philips HF3505 Wake-Up Light: A Comprehensive Analysis</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-techniques-for-altering-decibel-settings-on-media-playback/"><u>New In 2024, Techniques for Altering Decibel Settings on Media Playback</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/s-best-free-video-rotators-for-3gp-files-expert-recommendations/"><u>S Best Free Video Rotators for 3GP Files Expert Recommendations</u></a></li>
+<li><a href="https://windows11.techidaily.com/strategies-to-resolve-0x0000004e-issue-in-win11/"><u>Strategies to Resolve 0X0000004E Issue in Win11</u></a></li>
+<li><a href="https://media-tips.techidaily.com/top-strategies-for-flawless-conversion-of-audio-files-into-mp3wma-format-without-quality-loss/"><u>Top Strategies for Flawless Conversion of Audio Files Into MP3/WMA Format Without Quality Loss</u></a></li>
+</ul></div>
 

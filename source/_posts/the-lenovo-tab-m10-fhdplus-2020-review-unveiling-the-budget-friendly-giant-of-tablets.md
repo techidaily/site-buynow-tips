@@ -1,7 +1,7 @@
 ---
 title: The Lenovo Tab M10 FHD+ (2020) Review - Unveiling the Budget-Friendly Giant of Tablets
-date: 2024-09-09T06:16:20.049Z
-updated: 2024-09-10T06:16:20.049Z
+date: 2024-11-23T19:09:27.240Z
+updated: 2024-11-24T18:47:18.475Z
 categories:
   - BestProducts
 description: This Article Describes The Lenovo Tab M10 FHD+ (2020) Review - Unveiling the Budget-Friendly Giant of Tablets
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/a-s0SQfqidlds8OfLavnZL18404=/400x300/fi
 ## Unveiling the Lenovo Tab M10 FHD Plus (2020): Top-Notch Display Meets Wallet-Friendly Price
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Lenovo Tab M10 FHD Plus (2nd Gen)
 
@@ -36,12 +40,6 @@ Lifewire / Jeremy Laukkonen
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Lenovo Tab M10 FHD Plus (2nd Gen)
 
 ![Lenovo Tab M10 FHD Plus (2020)](https://www.lifewire.com/thmb/dbD4xoAS3V_HdF9dkFJwAPoswK0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10FHDPlus_HeroSquare-fd396d12e6ec48668ead96bed2f790fb.jpg)
@@ -75,15 +73,13 @@ Lifewire / Jeremy Laukkonen
 
  I recently had the opportunity to pack along a Tab M10 FHD Plus as part of my daily carry, using it for everything from email to streaming video and even some video conferencing over the span of about a week. I tested everything from overall performance and battery life to camera quality and wireless connectivity to see if this budget Android tablet rises above the crowd or disappears inside it.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What’s New: Better specs and price than the first-gen Tab M10
 
  The Tab M10 FHD Plus (2020) is one successor to 2019’s Tab M10\. It packs a slightly more powerful processor, bigger battery, and batter cameras. The display remains unchanged in resolution, but the Tab M10 FHD Plus (2020) does have a slightly bigger display. The price tag of the Tab M10 FHD Plus (2020) is also a bit smaller.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Design: Attractive metal design feels solid in the hand
 
@@ -115,6 +111,10 @@ Lifewire / Jeremy Laukkonen
 
  The colors look great, the image is nice and crisp without visible pixelation, and it has great viewing angles thanks to the IPS panel.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Performance: Decent enough for the price
 
  The Tab M10 FHD Plus is powered by an octa-core Mediatek MT6762 Helio P22T chip, and it’s available in a handful of[RAM](https://www.lifewire.com/what-is-random-access-memory-ram-2618159) and storage configurations. You can get it with 32GB of storage and 2GB of RAM, 64GB and 4GB, or 128GB with 4GB of RAM. My test unit was the 128GB / 4GB model.
@@ -125,17 +125,15 @@ Lifewire / Jeremy Laukkonen
 
 ![Lenovo Tab M10 FHD Plus (2020)](https://www.lifewire.com/thmb/tt3HD9uM-f4_vqoAxok0dfwOVb8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10FHDPlus_02-264a43b354b148d7bfeea1a952ddcb71.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jeremy Laukkonen
 
  For more specific benchmarks, the Tab M10 FHD Plus scored 5,266 in web browsing, 4,360 in writing, and 3,851 in data manipulation. That’s a great web browsing score, but the writing and data manipulation scores are a bit disappointing. The Tab M10 HD, which is a second generation M-series tablet that’s priced lower than the Tab M10 FHD Plus, scored a bit better in those areas.
 
  I also ran a couple graphics benchmarks from GFXBench. The first one I ran was Car Chase, which is a game-like benchmark that tests how well a device handles lighting, physics, and other things. It hit just 5.9 FPS in that benchmark, which is significantly better than the 3.4 FPS I saw from the less expensive Tab M10 HD, but still very unimpressive. It did better in the less intense T-Rex benchmark, registering a playable 31 FPS.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Productivity: Excels at basic productivity tasks
 
@@ -151,12 +149,6 @@ Lifewire / Jeremy Laukkonen
 
  When I loaded up YouTube Music and turned up the volume all the way, I found that the Tab M10 FHD Plus was loud enough to easily fill a large room. I didn’t notice a whole lot of distortion at the highest volume, but it was loud enough that I found it more comfortable to listen to at three quarters volume or less.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Network: Good Wi-Fi network speeds with an LTE option
 
  The Tab M10 FHD Plus supports dual-band 802.11ac Wi-Fi and Bluetooth 5.0, with additional support for low energy Bluetooth. There is also a version that includes LTE support, but my test unit did not include that functionality.
@@ -170,35 +162,21 @@ Lifewire / Jeremy Laukkonen
  Next up, I took the Tab M10 FHD Plus into a hallway around the corner at a distance of about 10 feet from the router. At that distance, the connection speed dropped to 184 Mbps. I then took it about 60 feet from the router into another room with walls and other obstructions in the way, and the speed dropped only to 182 Mbps. Finally, I took it out into my garage, at a distance of about 100 feet, and the speed dropped to 26.5 Mbps.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Camera: Disappointing results all around
 
  The Tab M10 FHD Plus has better cameras than the first generation of the Tab M10 hardware, but the results still aren’t that great. It has the same 8MP sensor on the back and 5MP selfie cam that you get in the less expensive Tab M10 HD. These cameras are more acceptable in the less expensive version of the hardware than they are here.
 
 ![Lenovo Tab M10 FHD Plus (2020)](https://www.lifewire.com/thmb/fW7pWFeGLdIkaBDNJBR5LIE2TF0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10FHDPlus_03-638edb188f924604b2d38f1307add396.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jeremy Laukkonen
 
  The rear camera turns in uniformly disappointing results. Even given perfect light outdoors, shots tended to look washed out, unfocused, and lacking in detail. In less-than-perfect light, I found it very difficult to avoid blown-out photos, tons of noise, or even both in the same shot.
 
  The selfie cam is sufficient for video calls, but it wouldn’t be my first choice. Video looks washed out and flat, with excessive noise depending on the lighting conditions. Photos look like artifacts from a different time.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Battery: Could use a bigger battery
 
  The Tab M10 FHD Plus includes a 5,000 mAh battery and supports up to 10W charging. The battery is the same one found in the less expensive Tab M10 HD, and it should really be bigger due to the increased power consumption of the bigger display. When using the tablet during the day for email and web browsing, and at night to stream videos, I found myself needing to put it on the charger every day.
@@ -208,11 +186,9 @@ Lifewire / Jeremy Laukkonen
  The battery is the same one found in the less expensive Tab M10 HD, and it should really be bigger due to the increased power consumption of the bigger display.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Software: Originally shipped with Android Pie, now comes with Android 10
 
  The Tab M10 FHD Plus originally shipped with Android Pie, but my test unit came equipped with Android 10 from the factory. There are a couple important takeaways from that.
@@ -228,19 +204,15 @@ Lifewire / Jeremy Laukkonen
 ![Lenovo Tab M10 FHD Plus (2020)](https://www.lifewire.com/thmb/6jtXbNEbp6IeWqkD4Bs-0KjGx4Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10FHDPlus_05-afa4a59fc67343c785979e6eb3f67c48.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Lenovo Tab M10 FHD Plus (2020) vs. Lenovo Tab M10 HD
 
  The Tab M10 FHD Plus and Tab M10 HD are similar tablets that share the same processor, similar RAM and storage configurations, and look almost identical to each other. The Tab M10 FHD Plus is a bit bigger thanks to its larger display, and it also has a higher resolution.
@@ -259,12 +231,6 @@ Lifewire / Jeremy Laukkonen
 * [Lenovo Thinkpad X1 Fold](https://www.lifewire.com/lenovo-thinkpad-x1-fold-review-5095689)
 * [Lenovo Tab 4](https://www.lifewire.com/lenovo-tab-4-review-4691612)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Tab M10 FHD Plus (2nd Gen)
@@ -293,8 +259,6 @@ Lifewire / Jeremy Laukkonen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -302,4 +266,22 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-behind-the-scenes-using-instagrams-virtual-backdrops/"><u>[New] In 2024, Behind-the-Scenes Using Instagram's Virtual Backdrops</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-insiders-look-at-top-earning-instagram-tactics/"><u>[Updated] In 2024, Insider's Look at Top Earning Instagram Tactics</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-office-design-evolution-trends-and-practices-for-maximum-output/"><u>[Updated] In 2024, Office Design Evolution Trends and Practices for Maximum Output</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-optimizing-team-calls-prepost-meeting-screen-customization/"><u>[Updated] In 2024, Optimizing Team Calls Pre/Post-Meeting Screen Customization</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/free-gif-maker-tools-for-seamless-loops/"><u>Free GIF Maker Tools for Seamless Loops</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-lg-um7300e-your-essential-guide-to-a-value-49-4k-smart-tv/"><u>In-Depth Look at the LG UM7300E: Your Essential Guide to a Value 49 4K Smart TV</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/iphone-showdown-a-head-to-head-comparison-of-iphone-15-plus-and-pro-max/"><u>IPhone Showdown: A Head-to-Head Comparison of iPhone 15 Plus and Pro Max</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/master-your-voyage-top-technological-aides/"><u>Master Your Voyage: Top Technological Aides</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/masterful-photography-budget-friendly-fz80-review/"><u>Masterful Photography, Budget-Friendly - FZ80 Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-mac-aesthetics-an-in-depth-review-of-freestyle2-blue/"><u>Mastering Mac Aesthetics: An In-Depth Review of Freestyle2 Blue</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximizing-linkedin-potential-through-a-premium-subscription/"><u>Maximizing LinkedIn Potential Through a Premium Subscription</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/michael-kors-access-gen-5e-mkgo-evaluation-where-luxury-meets-functionality/"><u>Michael Kors Access Gen 5E MKGO Evaluation - Where Luxury Meets Functionality</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/reative-summit-top-talent-junction-for-2024/"><u>The Creative Summit Top Talent Junction for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-easy-way-to-switch-from-dall-e-3-webp-images-to-accessible-jpgpng-versions/"><u>The Easy Way to Switch From DALL-E 3 WebP Images to Accessible JPG/PNG Versions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/worldwide-rich-list-top-earning-youtubers-for-2024/"><u>Worldwide Rich List Top Earning YouTubers for 2024</u></a></li>
+</ul></div>
 

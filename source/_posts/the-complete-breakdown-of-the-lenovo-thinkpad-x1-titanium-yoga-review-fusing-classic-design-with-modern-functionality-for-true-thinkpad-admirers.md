@@ -1,7 +1,7 @@
 ---
 title: "The Complete Breakdown of the Lenovo ThinkPad X1 Titanium Yoga Review: Fusing Classic Design with Modern Functionality for True ThinkPad Admirers"
-date: 2024-09-09T06:13:07.420Z
-updated: 2024-09-10T06:13:07.420Z
+date: 2024-11-22T17:11:28.307Z
+updated: 2024-11-24T16:15:41.540Z
 categories:
   - BestProducts
 description: "This Article Describes The Complete Breakdown of the Lenovo ThinkPad X1 Titanium Yoga Review: Fusing Classic Design with Modern Functionality for True ThinkPad Admirers"
@@ -13,28 +13,14 @@ thumbnail: https://thmb.techidaily.com/bbb97d5449382acc8b92ab96bfb70e5ca97a93f11
 
 4.8
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Kinesis Freestyle2 Blue
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/Hagf4IpRh30OapEN21WY2crMw1g=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_HeroSquare-99f80025b0254cbebe67ed22575a90c5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Emily Isaacs
 
  What We Like
@@ -87,6 +73,10 @@ Lifewire / Emily Isaacs
 
 [The Best Ergonomic Keyboards of 2024](https://www.lifewire.com/best-ergonomic-keyboards-4147386)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design and Features: Freestyle2 breaks the mold**
 
  For people who are tethered to their[computers](https://www.lifewire.com/computer-and-laptop-reviews-4102643) , ergonomic keyboards are a must. These keyboards tend to be large thanks to the frequently employed swoop design that opens up the keys to provide additional spacing, so fingers feel less cramped, and a wrist-friendly position that prevents[repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) while typing. These keyboards are typically space hogs, taking up large portions of any surface that they’re placed on, often forcing users to reach further for[mice](https://www.lifewire.com/best-wireless-mice-6666207) . This can lead to shoulder injuries in place of wrist injuries—a trade-off no one wants.
@@ -94,11 +84,9 @@ Lifewire / Emily Isaacs
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/C-YK_WPWu8Ujx1fwDLxvO6Epi-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_05-adcddc5fc05b415dbcd82396bc0ada77.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  The Kinesis Freestyle2 Blue for Mac breaks free of these norms by using a split, modular design that features two keyboard halves, one for each hand, connected via a 9 or 20-inch cable depending upon the chosen model. These pieces were designed with comfort in mind. They may be used separately or connected with a pivot tether at the top of the two halves. This allows you the opportunity to customize your setup and maximize your comfort, whether that’s by placing the halves closer together or further apart.
@@ -109,12 +97,6 @@ Lifewire / Emily Isaacs
 
  Clocking in at 2 pounds, it’s also lightweight which makes it easy to pack. Whether you’re commuting between the home and the office or you’re heading out of town for a vacation, it’s easy to break down and bring anywhere so long as there’s a flat surface to place it during use.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: For Apple products only**
 
  The Kinesis Freestyle2 Blue arrives with the two keyboard halves, the instructional pamphlet, and a six-foot USB charging cable. Designed for use with iPads,[iPhones](https://www.lifewire.com/iphone-and-ios-4781515) , and[Macs](https://www.lifewire.com/macs-4781332) , the setup process is quick and easy to complete. First, we flipped the switch on the right-hand side of the keyboard from the off position to the on position. Then, we flipped the keyboard over and pressed the connect button on the backside. We knew it was ready to begin pairing when the lights on the frontside began flashing blue.
@@ -125,12 +107,6 @@ Lifewire / Emily Isaacs
 
  From here, we followed the instructions in the provided instructional pamphlet and enabled Bluetooth on our iPad. After about a minute of scanning, the Kinesis KB800MB-BT keyboard appeared as an available device. We simply tapped to connect. From here, it prompted us to input a numeric code and press return. Once we’d done this, setup was complete.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Features: Efficient hotkeys once you get used to them**
 
  Better than its modular design are the easy-to-use hotkeys on the left-hand side of the keyboard. These make it simple to copy, paste, cut, go back or forward in a browser, or even switch between the keyboard’s connected devices smoothly and efficiently. They take a little getting used to but once you get the hang of it using them is a breeze.
@@ -138,6 +114,10 @@ Lifewire / Emily Isaacs
  One pet peeve we had with the keyboard design was the Caps lock key. Instead of having a light on the button itself that glows when the function is enabled, this light is placed alongside the Bluetooth connectivity lights on the right-hand side of the keyboard. While this isn’t the end of the world by any means, it’s less intuitive since you need to retrain yourself on where to look to see if it’s enabled. Additionally, you should be aware that leaving this button on or using it frequently can lead to faster battery drain.
 
  Its split design is comfortable, following the natural arc of your fingers and hands as they rest upon its keys.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Battery: Plenty of juice so you’re never in a bind**
 
@@ -152,11 +132,9 @@ Lifewire / Emily Isaacs
  Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Kinesis Freestyle2 Blue vs. Microsoft Sculpt Ergonomic Keyboard**
 
  Not all keyboards are created equal, and while the split, modular design offered by the Kinesis Freestyle2 Blue creates wonderful customization options, there’s something to be said for having a full keyboard. For Apple users willing to take a leap into Microsoft products, the Microsoft Sculpt Ergonomic Keyboard shines through as an excellent option.
@@ -175,12 +153,6 @@ Lifewire / Emily Isaacs
 
  The Kinesis Freestyle2 Blue for Mac is a compact, user-friendly ergonomic keyboard that takes comfort and customization to the next level for Apple users thanks to its split, modular design. Its extended battery life of up to 300 plus hours combined with its ability to connect to multiple iOS devices at a time is a game-changer, making it well worth the splurge.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Freestyle2 Blue
@@ -197,14 +169,11 @@ Lifewire / Emily Isaacs
 * Compatibility  OS X 10.4 and newer, iOS devices
 * Key Switch  Peak force: 44 grams; activation force: 35 grams; travel distance: 3.9 mm; switch type: rubber dome, membrane
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -213,4 +182,26 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-sj-cam-s6-unboxed-a-full-evaluation-in-detail/"><u>[Updated] 2024 Approved SJ-CAM S6 Unboxed A Full Evaluation in Detail</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-audio-capture-mastery-in-windows-10/"><u>[Updated] In 2024, Audio Capture Mastery in Windows 10</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-live-streaming-made-simple-mastering-ps4-captures-using-obs-for-2024/"><u>[Updated] Live Streaming Made Simple Mastering PS4 Captures Using OBS for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-top-30-windows-10-utilities-you-cant-ignore/"><u>[Updated] Top 30 Windows 10 Utilities You Can't Ignore</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-photo-keepers-companion-unlimited-free-options-and-elite-subscription-saviors/"><u>2024 Approved The Photo Keeper’s Companion Unlimited Free Options & Elite Subscription Saviors</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-unmatched-performance-in-depth-analysis-of-the-202n-macbook-air-with-apples-revolutionary-m1-chip/"><u>Experience Unmatched Performance: In-Depth Analysis of the 202N MacBook Air with Apple's Revolutionary M1 Chip</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-unmatched-speed-and-durability-owc-mercury-pro-hard-drive-analysis/"><u>Experience Unmatched Speed and Durability - OWC Mercury Pro Hard Drive Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-of-the-dbpower-600a-peak-with-18k-mah-a-reliable-battery-booster/"><u>Expert Review of the DBPOWER 600A Peak with 18K mAh: A Reliable Battery Booster</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/explore-the-full-potential-of-the-garmin-forerunner-945-gps-fitness-tracker-our-complete-guide/"><u>Explore the Full Potential of the Garmin Forerunner ⌚️945 GPS Fitness Tracker - Our Complete Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/explore-these-top-eagues-where-you-can-snag-the-finest-laptops-available/"><u>Explore These Top Ⅼeagues: Where You Can Snag the Finest Laptops Available</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-nintendos-latest-offering-is-the-switch-lite-worth-your-money/"><u>Exploring Nintendo's Latest Offering - Is the Switch Lite Worth Your Money?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-universe-with-vive-cosmos-top-contender-in-todays-virtual-reality-arena/"><u>Exploring the Universe with Vive Cosmos - Top Contender in Today's Virtual Reality Arena</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/forgotten-the-voicemail-password-of-oppo-a78-5g-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Oppo A78 5G? Try These Fixes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fossils-sport-series-the-perfect-blend-of-economy-and-excellence-revealed/"><u>Fossil's Sport Series - The Perfect Blend of Economy and Excellence Revealed!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-can-i-improve-my-laptops-central-processing-unit-cpu/"><u>How Can I Improve My Laptop's Central Processing Unit (CPU)?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-free-rotate-and-merge-videos-on-android/"><u>In 2024, How to Free Rotate and Merge Videos on Android</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-flipping-videos-like-a-pro-quick-easy-and-stress-free/"><u>New In 2024, Flipping Videos Like a Pro Quick, Easy, and Stress-Free</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-15-most-effective-snapchat-posts-of-the-year-for-2024/"><u>The 15 Most Effective Snapchat Posts of the Year for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/verizons-latest-update-on-the-evolution-and-performance-of-5g-networks/"><u>Verizon's Latest Update on the Evolution and Performance of 5G Networks</u></a></li>
+</ul></div>
 

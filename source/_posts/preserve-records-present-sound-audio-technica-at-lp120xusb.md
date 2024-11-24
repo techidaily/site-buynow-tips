@@ -1,7 +1,7 @@
 ---
 title: Preserve Records, Present Sound - Audio-Technica AT-LP120XUSB
-date: 2024-09-09T06:11:53.798Z
-updated: 2024-09-10T06:11:53.798Z
+date: 2024-11-20T19:30:09.381Z
+updated: 2024-11-24T18:16:20.287Z
 categories:
   - BestProducts
 description: This Article Describes Preserve Records, Present Sound - Audio-Technica AT-LP120XUSB
@@ -14,14 +14,16 @@ thumbnail: https://www.lifewire.com/thmb/FTmH2b0r8KTfE_lHJWQDEqEhpik=/400x300/fi
 2.8
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/87Y0vp91-Opdxctf3M6BGQ6r1d8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -45,22 +47,10 @@ Lifewire / Emily Ramirez
 
 2.8
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Emily Ramirez
 
 [View On Amazon](https://www.amazon.com/dp/B009ISU33E?tag=lifewire-onsite-prod-20&ascsubtag=4769837%7Cnf4d47b24328e45aa9d01315a6a6b3e1211%7CB009ISU33E)
@@ -85,17 +75,15 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/U_vmwZDe5HbbungQ5L2hzf2LVto=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-4-b0d1cca56ec04a61b83e20d1cecf2aea.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Emily Ramirez
 
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Hardware: Some odd decisions**
 
@@ -103,14 +91,12 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process/Installation: Easy install, irritating setup**
 
  To install the hardware, we popped open our mid-size PC tower and inserted the sound card and daughter board into two available PCIe slots. Creative Labs had the foresight to build the main card with a PCIe 1x slots, giving the user flexibility in where they connect their cards to the motherboard. Once the cards were secured, we plugged the headphones and microphone into the corresponding jacks.
@@ -123,18 +109,6 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Audio: Excellent sound**
 
  Once the EQ effects are turned off, the Sound Blaster ZxR provides beautiful sound. While it wasn’t quite as clean or crisp as an enthusiast audiophile amplifier, such as the OPPO HA-1, it was solid for a system that costs a quarter of the HA-1’s price. On the HD-800s, the bass came across slightly muddy, but the ZxR provides solid quality for consumer-grade headphones like the Sennheiser GSP300 or the Sony MDR-7506\. As our our[headphone buying guide](https://www.lifewire.com/headphones-buying-guide-4172763) suggests, most headphones under $250 will not be sensitive enough to meaningfully distinguish between the ZxR and the HA-1.
@@ -144,19 +118,15 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Software: Lots of options with mixed utility**
 
  For the tinkerers out there, Sound Blaster provides a myriad of audio adjustments through their Z-Series software package. Here, you can EQ any frequency between 20 and 20,000 Hz or activate “Crystallization,” “Scout Mode,” and “Theater Mode.” Crystallization adds punch to the audio’s treble, making voices stand out against the background. Theater Mode is similar to Crystallization, but it tries to_only_ boost voices instead of the entire treble range. We found it great for watching videos. Meanwhile, Scout Mode is squarely aimed at gamers. It theoretically makes enemy noises like footsteps louder.
@@ -189,12 +159,6 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
@@ -223,14 +187,11 @@ Lifewire / Emily Ramirez
 * Software  Sound Blaster Z-Series Software
 * What’s Included  Sound Blaster ZxR sound card, Sound Blaster DBpro card, Sound Blaster Audio Control Module, 1Optical Cable, 1x Stereo(3.5mm)-to-RCA cable, 1x DBpro cable, Quick Start Leaflet, Installation CD containing: Drivers for Windows 7 and Windows 8, Creative Software Suite, User's Guide
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -239,4 +200,26 @@ Lifewire / Emily Ramirez
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-exploring-screen-capture-with-apowersoft-no-cost-involved-in-2024/"><u>[Updated] Exploring Screen Capture with Apowersoft, No Cost Involved, In 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-swift-screen-tape-with-sound-included/"><u>[Updated] In 2024, Swift Screen Tape with Sound Included</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-ryan-kaji-youthful-wealth-through-internet-popularity/"><u>2024 Approved Ryan Kaji Youthful Wealth Through Internet Popularity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-ultimate-guide-to-choosing-a-superior-usb-wi-fi-card/"><u>2024'S Ultimate Guide to Choosing a Superior USB Wi-Fi Card</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-comparison-guide-how-ipad-and-ipad-air-stack-up-against-each-other/"><u>A Comparison Guide: How iPad and iPad Air Stack Up Against Each Other</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-yet-ambiguous-a-comprehensive-review-of-the-microsoft-surface-gos-dual-identity-crisis/"><u>Affordable Yet Ambiguous: A Comprehensive Review of the Microsoft Surface Go's Dual Identity Crisis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/bust-your-boredom-the-best-game-picks-you-should-try-now/"><u>Bust Your Boredom: The Best Game Picks You Should Try Now</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/canon-powershot-sx530-review/"><u>Canon PowerShot SX530 Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-flagships-to-value-picks-in-depth-look-at-the-samsung-galaxy-a71-5g/"><u>Comparing Flagships to Value Picks: In-Depth Look at the Samsung Galaxy A71 5G</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/1721266760797-cookiebot-enhanced-boost-your-sites-engagement/"><u>Cookiebot-Enhanced: Boost Your Site's Engagement</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723055455139-fintie-laptop-case-for-macbook-airpro-13-balancing-durability-with-affordable-pricing-reviewed/"><u>Fintie Laptop Case for MacBook Air/Pro 13 - Balancing Durability with Affordable Pricing Reviewed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-get-hooked-easy-ways-to-loop-any-youtube-video/"><u>In 2024, Get Hooked Easy Ways to Loop Any YouTube Video</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-xiaomi-redmi-note-12-proplus-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Xiaomi Redmi Note 12 Pro+ 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-pioneers-panoramas-open-for-all/"><u>In 2024, Pioneer's Panoramas Open for All</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/navigating-success-with-ai-insights-from-the-abbyy-blog/"><u>Navigating Success with AI: Insights From the ABBYY Blog</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/seamless-abyzy-and-alterx-integration-strategies/"><u>Seamless ABYZY and AlterX Integration Strategies</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-quality-of-samsungs-55-inch-curved-4k-smart-tv-the-ru7300-series/"><u>Unveiling the Quality of Samsung's 55-Inch Curved 4K Smart TV: The RU7300 Series</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-sturdiness-and-value-of-the-omoton-t1-tablet-support-accessory/"><u>Unveiling the Sturdiness and Value of the Omoton T1 Tablet Support Accessory</u></a></li>
+<li><a href="https://program-issues.techidaily.com/utorrent-not-working-follow-our-top-7-tips-to-get-it-running-again/"><u>UTorrent Not Working? Follow Our Top 7 Tips to Get It Running Again</u></a></li>
+</ul></div>
 

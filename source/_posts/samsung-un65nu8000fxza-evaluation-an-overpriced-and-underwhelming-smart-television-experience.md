@@ -1,7 +1,7 @@
 ---
 title: Samsung UN65NU8000FXZA Evaluation - An Overpriced and Underwhelming Smart Television Experience
-date: 2024-09-11T09:24:25.780Z
-updated: 2024-09-15T06:37:16.430Z
+date: 2024-11-18T17:03:05.934Z
+updated: 2024-11-24T16:39:55.829Z
 categories:
   - BestProducts
 description: This Article Describes Samsung UN65NU8000FXZA Evaluation - An Overpriced and Underwhelming Smart Television Experience
@@ -39,9 +39,17 @@ Lifewire / Andy Zahn
 
 2.9
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Samsung UN65NU8000FXZA
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/J81HLCswW9vG3SGkOY0nkv2_soM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-1-97ff5fdad950453785f7a3f5491bf8fd.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -69,6 +77,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Big and tough**
 
  The Samsung NU8000 is an elegant television with an attractive rear exterior, thin profile, and discretely sized bezels. As a 65” display you can expect it to dominate all but the most cavernous living rooms, but thanks to that slim profile and its slender bezels it occupies the minimum amount of space possible for such a large screen.
@@ -85,6 +97,10 @@ Lifewire / Andy Zahn
 
  We did encounter one troublesome bug where the remote partially de-synced from the display so that only the power button functioned properly. This is obviously a known issue, as on-screen instructions immediately appeared to reset the remote and re-establish the connection, and we found these instructions repeated inside the battery compartment of the remote. We also missed having dedicated buttons for popular streaming services such as Netflix and Hulu.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Some assembly required**
 
  The sturdiness of the NU8000’s stand comes at a small price in terms of ease of setup. The back panel of the pillar must be popped off to screw the stand together. The assembled base is then attached to the screen via a plate that slides into place and is then secured by more screws. The caveat is that unless you have a large table available for this process then it's very difficult and requires the cooperation of at least two other people. Once this is complete, insert the batteries into the remote, attach the power cord and any other wired connections, and you’re ready to go.
@@ -92,13 +108,6 @@ Lifewire / Andy Zahn
  The software side of the setup process is simple and straightforward. Since we own a[Samsung phone](https://www.lifewire.com/best-smartphones-4043781) it was made particularly easy by means of the Smartthings app which automatically detected the TV and relayed sign-in information. It took us under ten minutes total to power on the UN8000 and start watching our favorite shows. Some fine-tuning was necessary to get the best-looking image but the settings are easy to access and simple to manipulate.
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/bOGvBL3-atPnw9kBu9ugoXGE9ag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-3-44ef4614305946739623813ea1476c2b.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -120,13 +129,6 @@ Lifewire / Andy Zahn
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/0imcVI8dzYw11TAOKkt8EnXJE5k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-2-0c325c2d3f1e448d9d0b10f24152a097.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
 
 ## **Audio Quality: Surprisingly good**
@@ -134,6 +136,10 @@ Lifewire / Andy Zahn
  The speakers in the NU8000 are not bad at all for built-in TV[speakers](https://www.lifewire.com/best-surround-sound-speakers-4059402) . They provide decent overall sound quality that's just a little flat sounding. This flatness can be easily fixed in software to provide a much punchier and more satisfying listening experience. It won’t replace a good surround sound system, but they're more than adequate. This screen would work well in a minimalistic space-saving setup.
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/AXYnUtoRwLv0QLo0Xm0_W28X-zg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-5-531f7de77d9746ba993c9966f10920be.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -148,13 +154,6 @@ Lifewire / Andy Zahn
 ## **Price: Expensive at MSRP**
 
  With an MSRP of $999 the NU8000 is certainly no bargain, especially considering that superior displays are available for the same cost. However, as this is an older TV it may be possible to find steep discounts that make up for its deficiencies.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: NU8000 vs RU8000**
 
@@ -171,16 +170,7 @@ Lifewire / Andy Zahn
  The Samsung UN65NU8000FXZ is capable, provides high resolution, and has excellent, flexible software with a good selection of apps. It's also exceptionally thin with a screen that's almost bezel-less, but unless the extremely sturdy stand is the most important feature to you, then RU8000 is just a better display at the exact same MSRP.
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -209,5 +199,19 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/accelerating-hevch265-video-compression-tips-to-boost-speed/"><u>Accelerating HEVC/H.265 Video Compression - Tips to Boost Speed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fast-and-foldable-a-closer-look-at-the-gotrax-gxl-v2-for-city-commuters-e-scooter-needs/"><u>Fast & Foldable: A Closer Look at the Gotrax GXL V2 for City Commuters' E-Scooter Needs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fellowes-microban-wired-keyboard-a-budget-buyers-dream-detailed-product-analysis-and-comparison/"><u>Fellowes Microban Wired Keyboard - A Budget Buyer's Dream: Detailed Product Analysis and Comparison</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fitbit-charge-4-review-style-and-substance/"><u>Fitbit Charge 4 Review: Style and Substance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/gaming-supremacy-with-xbox-one-x-a-detailed-console-assessment/"><u>Gaming Supremacy with Xbox One X: A Detailed Console Assessment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/garmin-venu-evaluation-the-ultimate-device-for-continuous-fitness-monitoring-and-health-tracking/"><u>Garmin Venu Evaluation: The Ultimate Device for Continuous Fitness Monitoring and Health Tracking</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-poco-c51-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Poco C51 PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/iphone-se-202n-user-guide-a-reasonably-priced-tech-marvel-reviewed/"><u>IPhone SE (202N) User Guide - A Reasonably Priced Tech Marvel Reviewed</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/leveraging-communication-to-enhance-interview-success-for-2024/"><u>Leveraging Communication to Enhance Interview Success for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>Life360 Learn How Everything Works On Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1722988270394-lost-ark-stability-improvements-no-more-pc-game-crashes/"><u>Lost Ark Stability Improvements - No More PC Game Crashes!</u></a></li>
+<li><a href="https://network-issues.techidaily.com/troubleshooting-c1900101-error-for-win10/"><u>Troubleshooting C1900101 Error for Win10</u></a></li>
+</ul></div>
 

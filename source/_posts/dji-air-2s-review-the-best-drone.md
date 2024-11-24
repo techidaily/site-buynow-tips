@@ -1,7 +1,7 @@
 ---
 title: "DJI Air 2S Review: The Best Drone"
-date: 2024-09-09T06:17:57.220Z
-updated: 2024-09-10T06:17:57.220Z
+date: 2024-11-22T17:41:59.731Z
+updated: 2024-11-24T16:27:13.020Z
 categories:
   - BestProducts
 description: "This Article Describes DJI Air 2S Review: The Best Drone"
@@ -9,12 +9,6 @@ excerpt: "This Article Describes DJI Air 2S Review: The Best Drone"
 thumbnail: https://thmb.techidaily.com/32db33815d8e5022081f3af40e2b0779f4b24f68e91f53bf9636e1770e48896a.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Is the New Microsoft Surface Studio 2 a Smart Investment? Review Inside
 
 4.2
@@ -23,12 +17,6 @@ thumbnail: https://thmb.techidaily.com/32db33815d8e5022081f3af40e2b0779f4b24f68e
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/w3_fclKJrwWKMdjNp4uFWrKqJLs=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4045927-1-64302c6de74c465d96dcc32ed60ef388.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Gannon Burgett
 
  What We Like
@@ -50,22 +38,10 @@ Lifewire / Gannon Burgett
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Microsoft Surface Studio 2
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/NDm3E4PyU6ziij20SUPJFRRc6pY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4045927-1-64302c6de74c465d96dcc32ed60ef388.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Gannon Burgett
 
 [View On Amazon $2,744](https://www.amazon.com/dp/B07HZ88879/?tag=lifewire-onsite-prod-20&ascsubtag=4689102%7Cn3abb18ca771f4923adac9b68daf5476608%7CB07HZ88879) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6302206.p) [View On B&H Photo Video $4,799](https://www.bhphotovideo.com/c/product/1435925-REG/microsoft%5Flam%5F00001%5F28%5Fsurface%5Fstudio%5F2.html)
@@ -92,12 +68,6 @@ Lifewire / Gannon Burgett
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/qqvEiRPOz2etUltaB7qksjgtD6M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-5-62b14c26664249e3aaad156acf787b34.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Gannon Burgett
 
 ## **Design: A modern marvel of engineering**
@@ -114,6 +84,10 @@ Lifewire / Gannon Burgett
 
  Moving onto the included accessories, the Surface Keyboard, Surface Mouse, and Surface Pen all felt well-built and thoughtfully designed. They didn’t blow us away, but they feel substantial and should easily last the life of the computer without issue. We would’ve liked to see a Surface Dial tossed in there as well, considering how much the Surface Studio 2 costs and artists and graphic designers being the clear target market.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Quick and simple**
 
  Setting up the Microsoft Surface Studio 2 was rather straightforward. The box it comes in is securely packaged, and designed to handle a bit of abuse on the way to your house. After unpacking, all we had to do was plug in the computer and remove the plastic battery tabs on the Surface Keyboard and Surface Mouse. The Surface Pen should work just fine out of the box.
@@ -124,12 +98,6 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Display: A treat for your eyes**
 
  The Surface Studio boasts a 28-inch 4500-by-3000 PixelSense display in a 3:2 aspect ratio. It’s a good size and ratio for drawing and graphic design, while the 192 pixels per inch (ppi) makes it crisper than 2K panels. It’s not as pixel-dense as the smaller screen on the 21.5-inch 4K iMac, but the resolution is actually about the same. And unlike the iMac, it’s a 10-point multitouch touchscreen, essentially turning the entire panel into a giant tablet.
@@ -142,13 +110,11 @@ Lifewire / Gannon Burgett
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/WBpMM3f4iH20J7-9H_NzD1zeBl4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-8-22d53ea12b7c48988b4840af9fb744c4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Gannon Burgett
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Leaving much to be desired**
 
@@ -166,6 +132,10 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Network: Quick wireless connection with hardwired backup**
 
  The Microsoft Surface Studio 2 features both hardwired and wireless networking options. On the rear of the computer is a Gigabit Ethernet (RJ-45) port for the hardwired connection while an internal Wi-Fi antenna supports 802.11ac connectivity with a/b/g/n compatibility as well.
@@ -174,23 +144,19 @@ Lifewire / Gannon Burgett
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/rkvuGygIghO9k9Je4rikzH5HvaE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-4-1b719f36dcb3448c9da40160faa18954-a32c44e2f9ca4ed3b4d670458dc6d5f0.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Camera: Decent and usable**
 
  The only camera on the Surface Studio 2 is a 5-megapixel front-facing camera. In addition to capturing stills and Windows Hello facial authentication, it also records 1080p video with dual microphones for audio. The camera proved impressive for an integrated camera and is more than good enough to use for conference calls and even streaming if you have a decent light source on hand.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Still not a touchscreen or Pen-driven experience**
 
@@ -206,23 +172,19 @@ Lifewire / Gannon Burgett
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/InfbJKGzeNqjfIRVMxjjUixt0sY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-3-8fd4fb8053044a528f896d4dc2872611.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Gannon Burgett
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: One word—ridiculous**
 
  At $3,499 MSRP, the Surface Studio 2 is incredibly expensive for the specs it offers. It’s twice as costly as the 21.5-inch 4K iMac ($1,299) and the base model of the 27-inch iMac ($1,799). The Surface Studio 2 is clearly trying to compete with the $4,999 iMac Pro, but with its older hardware and sometimes clunky software, it’s simply not as good of an experience for professionals and creatives, most of whom can get by with the more affordable iMac models anyway.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: More affordable rivals, but lacking effective touchscreens**
 
@@ -268,8 +230,6 @@ Lifewire / Gannon Burgett
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -277,4 +237,20 @@ Lifewire / Gannon Burgett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/new-transform-slow-motion-to-quick-with-android-aids/"><u>[New] Transform Slow Motion to Quick with Android Aids</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-honor-x50-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Honor X50 to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-itel-a05s-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Itel A05s Phones</u></a></li>
+<li><a href="https://review-topics.techidaily.com/iphone-15-data-recovery-software-to-recover-lost-ios-data-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>iPhone 15® Data Recovery Software to Recover Lost iOS® Data | Stellar</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/master-chatgpt-dialogue-proven-tactics-to-elevate-responses/"><u>Master ChatGPT Dialogue: Proven Tactics to Elevate Responses</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/maximize-savings-with-an-affordable-laptop-add-on-unveiling-how-it-saves-big-bucks-backed-research/"><u>Maximize Savings with an Affordable Laptop Add-On: Unveiling How It Saves Big Bucks, Backed Research</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-microsoft-surface-pro-7-solid-enhancements-amidst-familiar-design/"><u>Review of Microsoft Surface Pro 7: Solid Enhancements Amidst Familiar Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/simple-effective-bouncie-navigation-assistance-an-affordable-choice-for-tracking-your-drive/"><u>Simple, Effective Bouncie Navigation Assistance - An Affordable Choice for Tracking Your Drive</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/smart-home-essentials-in-depth-look-at-iseebells-entry-level-video-doorbell/"><u>Smart Home Essentials: In-Depth Look at ISeeBell's Entry-Level Video Doorbell</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/stylish-and-swift-a-comprehensive-review-of-the-swagtron-swagger-electric-scooter/"><u>Stylish and Swift: A Comprehensive Review of the Swagtron Swagger Electric Scooter</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-best-iphone-accessories-you-should-buy/"><u>The Best iPhone Accessories You Should Buy</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-motorola-defy-2-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Motorola Defy 2 to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/windows-compatible-driver-downloads-and-updates-for-your-hp-officejet-pro-8620-printer/"><u>Windows Compatible Driver Downloads and Updates for Your HP OfficeJet Pro #8620 Printer</u></a></li>
+</ul></div>
 

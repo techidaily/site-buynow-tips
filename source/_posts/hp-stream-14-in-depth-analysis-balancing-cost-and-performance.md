@@ -1,7 +1,7 @@
 ---
 title: "HP Stream 14 In-Depth Analysis: Balancing Cost and Performance"
-date: 2024-09-09T06:18:10.570Z
-updated: 2024-09-10T06:18:10.570Z
+date: 2024-11-21T19:49:39.285Z
+updated: 2024-11-24T18:12:53.116Z
 categories:
   - BestProducts
 description: "This Article Describes HP Stream 14 In-Depth Analysis: Balancing Cost and Performance"
@@ -13,16 +13,18 @@ thumbnail: https://thmb.techidaily.com/7198dc888f65174fbf2046c2c24c70817b0458c73
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/AyUAqIhKcHESYKlEswC1pUtS1Po=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Jonno Hill
 
  What We Like
@@ -43,22 +45,14 @@ Lifewire / Jonno Hill
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Jonno Hill
 
 [View On Amazon](https://www.amazon.com/Mohu-Television-Paper-thin-Performance-MH-110598/dp/B00HSMK580/?tag=lifewire-onsite-prod-20&ascsubtag=4843108%7Cnc1d14f8f39df4c2dac4b8d8ca33f9ac217%7CB00HSMK580) [View On Walmart $48](https://www.walmart.com/ip/Mohu-Leaf-30-Flat-30-Mile-Indoor-HDTV-Antenna/36126033) [View On Home Depot $41](https://www.homedepot.com/p/Mohu-Leaf-30-HDTV-Indoor-Antenna-MH-110583/205146429?slfpid=3)
@@ -82,6 +76,10 @@ Lifewire / Jonno Hill
 
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Basic but effective**
 
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
@@ -98,40 +96,16 @@ Lifewire / Jonno Hill
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Range: Fairly limited**
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Excellent for the performance**
 
  The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
 
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
 
  Mohu also makes the[Mohu Blade](https://www.lifewire.com/mohu-blade-tv-antenna-review-4843106) , a powered antenna with a slightly more unique design for a minor premium of $40\. This antenna managed to reliably acquire an average of 69 channels in my tests, a big leap from the performance of the Mohu Leaf 30 TV Antenna. That having been said, the Blade does require a power source, and installation is slightly more cumbersome than that of the Leaf. If I wasn’t having any trouble getting the channels I watch with the Leaf, I probably wouldn’t upgrade to the Blade personally.
@@ -140,6 +114,10 @@ Lifewire / Jonno Hill
 
 **No fuss, good value.**
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -153,14 +131,11 @@ Lifewire / Jonno Hill
 * Range  30 miles
 * Warranty  One year
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -169,4 +144,18 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-android-lightroom-a-complete-and-detailed-review/"><u>[New] 2024 Approved Android Lightroom A Complete and Detailed Review</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-host-smart-and-cheap-your-guide-to-youtube-seminars-for-2024/"><u>[Updated] Host Smart and Cheap Your Guide to Youtube Seminars for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-philips-hf3505-sunrise-alarm-your-essential-timepiece/"><u>Comprehensive Evaluation of Philips HF3505 Sunrise Alarm - Your Essential Timepiece</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/conquering-new-heights-with-dji-robomasters-s1-comprehensive-examination-of-the-battle-and-programming-drone/"><u>Conquering New Heights with DJI Robomasters S1: Comprehensive Examination of the Battle and Programming Drone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decoding-the-value-of-google-pixelbook-go-superior-chromebook-experience-with-a-hefty-price-point/"><u>Decoding the Value of Google Pixelbook Go: Superior Chromebook Experience with a Hefty Price Point</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/delving-into-the-duality-of-w15a-features/"><u>Delving Into the Duality of W15A Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/detailed-analysis-of-the-powerful-and-convenient-romer-chargeable-outdoor-searchlight/"><u>Detailed Analysis of the Powerful and Convenient Romer Chargeable Outdoor Searchlight</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-htc-u23-pro-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your HTC U23 Pro Is Unlocked</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/interpretation-at-scale-the-essence-of-chatgpts-code-processing/"><u>Interpretation at Scale: The Essence of ChatGPT's Code Processing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-legends-esteemed-ed-streams-online/"><u>Learning Legends Esteemed Ed Streams Online</u></a></li>
+<li><a href="https://win-unique.techidaily.com/react-native-development-revolutionized-download-your-complimentary-template-from-creative-tim-now/"><u>React Native Development Revolutionized: Download Your Complimentary Template From Creative Tim Now!</u></a></li>
+</ul></div>
 

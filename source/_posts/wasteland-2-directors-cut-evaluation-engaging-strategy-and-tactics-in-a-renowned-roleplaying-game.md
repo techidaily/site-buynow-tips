@@ -1,7 +1,7 @@
 ---
 title: "Wasteland 2 Director's Cut Evaluation: Engaging Strategy and Tactics in a Renowned Roleplaying Game"
-date: 2024-09-09T06:18:41.756Z
-updated: 2024-09-10T06:18:41.756Z
+date: 2024-11-20T19:03:34.639Z
+updated: 2024-11-24T19:33:17.256Z
 categories:
   - BestProducts
 description: "This Article Describes Wasteland 2 Director's Cut Evaluation: Engaging Strategy and Tactics in a Renowned Roleplaying Game"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/0f32298889456fdaca83b5ae25e894332407ac328
 ## Assassin's Creed Valhalla (PC)
 
 ![AC Vallhalla](https://www.lifewire.com/thmb/uNOEoXtNzm8yuWudHDVzDNDutY8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Assassins-Creed-Valhalla-1-b7cabc5b5656439bbb47518048f57aa5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -37,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/0f32298889456fdaca83b5ae25e894332407ac328
 [View On Ubi.com](https://store.ubi.com/us/assassins-creed-valhalla/5e849c6c5cdf9a21c0b4e731.html)
 
 4.8
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Assassin's Creed Valhalla (PC)
 
@@ -67,17 +75,9 @@ thumbnail: https://thmb.techidaily.com/0f32298889456fdaca83b5ae25e894332407ac328
  I played the game on PC for several days, but it’s also available on all other major platforms including the upcoming[Xbox Series X](https://www.lifewire.com/price-release-date-specs-xbox-series-x-5077092) , Xbox One, upcoming[PlayStation 5](https://www.lifewire.com/playstation-5-4778089) , and PlayStation 4\.
 
 <!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Story: A lot going on, and none of it to be spoiled**
 
  There’s a lot to say here, but not much that can be said without spoilers. Given how engaging I found the plot, it would be a shame to spoil it in any way. Suffice it to say that, though it begins as a typical revenge story, it soon becomes more complex and interesting. You play as Eivor, a male or female warrior who raids England during the reign of Alfred the Great.
@@ -97,19 +97,11 @@ thumbnail: https://thmb.techidaily.com/0f32298889456fdaca83b5ae25e894332407ac328
 ![AC sneak](https://www.lifewire.com/thmb/Vk4XvoE4lJwcjde1C_tJUVBc0Ac=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-9-a5e8ef2a5bef455d8cbaa9e749167f53.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Gameplay: Easy to pick up, challenging to master**
 
  Valhalla’s gameplay will be familiar to fans of the Assassin's Creed franchise, particularly the more recent entries in the series. As usual, there are tweaks and innovations, but it was easy enough for me to pick up, with my most recent experience being with AC Unity. Players who’ve played Origins and Odyssey will find much to be familiar. The fluid movement and iconic parkour makes navigating around the expansive open world fun and engaging, though novices may accidentally fling themselves off a cliff or two by accident as they learn the ropes.
@@ -127,11 +119,9 @@ thumbnail: https://thmb.techidaily.com/0f32298889456fdaca83b5ae25e894332407ac328
 ![AC Valhalla 3](https://www.lifewire.com/thmb/giaP-JV9QK6uFcdU_di4iWkvszw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-5-56a01de51a2a4540ae8650bece502873.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
  Combat is fast, brutal, and varied with deep customization and different potential approaches. There are many ways to approach each situation, and none of them are wrong. You can sneak in and pick the enemy off one by one, dumping their carcasses in bushes so as not to tip off their friends, or you can nail them from a distance with arrows. Alternatively, you can stride in, axes twirling, and cut a bloody swath through your foes.
@@ -146,12 +136,6 @@ thumbnail: https://thmb.techidaily.com/0f32298889456fdaca83b5ae25e894332407ac328
 
 ![AC ship](https://www.lifewire.com/thmb/n9S5L4JClTiqP1vYa_7cTGw6o0c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-7-d89d4a9941b8488ea6ef1aeba6486895.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andy Zahn
 
 ## **Difficulty and Content Settings: Lots to customize**
@@ -166,13 +150,11 @@ thumbnail: https://thmb.techidaily.com/0f32298889456fdaca83b5ae25e894332407ac328
 
 ![AC tattoos](https://www.lifewire.com/thmb/trRirIDsjFej03o-_HDCFsnnrzs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-6-5449cde060b441a499a5189fda9a7a0a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Customization: Lots of stuff to tweak**
 
@@ -180,12 +162,6 @@ thumbnail: https://thmb.techidaily.com/0f32298889456fdaca83b5ae25e894332407ac328
 
  I was particularly struck by the amber rays of the setting sun that slanted through the rigging of my longboat as I returned from a mountain climbing excursion.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Graphics: Epic good looks**
 
  Valhalla is an absolutely gorgeous game. Everything from the detailed character models to the vibrant open world is beautiful to look upon. Changing weather alters the mood of landscapes, and can create breathtaking moments. I was particularly struck by the amber rays of the setting sun that slanted through the rigging of my longboat as I returned from a mountain climbing excursion.
@@ -195,19 +171,11 @@ thumbnail: https://thmb.techidaily.com/0f32298889456fdaca83b5ae25e894332407ac328
 ![AC Mountain](https://www.lifewire.com/thmb/YazM4IIiw6qfR_cd-AfR8Cek9pg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-10-b813058de14c4b92978d22f84715ab98.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process and Performance: A rough start**
 
  Assassin’s Creed: Valhalla is typical of modern AAA titles in that it requires a big download and a considerable amount of storage space to house on your PC or console. With the day one update to consider, you’re looking at around 50GB.
@@ -224,26 +192,18 @@ thumbnail: https://thmb.techidaily.com/0f32298889456fdaca83b5ae25e894332407ac328
 
  Of course, if you’re playing on[console](https://www.lifewire.com/best-gaming-consoles-4154610) you don’t have to worry about performance issues since the game is better optimized. It’s currently available for Xbox One and PlayStation 4, and will be available for the Xbox Series X and PlayStation 5 at launch. You can also get it on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Typical AAA**
 
  The base game will set you back the typical $60, while the gold edition bundles in the season pass and costs a full $100\. That will include the planned expansions which will add Ireland and France to the map. Expensive though $100 is, it does promise a potentially huge amount of content. The game also has microtransactions, which is a bit of a bummer, though these weren’t integrated into the game at the time of writing.
 
 ![AC horse](https://www.lifewire.com/thmb/teY5MG-6xAT5sxNurIFy_iYPPvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-2-58ab82ef1f624e01b1c1c6dab8bca06b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Assassin’s Creed: Valhalla vs. Watch Dogs: Legion**
 
  It’s interesting that Ubisoft decided to launch two third-person action games set in England within a span of a few weeks. Where Valhalla is set in the Middle Ages,[Watch Dogs: Legion](https://www.lifewire.com/watch-dogs-legion-review-a-new-setting-for-the-series-5085469) is set in a near-future sci-fi dystopia, though in both games you are battling against tyrannical rulers in England. Choose Watch Dogs if you want sci-fi focused on hackers and non-violent solutions, and Valhalla if you love bloody medieval fighting and exploration.
@@ -262,14 +222,11 @@ thumbnail: https://thmb.techidaily.com/0f32298889456fdaca83b5ae25e894332407ac328
 * Platforms  PC, Xbox Series X, Xbox One, PlayStation 5, PlayStation 4, Stadia
 * Rating  M
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -278,4 +235,23 @@ thumbnail: https://thmb.techidaily.com/0f32298889456fdaca83b5ae25e894332407ac328
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-effortless-video-capture-using-screencastify-app/"><u>[New] Effortless Video Capture Using Screencastify App</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-recipe-for-success-video-styling-in-gastronomy/"><u>2024 Approved Recipe for Success Video Styling in Gastronomy</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-the-loom-chronicles-crafting-visual-stories/"><u>2024 Approved The Loom Chronicles Crafting Visual Stories</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/breakthrough-earbuds-best-of-the-year-2024/"><u>Breakthrough Earbuds - Best of the Year 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparative-analysis-of-tablet-computers-based-on-processor-quality/"><u>Comparative Analysis of Tablet Computers Based on Processor Quality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-the-sumind-bt70b-fm-bluetooth-receiver-your-drivers-tech-ally/"><u>Comprehensive Guide to the Sumind BT70B FM Bluetooth Receiver - Your Driver's Tech Ally</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-netatmo-weather-station-analysis-ideal-smart-weather-device-for-mobile-enthusiasts/"><u>Comprehensive Netatmo Weather Station Analysis: Ideal Smart Weather Device for Mobile Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-how-the-netgear-nighthawk-rax80-revolutionizes-home-networking-with-wi-fi-6-capabilities/"><u>Comprehensive Review: How the Netgear Nighthawk RAX80 Revolutionizes Home Networking with Wi-Fi 6 Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cutting-edge-combination-a-closer-look-at-netgears-innovative-cable-modem-and-router-package/"><u>Cutting-Edge Combination: A Closer Look at Netgear's Innovative Cable Modem and Router Package</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/d-link-powerline-2000-reviewed-effortless-configuration-and-high-speed-connectivity-unveiled/"><u>D-Link Powerline 2000 Reviewed: Effortless Configuration & High-Speed Connectivity Unveiled</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/dropped-to-a-bargain-the-elite-five-star-fractal-design-north-pc-chassis-for-only-109/"><u>Dropped to a Bargain - The Elite Five-Star Fractal Design North PC Chassis for Only $109</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-infinix-hot-40i-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Infinix Hot 40i</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Oppo F23 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-ultimate-guide-to-adobe-premiere-and-youtube-uploads/"><u>In 2024, The Ultimate Guide to Adobe Premiere and YouTube Uploads</u></a></li>
+<li><a href="https://fox-within.techidaily.com/in-depth-insight-into-atlas-os-for-windows-10-users-a-complete-resource/"><u>In-Depth Insight Into Atlas OS for Windows 10 Users - A Complete Resource</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/reviving-your-alexa-device-effective-fixes-for-silent-assistant-troubles/"><u>Reviving Your Alexa Device: Effective Fixes for Silent Assistant Troubles</u></a></li>
+</ul></div>
 

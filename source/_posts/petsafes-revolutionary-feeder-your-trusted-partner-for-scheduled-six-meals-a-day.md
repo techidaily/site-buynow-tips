@@ -1,7 +1,7 @@
 ---
 title: PetSafe’s Revolutionary Feeder - Your Trusted Partner for Scheduled Six Meals a Day
-date: 2024-09-09T06:15:03.368Z
-updated: 2024-09-10T06:15:03.368Z
+date: 2024-11-21T18:21:03.094Z
+updated: 2024-11-24T19:11:58.316Z
 categories:
   - BestProducts
 description: This Article Describes PetSafe’s Revolutionary Feeder - Your Trusted Partner for Scheduled Six Meals a Day
@@ -9,12 +9,6 @@ excerpt: This Article Describes PetSafe’s Revolutionary Feeder - Your Trusted 
 thumbnail: https://www.lifewire.com/thmb/V5zL94Kk06Ji53xQeO016rwdqmE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4156394-1-6ea3323934a445ec91499f06d7c7cada.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Radar Detector Deals - 'S55 Reviewed on EscortPassport', Affordable Safety Made Possible for Everyone
 
 3.8
@@ -43,22 +37,14 @@ Lifewire / Todd Braylor
 
 3.8
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Todd Braylor
 
 [View On Amazon $280](https://www.amazon.com/dp/B019HF60EI/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7CB019HF60EI) [View On Walmart $140](https://www.walmart.com/ip/Escort-Passport-S55-High-Performance-Pro-Radar-and-Laser-Detector-w-DSP/49140972)
@@ -81,11 +67,9 @@ Lifewire / Todd Braylor
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -96,23 +80,25 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Easy installation**
 
  The S55 is straightforward and easy to install. Simply stick the windshield mount in place and plug the SmartCord lighter adapter into your car's DC cigarette lighter input. Plugging the modular jack into the S55 will automatically power on the radar detector and you can quickly customize settings for display brightness, detector sensitivity levels, and volume. Then you're ready to hit the road.
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Range: Impressive detection**
 
  The Passport S55 features Enhanced Radar Protection that delivers long-distance range for laser and radar bands, including K and Ka bands, widely used microwave frequencies for police radar guns. It reliably delivers on its promise of long-distance sensitivity. While testing the S55 in Highway mode I received Ka-band alerts over a mile and a half out from where I approached a highway patrol parked on the median of the interstate. This range was on par with much more expensive models.
 
  It reliably delivers on its promise of long-distance sensitivity.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Not exactly enhanced**
 
@@ -128,12 +114,6 @@ Lifewire / Todd Braylor
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
  A popular competitor brand to Escort that makes a wide selection of radar detectors is Uniden. The Uniden DFR9 (view on[Amazon](https://www.amazon.com/Uniden-DFR9-Detection-Cameras-Display/dp/B07F6PZXHM/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7C) ) is a model that can be considered the next price tier above the S55\. The DFR9's MSRP is $300 but it can often be found on sale for about $270.
@@ -145,6 +125,10 @@ Lifewire / Todd Braylor
  **A basic radar detector that's ideal for beginners or anyone on a budget.**
 
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -166,8 +150,6 @@ Lifewire / Todd Braylor
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -175,4 +157,24 @@ Lifewire / Todd Braylor
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-enhance-your-storytelling-with-these-10-fcp-plugins/"><u>[New] In 2024, Enhance Your Storytelling with These 10 FCP Plugins</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-efficiently-broadcasting-your-videos-as-shorts-via-computers-and-mobile/"><u>[Updated] In 2024, Efficiently Broadcasting Your Videos as Shorts via Computers & Mobile</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-ultimate-guide-ios-image-files-conversion-to-pdfs-for-2024/"><u>[Updated] The Ultimate Guide IOS Image Files Conversion to PDFs for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/after-the-subscription-discontinued-games-fate/"><u>After the Subscription: Discontinued Games' Fate</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/did-your-apple-iphone-15-plus-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>Did Your Apple iPhone 15 Plus Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/expert-guide-mastering-advanced-powershell-techniques-in-system-installers/"><u>Expert Guide: Mastering Advanced PowerShell Techniques in System Installers</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-vivo-y27s-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Vivo Y27s Device</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/losen-sie-das-problem-warum-werden-ihre-duplizierten-mac-bilder-nicht-angezeigt-4-losungswege/"><u>Lösen Sie Das Problem: Warum Werden Ihre Duplizierten Mac-Bilder Nicht Angezeigt? - 4 Lösungswege</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/topography-torch-tripod-secure-camera-on-the-move/"><u>Topography Torch Tripod: Secure Camera on the Move</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/trustworthy-energy-solution-the-aeeusy-solar-generators-pure-sine-wave-feature-tailored-for-high-precision-medical-apparatus/"><u>Trustworthy Energy Solution: The AEEUSY Solar Generator's Pure Sine Wave Feature Tailored for High-Precision Medical Apparatus</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723026358671-unboxing-and-evaluating-the-budget-friendly-tcl-50s425-a-2019-50-inch-4k-roku-television-review/"><u>Unboxing and Evaluating the Budget-Friendly TCL 50S425 - A 2019 50-Inch 4K Roku Television Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unboxing-and-testing-googles-new-battery-wireless-doorbell/"><u>Unboxing and Testing Google's New Battery Wireless Doorbell</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlock-walmartplus-perks-heres-how-it-pays-off/"><u>Unlock Walmart+ Perks - Here's How It Pays Off</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unpacking-the-microsoft-surface-duo-experience-high-price-meets-technical-challenges/"><u>Unpacking the Microsoft Surface Duo Experience: High Price Meets Technical Challenges</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-features-of-the-impressive-huion-kamvas-gt-191-drawing-tablet-a-visual-spectacle/"><u>Unveiling the Features of the Impressive Huion Kamvas GT-191 Drawing Tablet – A Visual Spectacle</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-issues-with-microsofts-expensive-and-buggy-dual-screen-device/"><u>Unveiling the Issues with Microsoft's Expensive and Buggy Dual-Screen Device</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/visual-bedtime-plays-reviewed/"><u>Visual Bedtime Plays Reviewed</u></a></li>
+</ul></div>
 

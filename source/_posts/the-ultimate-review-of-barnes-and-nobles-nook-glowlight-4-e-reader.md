@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Review of Barnes & Noble's Nook GlowLight 4 E-Reader
-date: 2024-09-09T22:52:17.145Z
-updated: 2024-09-15T01:56:34.214Z
+date: 2024-11-19T18:26:54.999Z
+updated: 2024-11-24T19:08:51.982Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Review of Barnes & Noble's Nook GlowLight 4 E-Reader
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/gNfXD3p4OfpTiznU4wTzYEqmh-k=/400x300/fi
 ## Microsoft Xbox Series S
 
 ![Xbox Series S](https://www.lifewire.com/thmb/AIM68phvq5X0vRf1yv3G8I9S2ic=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -69,6 +73,10 @@ Lifewire / Jeremy Laukkonen
  The Xbox Series S is a low-cost alternative to the[Xbox Series X](https://www.lifewire.com/price-release-date-specs-xbox-series-x-5077092) , Microsoft’s flagship next-gen console. It plays all the same games as its more expensive counterpart and has similar hardware, but its reduced processing power limits graphical output to 1440p for the most part.
 
  This console is remarkably compact and has a surprisingly low price point. Gamers looking for a[4K UHD in HDR](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) experience will need to pay a premium for the Series X, but the Xbox Series S offers an enticing alternative if you’re looking to save some money or haven’t yet made the jump to 4K.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Sleek and compact**
 
@@ -150,6 +158,10 @@ Lifewire / Jeremy Laukkonen
 
 ![Xbox Series S](https://www.lifewire.com/thmb/_GSxQvNgtJMhoyNl62qlg671Qvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2-25991056c5c2486695923f7c1b61c7b5.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
  When downloading over Wi-Fi, I rarely saw over 150Mbps (compared to the 350Mbps I measured on my HP Spectre x360 laptop in the same room and at the same time). Curiously, the Series S download speed tanked, down to the lower double digits, while I was running speed tests on my laptop. Similarly, download speeds dive into the low teens whenever a game runs, even in the background.
@@ -158,18 +170,15 @@ Lifewire / Jeremy Laukkonen
 
  The bottom line is that the Series S provided fairly unimpressive download speeds over Wi-Fi but tore it up when connected via Ethernet. You’ll want to connect this all-digital console via Ethernet to a fast internet connection.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software and User Interface: Familiar and cozy**
 
  Microsoft isn’t looking to rock the boat with the Xbox Series X|S in terms of the user interface. If you’ve used an Xbox One, you’ll find the Xbox Series X|S user interface strangely familiar. The dashboard looks almost the same, and the guide functions as expected. There are a few upgrades and changes here and there, but this is nothing like the massive change between the Xbox 360 dashboard and the Xbox One dashboard.
 
  An overhaul of the dashboard is currently in the works, and we expect it to arrive in 2023.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Controller: Iteration more than innovation**
 
@@ -187,32 +196,10 @@ Lifewire / Jeremy Laukkonen
 
 ![Xbox Series S](https://www.lifewire.com/thmb/MZdEnnFWPzhGzv_P5GO8byAY5qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3-dd9458b294e74205acad2ff6fee33913.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Jaw-droppingly low**
@@ -226,10 +213,7 @@ Lifewire / Jeremy Laukkonen
  One expense you may need to budget is a high-speed USB 3.1 drive. The console is perfectly usable without an external drive, but expect to uninstall games regularly to make more space if you limit yourself to the onboard storage.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Xbox Series S vs. PS5 Digital**
@@ -257,16 +241,7 @@ Lifewire / Jeremy Laukkonen
 [Nintendo Switch Lite Review](https://www.lifewire.com/nintendo-switch-lite-review-4788015)
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -299,5 +274,24 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-cutthroat-countdown-best-zombies-in-gaming-unveiled-for-2024/"><u>[New] Cutthroat Countdown Best Zombies In Gaming Unveiled for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-essential-360-professionals-cameras-update/"><u>[New] In 2024, Essential 360° Professionals' Cameras Update</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-dailymotion-vs-youtube-monetization-which-is-more-profitable/"><u>[Updated] Dailymotion vs YouTube Monetization Which Is More Profitable?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/choosing-your-console-compare-the-features-of-switch-lite-vs-switch-oled/"><u>Choosing Your Console? Compare the Features of Switch Lite Vs. Switch OLED</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/compact-and-affordable-a-look-at-the-nintendo-switch-lite-variant/"><u>Compact and Affordable: A Look at the Nintendo Switch Lite Variant</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/culinary-mayhem-redux-insights-and-revelations-from-playing-overcooked-2/"><u>Culinary Mayhem Redux: Insights and Revelations From Playing Overcooked! 2</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decide-wisely-in-depth-comparison-between-amazon-fire-and-samsung-tablets/"><u>Decide Wisely: In-Depth Comparison Between Amazon Fire and Samsung Tablets.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-top-samsung-galaxy-tab-s5e-pros-and-cons-for-a-smart-purchase-decision/"><u>Discover Top Samsung Galaxy Tab S5e Pros and Cons for a Smart Purchase Decision</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-brother-mfc-9130cw-printer-drivers-step-by-step-guide/"><u>Download Brother MFC-9130CW Printer Drivers: Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-google-stadia-potential-and-pitfalls-a-comprehensive-analysis/"><u>Evaluating Google Stadia: Potential and Pitfalls - A Comprehensive Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-wireless-mesh-network-benefits/"><u>Evaluating Wireless Mesh Network Benefits</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/examining-the-lenovo-130s-a-user-friendly-laptop-despite-its-constrained-power-capacity/"><u>Examining the Lenovo 130S: A User-Friendly Laptop Despite Its Constrained Power Capacity</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-access-your-iphone-7-plus-when-you-forget-the-passcode-by-drfone-ios/"><u>How to Access Your iPhone 7 Plus When You Forget the Passcode?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-how-to-switch-between-normal-and-picture-in-picture-views-in-youtube/"><u>In 2024, How to Switch Between Normal and Picture In Picture Views in Youtube</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-zte-nubia-flip-5g-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 ZTE Nubia Flip 5G Android SIM Unlock APK</u></a></li>
+<li><a href="https://driver-error.techidaily.com/missed-driver-installation-for-gpus/"><u>Missed Driver Installation for GPUs</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/quelle-est-la-difference-entre-le-format-audio-flac-et-alac-un-guide-complet-pour-choisir-votre-codec-prefere/"><u>Quelle Est La Différence Entre Le Format Audio FLAC Et ALAC ? Un Guide Complet Pour Choisir Votre Codec Préféré.</u></a></li>
+</ul></div>
 

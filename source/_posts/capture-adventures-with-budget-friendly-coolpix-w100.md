@@ -1,7 +1,7 @@
 ---
 title: Capture Adventures with Budget-Friendly Coolpix W100
-date: 2024-09-09T06:15:33.032Z
-updated: 2024-09-10T06:15:33.032Z
+date: 2024-11-22T16:09:09.610Z
+updated: 2024-11-24T19:42:15.868Z
 categories:
   - BestProducts
 description: This Article Describes Capture Adventures with Budget-Friendly Coolpix W100
@@ -9,26 +9,18 @@ excerpt: This Article Describes Capture Adventures with Budget-Friendly Coolpix 
 thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Nikon-Coolpix-W100-Camera-1-65fc8068c2d943e498daafa7aa8e9bb8.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Experience Comfort and Quality with the Fellowes Microban Wireless Keyboard – Budget Friendly
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fellowes Microban Split Design Keyboard
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/WDbYK32TR0KZYkaW6A8K51jQSpU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_HeroSquare-bca4a6a05ceb40108462ddaf4575d3ed.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Emily Isaacs
 
  What We Like
@@ -79,16 +71,18 @@ Lifewire / Emily Isaacs
  The Fellowes Microban Split Design Wired Keyboard is one of several Fellowes’ products geared towards businesses, thanks to its comfortable, ergonomic design and budget-friendly pricing. The inclusion of Microban antimicrobial protection technology, designed to prolong the life of your computer hardware by preventing damaging microbes from building up over time and causing deterioration, is an added bonus for the price. We tested this keyboard for over a week so read on to see what we discovered.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Cleaner than the rest**
 
  Ergonomic keyboards are designed to encourage natural, neutral movements that put less strain on wrists and shoulders,[preventing repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) over time. This is especially important for people who spend large portions of their day in a home or office setting tethered to their computer.
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/WPjeQmKmzof_KVFE5_fIwN92cXc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_05-24f7f07146ae45cd86d2c5bdd4791ee5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -100,54 +94,22 @@ Lifewire / Emily Isaacs
 
  Unlike competitor models which often use a mix of fabric, plastics, and in some instances, metals, the entirety of this keyboard is plastic—even down to the[wrist pad](https://www.lifewire.com/best-keyboard-wrist-rests-4172684) . While we did wish that the wrist pad was made of a more comfortable material, it wasn’t uncomfortable during use. Plus, a different material would likely impact the keyboard’s longevity, since the Microban antimicrobial coating needs to be put on an acrylic, non-porous surface in order to protect against common bacteria, yeasts, molds, and fungi.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Plug and play**
 
  The keyboard doesn’t arrive with much. It comes in a mid-size box with the keyboard itself and an accessory pamphlet that addresses some frequently asked questions regarding Microban technology. Setting up is quite easy. It’s a plug and play device, which means that when the keyboard is connected to the computer, the computer will recognize the device is there and you can begin using it immediately.
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/NycF2nKeSim8iDJ0Yp1gejyIigI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_03-49fdaa8e182941e184cadafc14281a1e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Emily Isaacs
 
-<!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Features: Multimedia hotkeys for ease of use**
 
  The Fellowes features seven hotkeys for multimedia playback. These keys are located along the top of the keyboard and offer such functionality as mute, volume up, volume down, sleep, email, search, and one-touch internet access. We were disappointed that it didn’t include hotkeys for pausing, skipping forward, or skipping backward in multimedia.
 
 <!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Connectivity: A wired connection for reliability**
 
  The Fellowes connects to a PC via a USB cord. We couldn’t help but appreciate the simplicity of this design choice, especially as more and more companies are looking for ways to cut cords. Cutting down on cables is great when it makes sense, but the corded connection here allows for a dependable product, since you never have to worry about a low battery, and also means that the keyboard is more reliable for[faster typists](https://www.lifewire.com/typing-speed-tests-1356663) . It’s equipped with a 16-character buffer, which means that it can hold onto that many typed characters before they’re processed. This is useful if you type faster than conventional keyboards can keep up with, making it less likely for you to lose a stroke.
@@ -165,6 +127,10 @@ Lifewire / Emily Isaacs
 [Microsoft Sculpt Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-sculpt-ergonomic-keyboard-review-4780274)
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/9Ei30bgFst4sw8SynCxgEI_b-9I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_04-eff22d3b32274568890dd291e56daab5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -194,14 +160,11 @@ Lifewire / Emily Isaacs
 * Compatibility  As plug-and-play device with Windows OS
 * Warranty  3-year limited warranty
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -210,4 +173,26 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/tep-by-step-guide-to-a-distinctive-youtube-channel-url-for-2024/"><u>[New] Step-by-Step Guide to a Distinctive YouTube Channel URL for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-choreographing-narrative-news-wrappers/"><u>[Updated] Choreographing Narrative News Wrappers</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-delete-comments-from-youtube-with-minimal-hassle-for-2024/"><u>[Updated] How to Delete Comments From YouTube with Minimal Hassle for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-pixel-power-redesigned-radeon/"><u>[Updated] In 2024, Pixel Power Redesigned Radeon</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-navigating-instagrams-video-limit-regulations/"><u>[Updated] Navigating Instagram's Video Limit Regulations</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-superior-online-multimedia-collaboration-tools/"><u>2024 Approved Superior Online Multimedia Collaboration Tools</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-lava-storm-5g-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Lava Storm 5G | Dr.fone</u></a></li>
+<li><a href="https://os-tips.techidaily.com/protect-your-communications-easy-steps-for-archiving-text-messages-on-ios-and-android-phones/"><u>Protect Your Communications: Easy Steps for Archiving Text Messages on iOS & Android Phones</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/resetting-your-youtube-reputation-for-2024/"><u>Resetting Your YouTube Reputation for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/taking-flight-simulation-to-new-heights-a-closer-look-at-x-planes-latest-release-with-exceptional-graphics/"><u>Taking Flight Simulation to New Heights: A Closer Look at X-Plane's Latest Release with Exceptional Graphics</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-budget-wifi-champion-unpacking-features-and-performance-of-the-tp-link-archer-c9/"><u>The Budget WiFi Champion: Unpacking Features and Performance of the TP-Link Archer C9</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-final-mission-completed-hitman-3-gets-the-spotlight-in-our-detailed-review/"><u>The Final Mission Completed - Hitman 3 Gets the Spotlight in Our Detailed Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-portable-powerhouse-uncovering-the-hidden-value-of-sandisks-player/"><u>The Portable Powerhouse: Uncovering the Hidden Value of SanDisk's Player</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-aukey-usb-30-hub-a-blend-of-style-and-speed-reviewed/"><u>The Ultimate Guide to the Aukey USB 3.0 Hub – A Blend of Style & Speed Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-review-for-chargetechs-long-lasting-27000mah-battery-solution/"><u>Top Review for ChargeTech's Long-Lasting 27000mAh Battery Solution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-havit-5-pc-desktop-tower-with-rgb-lighting-expert-analysis-and-performance-insights/"><u>Ultimate HAVIT #5 PC Desktop Tower with RGB Lighting - Expert Analysis and Performance Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unbeatable-prime-day-offers-on-benq-monitors-and-projector-technology/"><u>Unbeatable Prime Day Offers on BenQ Monitors and Projector Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleash-the-power-of-nature-on-your-screen-the-durable-55-inch-veranda-tv-by-sunbrite/"><u>Unleash the Power of Nature on Your Screen - The Durable 55-Inch Veranda TV by SunBrite</u></a></li>
+<li><a href="https://fox-info.techidaily.com/unraveling-the-secrets-to-auditory-harmony-crossfade-for-2024/"><u>Unraveling the Secrets to Auditory Harmony (Crossfade) for 2024</u></a></li>
+</ul></div>
 

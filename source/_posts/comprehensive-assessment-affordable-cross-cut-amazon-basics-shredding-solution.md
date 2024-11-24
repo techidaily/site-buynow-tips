@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
-date: 2024-11-09T08:56:55.918Z
-updated: 2024-11-14T22:00:13.710Z
+date: 2024-11-23T19:34:16.919Z
+updated: 2024-11-24T19:27:30.869Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
@@ -37,16 +37,13 @@ Lifewire / Jonno Hill
 
 4
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## HP Omen Obelisk
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/ltgwwtDrSkLcZMSVU6VX1rKcbaA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_HP-OMEN-Obelisk-Gaming-Desktop-Computer-1-56ba747009334162a328f46d8b4743af.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -101,10 +98,7 @@ Lifewire / Jonno Hill
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/gfeGQoUwG35q5t-JwO07Ax4jm5I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-3-f4e655ec9e684a47855e9ee7373ba4b6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
@@ -118,10 +112,7 @@ Lifewire / Jonno Hill
  The Omen comes equipped with a 1TB[NVMe SSD](https://www.lifewire.com/what-is-m2-833453) and 32GB of DDR4 2666 memory. This is definitely more RAM than games alone will call for, but it’s merely an adequate amount of RAM for some creative professionals working with more demanding software like Adobe After Effects. Keep in mind though, even those that don’t normally need a lot of RAM can still benefit from having more. Among other things, it gives you the luxury of keeping all of your browser tabs and background applications running without having to start juggling applications on and off, which can be helpful from a productivity standpoint.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Gaming** :**Great for the most demanding titles**
@@ -140,18 +131,15 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Network** :**Great speeds, but software that doesn’t do much**
 
  The HP Omen Obelisk has gigabit LAN and a Wi-Fi 5 (2x2) networking, the latter supporting a maximum speed of 866 Mbps. Everything functioned smoothly from a networking standpoint during my tests.
 
  I made a point to try out the Network Booster software found in the OMEN Command Center and didn’t see anything tremendously useful, unfortunately. I tried setting the priority of Steam to “Low” and downloading a game, but the game still downloaded at my maximum internet speed. I took it one step further and toggled the “Block” option for Steam, and tried to resume the download, but Steam kept on downloading at the maximum speed. The software was successful in blocking Chrome when that option was switched on, however.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Just enough options**
 
@@ -162,6 +150,10 @@ Lifewire / Jonno Hill
  The lighting is executed fairly well on the HP OMEN Obelisk. There are only two lighting zones: one for the interior of the case, and one for the logo on the front exterior. Through the OMEN Command Center, you can set and customize lighting profiles for each zone. You can choose a static color, but also may choose from animation profiles that cycle between preset or user-defined colors. Luckily you can also choose the brightness, if you want to tone down the lighting a bit, and choose a separate profile for when the desktop is asleep.
 
  The option to overclock your system has you first run a nondescript benchmark, which produces a score with no reference point (to establish a baseline). While it’s nice to have the option, this really,_sincerely_ isn’t a system you want to be overclocking. The i9-9900K CPU already runs alarmingly hot, even with its pre-installed water cooling solution. There also isn’t enough room for anything beyond a 120mm AIO watercooler, and not nearly enough clearance for a popular air heatsink like the Noctua NH-D15.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Highly competitive**
 
@@ -186,10 +178,7 @@ Lifewire / Jonno Hill
  The HP OMEN Obelisk delivers fantastic value for gamers shopping for a high-performance, pre-built PC. HP has come a long way, and now offers a much more compelling solution that will appeal to a much broader set of buyers. That said, there is work to be done still, as the case suffers from poor airflow, poor thermals, and not a lot of meaningful ways to improve them.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -226,22 +215,24 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-how-to-blend-beats-and-bullets-in-microsofts-presentation-tool/"><u>[New] 2024 Approved How to Blend Beats and Bullets in Microsoft's Presentation Tool</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-perfect-shots-no-hassle-leading-smartphone-tripods/"><u>[New] In 2024, Perfect Shots, No Hassle Leading Smartphone Tripods</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-ultimate-budget-friendly-gopro-adds/"><u>2024 Approved Ultimate Budget-Friendly GoPro Adds</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/best-free-and-paid-microsoft-office-substitutes-for-2n24/"><u>Best Free and Paid Microsoft Office Substitutes for 2N24</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/decoding-digital-domain-dynamics-metaverse-edition/"><u>Decoding Digital Domain Dynamics Metaverse Edition</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-the-top-budget-morning-lifter-totobays-second-generation-wake-up-light-review/"><u>Discover the Top Budget Morning Lifter: Totobay's Second Generation Wake-Up Light Review</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/guidelines-to-gradually-reduce-audio-amplitude-in-logic-pro-for-2024/"><u>Guidelines to Gradually Reduce Audio Amplitude in Logic Pro for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-photography-at-the-tip-of-your-fingers-top-10-apps/"><u>In 2024, Photography at the Tip of Your Fingers – Top 10 Apps</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maximizing-value-a-comprehvew-of-the-budget-friendly-ar-5-by-arcshell-with-impressive-specs/"><u>Maximizing Value: A Comprehvew of the Budget-Friendly AR-5 by ArcShell with Impressive Specs.</u></a></li>
-<li><a href="https://network-issues.techidaily.com/overcoming-dark-mode-in-win11-update-fall/"><u>Overcoming Dark Mode in Win11 Update Fall</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/prime-safe-video-meeting-software-rankings-for-smes-for-2024/"><u>Prime Safe Video Meeting Software Rankings for SMEs for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/stay-active-with-the-fitbit-versa-3-outstanding-inbuilt-gps-and-comprehensive-health-apps-for-enhanced-motivation/"><u>Stay Active with the Fitbit Versa 3: Outstanding Inbuilt GPS & Comprehensive Health Apps for Enhanced Motivation</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-most-cost-effective-typing-experience-diving-into-the-fellowes-microban-wired-keyboard-review/"><u>The Most Cost-Effective Typing Experience? Diving Into the Fellowes Microban Wired Keyboard Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-quintessential-sonic-treatment-of-the-h8i/"><u>The Quintessential Sonic Treatment of the H8i</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-7-affordable-mobile-phone-deals/"><u>Top 7 Affordable Mobile Phone Deals</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-7-essentials-for-choosing-the-right-smart-tv/"><u>Top 7 Essentials for Choosing the Right Smart TV</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-iphones-for-gamers-which-one-reigns-supreme/"><u>Top iPhones for Gamers: Which One Reigns Supreme?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-boosting-online-presence-top-30-freefire-hashtags-and-tag-strategies/"><u>[New] 2024 Approved Boosting Online Presence Top 30 FreeFire Hashtags and Tag Strategies</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-seamless-desktop-capture-high-quality-free-windowsmac-software/"><u>[New] In 2024, Seamless Desktop Capture High-Quality Free Windows/Mac Software</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-instant-guide-image-to-thumbnail-magic-for-your-youtube-channel/"><u>[Updated] Instant Guide Image-To-Thumbnail Magic for Your YouTube Channel</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-magix-acid-pro-review-and-alternatives/"><u>[Updated] Magix ACID Pro Review & Alternatives</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-seeking-the-8-pinnacle-of-androids-collaborative-video-collage-tools/"><u>2024 Approved Seeking the #8 Pinnacle of Android's Collaborative Video Collage Tools</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-thermopro-tp67-thermometer-is-it-worth-the-investment/"><u>Affordable ThermoPro TP67 Thermometer - Is It Worth the Investment?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-viewership-cost-effectively-with-subscriber-purchase/"><u>Boost Viewership Cost-Effectively with Subscriber Purchase</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-ultimate-linkedin-learning-classes-of-2024/"><u>Discover the Ultimate LinkedIn Learning Classes of 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-the-xp-pen-artist-16-professional-sketchpad-analysis/"><u>Expert Insights on the XP-Pen Artist 16 Professional Sketchpad Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experts-weigh-in-a-comprehensive-evaluation-of-third-gen-apple-tv-4k/"><u>Experts Weigh In: A Comprehensive Evaluation of Third Gen Apple TV 4K</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/h20-audio-stream-waterproof-mp3-player/"><u>H20 Audio Stream Waterproof MP3 Player</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-identify-premium-hassle-free-free-srt-translator-services/"><u>In 2024, How to Identify Premium, Hassle-Free Free SRT Translator Services</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-huawei-nova-y91-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Huawei Nova Y91 online without jailbreak</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-apple-watch-series-n-slight-enhancements-yet-unmatched-in-quality/"><u>In-Depth Analysis of Apple Watch Series N - Slight Enhancements Yet Unmatched in Quality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/overcooked-2-game-analysis-a-taste-of-chaotic-cuisine/"><u>Overcooked! 2 Game Analysis: A Taste of Chaotic Cuisine</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/resolve-issues-with-unreadable-udf-dvd-films-a-complete-guide-to-winx-dvd-ripper-solutions/"><u>Resolve Issues with Unreadable UDF DVD Films - A Complete Guide to WinX DVD Ripper Solutions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/score-big-deals-premium-bargains-on-benq-monitors-and-projectors-for-prime-shoppers/"><u>Score Big Deals: Premium Bargains on BenQ Monitors & Projectors for Prime Shoppers</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/smooth-gameplay-quick-cure-for-amd-and-tarkov-gaffe/"><u>Smooth Gameplay: Quick Cure for AMD & Tarkov Gaffe</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-home-security-an-in-depth-look-at-the-ring-video-doorbell-2/"><u>Top Rated Home Security: An In-Depth Look at the Ring Video Doorbell 2</u></a></li>
 </ul></div>
 

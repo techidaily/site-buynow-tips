@@ -1,7 +1,7 @@
 ---
 title: Evaluating Mirari Kids' Alarm Clock - An In-Depth Product Review
-date: 2024-11-14T00:26:41.896Z
-updated: 2024-11-15T00:16:49.623Z
+date: 2024-11-18T17:52:50.454Z
+updated: 2024-11-24T16:36:25.712Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating Mirari Kids' Alarm Clock - An In-Depth Product Review
@@ -37,6 +37,10 @@ Lifewire / Jonno Hill
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
@@ -65,10 +69,7 @@ Lifewire / Jonno Hill
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Basic but effective**
@@ -77,29 +78,19 @@ Lifewire / Jonno Hill
 
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: Dead simple**
 
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Acceptable but not incredible**
 
  The Mohu Leaf 30 TV Antenna wasn’t the highest performing antenna that I tested, even among similar unpowered antennas. In my channel acquisition test, the Leaf picked up 56 channels on average across all the iterations performed.
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Range: Fairly limited**
 
@@ -112,10 +103,7 @@ Lifewire / Jonno Hill
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
@@ -126,6 +114,10 @@ Lifewire / Jonno Hill
 
 **No fuss, good value.**
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -154,16 +146,19 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/2024-approved-unveiling-effective-routes-to-share-srt-content-on-pinterest-and-reddit/"><u>2024 Approved Unveiling Effective Routes to Share SRT Content on Pinterest & Reddit</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/boosting-gaming-innovation-how-nintendo-could-benefit-by-studying-steam-decks-triumph/"><u>Boosting Gaming Innovation: How Nintendo Could Benefit by Studying Steam Deck's Triumph</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/breaking-news-the-federal-communications-commission-prohibits-secretive-additional-costs-for-consumers/"><u>Breaking News: The Federal Communications Commission Prohibits Secretive Additional Costs for Consumers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comparing-kobo-and-kindle-which-e-reader-leads-in-features-functionality-and-price/"><u>Comparing Kobo and Kindle: Which E-Reader Leads in Features, Functionality, and Price?</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/fixed-printer-error-due-to-active-directory-halt/"><u>Fixed: Printer Error Due to Active Directory Halt</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-apple-iphone-7-plus-passcode-not-working-by-drfone-ios/"><u>In 2024, How to Fix Apple iPhone 7 Plus Passcode not Working?</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-learn-to-craft-eye-catching-youtube-thumbnails-using-your-phone/"><u>In 2024, Learn to Craft Eye-Catching YouTube Thumbnails Using Your Phone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Vivo Y78t? | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/simplified-path-to-perfect-video-clarity/"><u>Simplified Path to Perfect Video Clarity</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/your-guide-to-watching-basketball-how-to-catch-every-nba-and-wnba-game-on-popular-streamers/"><u>Your Guide to Watching Basketball: How to Catch Every NBA & WNBA Game on Popular Streamers!</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/zdnets-ultimate-selection-of-2023s-leading-ev-models-rated-and-ranked/"><u>ZDNet's Ultimate Selection of 2023'S Leading EV Models - Rated and Ranked</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/s55-how-to-enhance-road-safety-without-breaking-the-bank-learn-more-on-this-latest-review-from-our-dedicated-team-at-escortpassport/"><u>'S55': How to Enhance Road Safety Without Breaking the Bank? Learn More on This Latest Review From Our Dedicated Team at Escortpassport</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-accessible-obs-presets-for-affordable-computers/"><u>[New] Accessible OBS Presets for Affordable Computers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-nocturnal-nexus-versus-daylight-dominion/"><u>[New] In 2024, Nocturnal Nexus Versus Daylight Dominion</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-pioneering-virtual-play-samsungs-most-popular-titles/"><u>[New] Pioneering Virtual Play Samsung's Most Popular Titles</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-stylish-spectacles-trending-insta-filters-list-for-2024/"><u>[New] Stylish Spectacles Trending Insta Filters List for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-time-lapse-tips-for-iphoneipad-users/"><u>[New] Time-Lapse Tips for iPhone/iPad Users</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-top-mic-lists-tailored-for-high-definition-4k-cameras/"><u>[Updated] 2024 Approved Top Mic Lists Tailored for High-Definition 4K Cameras</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-beginner-friendly-approach-to-srt-knowledge-for-2024/"><u>A Beginner-Friendly Approach to SRT Knowledge for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/chargetech-27000mah-battery-pack-in-depth-analysis-for-long-lasting-charges/"><u>ChargeTech 27000mAh Battery Pack: In-Depth Analysis for Long-Lasting Charges</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-lightning-fast-connectivity-with-our-comprehensive-review-of-the-google-nest-wi-fi-system/"><u>Experience Lightning Fast Connectivity with Our Comprehensive Review of the Google Nest Wi-Fi System</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-razer-portail-ideal-wireless-setup-for-players/"><u>In-Depth Look at the Razer Portail: Ideal Wireless Setup for Players</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/remove-the-lock-screen-fingerprint-of-your-vivo-s18e-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Vivo S18e</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-singing-machines-colorful-playable-plug-and-play-karaoke-system-sml385btbk-reviewed-and-rated/"><u>The Ultimate Guide to Singing Machine's Colorful, Playable, Plug-and-Play Karaoke System (SML385BTBK) - Reviewed & Rated</u></a></li>
 </ul></div>
 

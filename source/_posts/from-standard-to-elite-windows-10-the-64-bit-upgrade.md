@@ -1,7 +1,7 @@
 ---
 title: "From Standard to Elite: Windows 10, The 64-Bit Upgrade"
-date: 2024-09-09T06:13:47.720Z
-updated: 2024-09-10T06:13:47.720Z
+date: 2024-11-21T17:14:51.365Z
+updated: 2024-11-24T19:46:44.949Z
 categories:
   - BestProducts
 description: "This Article Describes From Standard to Elite: Windows 10, The 64-Bit Upgrade"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/d222a947a358a9a5da5a72c775e634907e671d005
 ## The Portable Pro with Extended Zoom - Meet the SX70
 
 4.3
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
 
@@ -43,12 +47,6 @@ Lifewire / Andy Zahn
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Andy Zahn
 
 [View On Walmart $562](https://www.walmart.com/ip/Canon-PowerShot-SX70-HS-20-3MP-65x-Optical-Zoom-Digital-Point-Shoot-Camera/773178799?slfpid=3) [View On Adorama.com $699](https://www.adorama.com/icasx70.html) [View On B&H Photo Video $599](https://www.bhphotovideo.com/c/product/1435399-REG/canon%5F3071c001%5Fpowershot%5Fsx70%5Fhs%5Fdigital.html)
@@ -81,12 +79,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -99,34 +91,16 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Display and Viewfinder: Saturated and clear**
 
  The three-inch, 920,000-dot screen on the SX70 HS looks amazing—perhaps_too_ amazing, as your photos will look better on it than on your phone or computer. The screen is fully articulating and solidly built. Our one complaint would be how easily it picks up smudges, and how difficult those smudges are to remove. An advantage of the articulating screen is that it can be turned face-in to avoid dirt and damage and to save on battery life.
@@ -134,6 +108,10 @@ Lifewire / Andy Zahn
  The electronic viewfinder (EVF) is bright and clear with 2,360,000 dots. It’s not the best EVF we’ve ever used as it seems slightly small and cramped, but it gets the job done. A sensor automatically detects when you put your eye up to it (a function that can be adjusted in the settings), which means you don’t have to hunt for a button to switch the EVF on.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Autofocus: Blazing fast**
 
@@ -144,11 +122,9 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Photo Quality: Great colors, average resolution**
 
  We love the warm, natural color tone that[Canon cameras](https://www.lifewire.com/best-new-canon-cameras-493499) produce, and the SX70 HS doesn’t disappoint. Its photos are vibrant and it captures particularly nice portraits.
@@ -166,17 +142,9 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -191,12 +159,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Video Quality: A mixed bag**
 
  The SX70 HS fumbles a bit when it comes to video. It’s no slouch by any means, but the footage is nothing to brag about. You can record up to 4K resolution, but unfortunately, the camera has to crop in to record at this resolution. Also, we found that footage is never especially sharp compared to other cameras.
@@ -211,6 +173,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -220,6 +186,10 @@ Lifewire / Andy Zahn
  There is also the option to connect to a[Canon printer](https://www.lifewire.com/best-canon-printers-4584899) and print your images directly from the camera. We found these features useful but also something of a hassle, since the process of connecting devices to the camera is pretty tedious.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Big brand, big price tag**
 
@@ -249,12 +219,6 @@ Lifewire / Andy Zahn
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  PowerShot SX70
@@ -280,8 +244,6 @@ Lifewire / Andy Zahn
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -289,4 +251,18 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/approved-from-novice-to-vlogger-your-guide-to-creating-a-youtube-chanel/"><u>2024 Approved From Novice to Vlogger Your Guide to Creating a YouTube Chanel</u></a></li>
+<li><a href="https://article-tips.techidaily.com/captivation-craftsman-for-posters/"><u>Captivation Craftsman for Posters</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ensuring-quality-streams-finding-the-best-spot-for-your-ps4-camera/"><u>Ensuring Quality Streams: Finding the Best Spot for Your PS4 Camera</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/evaluating-chatbot-potential-as-a-crucial-aid-during-wild-expeditions/"><u>Evaluating Chatbot Potential as a Crucial Aid During Wild Expeditions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-2020-samsung-galaxy-tab-a-spotlight-on-one-key-feature-gone-awry/"><u>Evaluating the 2020 Samsung Galaxy Tab A - Spotlight on One Key Feature Gone Awry</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-exquisite-design-elements-in-rayman-legends-a-2d-gaming-experience/"><u>Evaluating the Exquisite Design Elements in Rayman Legends, a 2D Gaming Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exceptional-value-in-depth-review-of-the-acer-aspire-e-15-for-savvy-shoppers/"><u>Exceptional Value: In-Depth Review of the Acer Aspire E 15 for Savvy Shoppers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-unmatched-e-reader-performance-a-review-of-the-new-kindle-paperwhite-7th-gen/"><u>Experience Unmatched E-Reader Performance: A Review of the New Kindle Paperwhite 7Th Gen</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/future-of-microsoft-innovative-cloud-and-device-integration-in-upcoming-strategy-insights-from-zdnet/"><u>Future of Microsoft: Innovative Cloud and Device Integration in Upcoming Strategy - Insights From ZDNet</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-poco-c51-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Poco C51 Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/solve-these-4-issues-to-regain-access-to-your-blocked-chatgpt-account/"><u>Solve These 4 Issues to Regain Access to Your Blocked ChatGPT Account</u></a></li>
+</ul></div>
 

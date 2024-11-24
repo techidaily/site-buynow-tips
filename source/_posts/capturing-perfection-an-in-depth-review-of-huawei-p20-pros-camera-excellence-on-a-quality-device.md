@@ -1,7 +1,7 @@
 ---
 title: "Capturing Perfection: An In-Depth Review of Huawei P20 Pro's Camera Excellence on a Quality Device"
-date: 2024-11-07T16:12:06.819Z
-updated: 2024-11-14T20:19:37.288Z
+date: 2024-11-17T19:25:58.166Z
+updated: 2024-11-24T19:25:05.500Z
 categories:
   - BestProducts
 description: "This Article Describes Capturing Perfection: An In-Depth Review of Huawei P20 Pro's Camera Excellence on a Quality Device"
@@ -37,16 +37,13 @@ Lifewire / Jonno Hill
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -72,10 +69,7 @@ Lifewire / Jonno Hill
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Basic but effective**
@@ -83,13 +77,6 @@ Lifewire / Jonno Hill
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
 
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup: Dead simple**
 
@@ -101,15 +88,16 @@ Lifewire / Jonno Hill
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Range: Fairly limited**
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Excellent for the performance**
@@ -126,6 +114,10 @@ Lifewire / Jonno Hill
 
 **No fuss, good value.**
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -154,20 +146,15 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/updated-elite-5-fpv-hmds-for-high-speed-aerial-sports/"><u>[Updated] Elite 5 FPV HMDs for High-Speed Aerial Sports</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-ultimate-4-facebook-film-compiler/"><u>[Updated] Ultimate 4 Facebook Film Compiler</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-from-concept-to-curtain-call-scriptwriting-tips-for-successful-streams/"><u>2024 Approved From Concept to Curtain Call Scriptwriting Tips for Successful Streams</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/benchmarking-the-beast-a-closer-look-at-the-powerful-linksys-ea9500-smart-router/"><u>Benchmarking the Beast – A Closer Look at the Powerful Linksys EA9500 Smart Router</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/diagonal-adjustment-success-portable-device/"><u>Diagonal Adjustment Success: Portable Device</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/embrace-reading-anywhere-with-the-kobo-clara-hd-a-comprehensive-review-tailored-to-wanderlust-bookworms/"><u>Embrace Reading Anywhere with the Kobo Clara HD: A Comprehensive Review Tailored to Wanderlust Bookworms</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-analysis-netgear-ex6200-ac1200-wireless-wi-fi-signal-booster-a-comprehensive-review/"><u>Expert Analysis: Netgear EX6200 AC1200 Wireless Wi-Fi Signal Booster - A Comprehensive Review</u></a></li>
-<li><a href="https://program-issues.techidaily.com/expert-strategies-to-overcome-battlefield-n-2042-directx-compatibility-concerns/"><u>Expert Strategies to Overcome Battlefield N 2042 DirectX Compatibility Concerns</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/freeze-the-action-find-these-top-9-gif-recipes-on-windows-pc-for-2024/"><u>Freeze the Action! Find These Top 9 GIF Recipes on Windows PC for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-6-without-passcode-by-drfone-ios/"><u>How to Unlock Apple iPhone 6 Without Passcode?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-amazons-latest-cubed-wonder-the-new-fire-tv-for-unmatched-entertainment-speed/"><u>In-Depth Analysis of Amazon's Latest Cubed Wonder: The New Fire TV for Unmatched Entertainment Speed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/insta360-one-x2-review-a-great-waterproof-360-camera/"><u>Insta360 One X2 Review: A Great Waterproof 360 Camera</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/modern-marvel-meets-classic-gameplay-in-depth-review-of-demons-souls/"><u>Modern Marvel Meets Classic Gameplay: In-Depth Review of Demon's Souls</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-sabrent-mini-travel-mouse-seamless-fusion-of-accuracy-and-wireless-control-for-on-the-go-typing/"><u>The Sabrent Mini Travel Mouse: Seamless Fusion of Accuracy & Wireless Control for On-the-Go Typing</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-how-to-fix-incessant-load-screen-in-red-dead-redemption-cuh/"><u>Troubleshooting: How to Fix Incessant Load Screen in Red Dead Redemption Cuh</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ain-traction-in-the-digital-sphere-explore-the-quintessential-five-youtube-tactics/"><u>[New] Gain Traction in the Digital Sphere - Explore the Quintessential Five YouTube Tactics</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-recorded-talk-extraction-and-study-for-2024/"><u>[New] Recorded Talk Extraction & Study for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-negative-narratives-of-virtual-reality-tech/"><u>2024 Approved The Negative Narratives of Virtual Reality Tech</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-why-the-alienware-aurora-r11-dominates-s-best-gaming-desktops/"><u>In-Depth Evaluation: Why the Alienware Aurora R11 Dominates 'S Best Gaming Desktops</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/steer-clear-of-hazards-upgrade-your-lights-now/"><u>Steer Clear of Hazards: Upgrade Your Lights Now</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/streamlined-strategies-for-ad-copy-formulation-on-social-platforms/"><u>Streamlined Strategies for Ad Copy Formulation on Social Platforms</u></a></li>
+<li><a href="https://discover-help.techidaily.com/the-ultimate-guide-to-the-cherry-xtrfy-k5v2-keyboard-a-review-on-cutting-edge-red-switch-performance/"><u>The Ultimate Guide to the Cherry XTRFY K5V2 Keyboard - A Review on Cutting-Edge Red Switch Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-notch-samsung-offers-unmissable-prime-day-savings/"><u>Top Notch Samsung Offers: Unmissable Prime Day Savings</u></a></li>
+<li><a href="https://win-able.techidaily.com/ultimate-troubleshooting-why-cant-i-play-league-of-legends-in-2eight-fourteen/"><u>Ultimate Troubleshooting: Why Can’t I Play League of Legends in 2Eight Fourteen?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleashing-professionalism-in-audio-communication/"><u>Unleashing Professionalism in Audio Communication</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Sony Xperia 5 Teardown: Compact Design Yet Costly"
-date: 2024-09-09T06:14:00.763Z
-updated: 2024-09-10T06:14:00.763Z
+date: 2024-11-17T18:48:19.881Z
+updated: 2024-11-24T16:58:46.952Z
 categories:
   - BestProducts
 description: "This Article Describes Sony Xperia 5 Teardown: Compact Design Yet Costly"
@@ -9,12 +9,6 @@ excerpt: "This Article Describes Sony Xperia 5 Teardown: Compact Design Yet Cost
 thumbnail: https://thmb.techidaily.com/df0051150a59f2be7546002ebadac6c91a67abcc0cae700de7b83f4b7dc74cf2.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Compact Master Speedy Flash - Get YN560IV Now at a Deal
 
 4.2
@@ -44,21 +38,13 @@ Lifewire / Jonno Hill
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## YONGNUO YN560 IV Wireless Flash Speedlite Master
 
 ![Yongnuo YN560 IV Wireless Flash Speedlite Master](https://www.lifewire.com/thmb/UOD6afkRh-xS-Dh1-iagOeoOSdY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_3LW4072366-Yongnuo-YN560-1-33b6547cc9014731ab6e144b0613aaef.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jonno Hill
 
 [View On Amazon $85](https://www.amazon.com/dp/B00PGTOX26?tag=lifewire-onsite-prod-20&ascsubtag=4686829%7Cned26b5ddc861462ea8962bb31e85883020%7CB00PGTOX26) [View On B&H Photo Video $85](https://www.bhphotovideo.com/c/product/1101196-REG/yongnuo%5Fyn%5F560iv%5Fyn560%5Fiv%5Fspeedlite.html)
@@ -82,11 +68,9 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Punching above the price point**
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master features a robust design that doesn’t feel like the manufacturer skimped on build quality — one of our biggest concerns with budget-minded flashes like this. When adjusting the position of the[flash head](https://www.lifewire.com/using-the-dslr-pop-up-flash-492975) through its 90 degrees of vertical and 270 degrees of horizontal range, it felt very solid.
@@ -119,6 +103,10 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup: A lot of reading before use**
 
  Once you unpack your flash and install the four AA batteries, you’re going to want to familiarize yourself with the buttons and menu system a little. The YN560 IV has a lot of functionality, but it doesn’t have the most intuitive interface. The front of the device contains a top row of four buttons (a Light/Music icon, Mode, a Wi-Fi icon, and Zoom). Below this is a charge indicator button marked “PILOT”, a direction pad, and an On/Off button.
@@ -140,17 +128,9 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Yongnuo YN560 IV Wireless Flash Speedlite Master vs Neewer TT560 Flash Speedlite**
 
  Photographers just starting out (or with significantly less complicated lighting ambitions) might be better served by getting a dead-simple option like the Neewer TT560 Flash Speedlite. It’s a no-fuss option with very few extraneous controls that will be a good starting point for most users, and solid for pros who don’t want more than optical trigger functionality on a flash.
@@ -165,17 +145,15 @@ Lifewire / Jonno Hill
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master may not be a very simple flash, but it packs enough functionality to make a very versatile platform for more aspirational photographers. Buyers that want full manual control and radio transmission without paying an arm and a leg will be more than pleased with what they get.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Canon Speedlite 430EX III-RT Flash](https://www.lifewire.com/canon-speedlite-430ex-iii-rt-flash-review-4686835)
 * [Nikon D3400](https://www.lifewire.com/nikon-d3400-review-4776644)
 * [Fovitec SPK10-037 Softbox Lighting Kit](https://www.lifewire.com/fovitec-spk10-037-softbox-lighting-kit-review-4692503)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -200,8 +178,6 @@ Lifewire / Jonno Hill
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -209,4 +185,22 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-download-unlimited-mcb-visual-elements/"><u>[New] In 2024, Download Unlimited MCB Visual Elements</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-mastering-the-art-of-sound-in-tiktok-videos-for-2024/"><u>[New] Mastering the Art of Sound in TikTok Videos for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-speedy-cam-and-commentary-recorder-software/"><u>[Updated] 2024 Approved Speedy Cam & Commentary Recorder Software</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-enhancing-your-playback-quality-tips-for-roblox-recordings-mac/"><u>[Updated] In 2024, Enhancing Your Playback Quality Tips for Roblox Recordings (Mac)</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Oppo Find X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-russian-alphabets-for-pristine-speech/"><u>Decoding Russian Alphabets for Pristine Speech</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-itel-p55plus-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Itel P55+ Device</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>Is Fake GPS Location Spoofer a Good Choice On Lava Yuva 3? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximizing-your-blog-revenue-with-buysellads-a-comprehensive-guide/"><u>Maximizing Your Blog Revenue with BuySellAds: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mobile-sonos-sound-experience-unveiled/"><u>Mobile Sonos Sound Experience Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/powershot-sx740-hs-unboxed-compact-photography-in-a-pocket/"><u>PowerShot SX740 HS Unboxed: Compact Photography in a Pocket</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/skysolutions-expert-insights-on-the-blade-e-flite-mcx2-the-pinnacle-of-ready-to-fly-remote-control-helicopters/"><u>Sky'Solutions: Expert Insights on the Blade E-Flite mCX2, The Pinnacle of Ready-To-Fly Remote Control Helicopters</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/smartphone-showdown-how-the-nokia-31-balances-top-tier-display-and-cameras-with-attractive-price-point/"><u>Smartphone Showdown: How the Nokia ^3.1 Balances Top-Tier Display & Cameras with Attractive Price Point</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-solution-for-power-surge-error-code-on-usb-connections-windows-11-edition/"><u>Step-by-Step Solution for 'Power Surge' Error Code on USB Connections – Windows 11 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tech-spotlight-in-depth-analysis-of-the-echo-4th-generation/"><u>Tech Spotlight: In-Depth Analysis of the Echo (4Th Generation)</u></a></li>
+</ul></div>
 

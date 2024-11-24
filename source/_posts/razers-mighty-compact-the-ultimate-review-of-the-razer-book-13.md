@@ -1,7 +1,7 @@
 ---
 title: "Razer's Mighty Compact: The Ultimate Review of the Razer Book 13"
-date: 2024-11-12T05:23:46.231Z
-updated: 2024-11-15T07:57:45.449Z
+date: 2024-11-18T19:04:12.040Z
+updated: 2024-11-24T18:28:56.494Z
 categories:
   - BestProducts
 description: "This Article Describes Razer's Mighty Compact: The Ultimate Review of the Razer Book 13"
@@ -73,7 +73,15 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/radDS_2IRuzjTlZxUS5og2a3PIM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Top_04-b051e3660efc406ab97f92df654d3762.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Amazingly light, but not wholly convincing**
 
@@ -97,6 +105,10 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/1qu1WvdEgTzjUQ8QH_Lssx79xF0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Trackpad_05-f0d9dc63b03e4650a92e30747090889a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 ## **Setup Process: Just follow the directions**
@@ -116,10 +128,7 @@ Lifewire / Andrew Hayward
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Solid power for everyday tasks**
@@ -138,13 +147,6 @@ Lifewire / Andrew Hayward
 
  You won't see the speakers when the LG Gram is standing up as normal, but you'll hear them loud and clear. The stereo speakers are tucked underneath the laptop at the left and right edges near where your wrists rest, and thanks to the slight elevation from the rubbery feet on the bottom of the laptop, they're given enough space for the output to shine. Audio playback sounds robust and clear—not quite to the level of Apple's current MacBook Air and MacBook Pro, but very close. We were pleased with it.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Network: Connects as expected**
 
  The LG Gram had no problem connecting to a few different networks, including a home Wi-Fi network, the Google Wi-Fi network at Starbucks, and a mobile hotspot. The connection always seemed speedy and downloads ran at a steady clip. Testing it on a home Wi-Fi network during peak evening hours, we saw a download speed of about 30Mbps and an upload speed of 13Mbps. We tested the network on an iPhone XS Max immediately after and saw comparable speeds there, as well. You can connect to both 2.4Ghz and 5Ghz networks with ease.
@@ -153,13 +155,14 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/AhDZOG33ttJ8LfKQnzvHO7K-S8I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Closed_02-d40445064b4945729278aeae3d8ae1c0.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Battery: Seriously amazing**
@@ -171,10 +174,7 @@ Lifewire / Andrew Hayward
  With our typical workflow of browsing the web, chatting on Slack, typing up documents, and streaming a little bit of media, we typically saw 8-9 hours of uptime at 100% brightness.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: Hello, Windows (but no Windows Hello)**
@@ -182,13 +182,6 @@ Lifewire / Andrew Hayward
  The LG Gram 15.6-inch comes with Windows 10 Home preinstalled, and if you've used Windows over the years, then you should be pretty comfortable here. Windows 10 has lightly evolved the PC operating system with feature enhancements and tweaks without losing the classic, familiar DNA within, and it's the OS of choice for computer gaming and apps of all shapes and sizes. It's easy to use and understand, and runs well with the Intel Core i5 and an SSD onboard.
 
  Unfortunately, this entry-level model of the LG Gram 15.6-inch isn't able to take advantage of Windows Hello biometric security, as the camera above the display doesn't have the needed sensors for scanning your face. We missed the near-instantaneous facial recognition of the Surface Laptop 2, and having to type in a PIN number each time we opened up the lid. Pricier models of the laptop offer a fingerprint scanner, however.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Solidly priced, considering its strengths**
 
@@ -199,13 +192,6 @@ Lifewire / Andrew Hayward
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/5yzhAkphyYfWOMofqawuktHJlA0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-v.-Surface-comparison-4946178bf2e94230820d2b19d2fb7197.jpg)
 
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **LG Gram 15.6-inch (2018) vs. Microsoft Surface Laptop 2: Better than Microsoft's own?**
 
@@ -253,20 +239,24 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-pathway-to-a-powerful-instagram-influence/"><u>[New] 2024 Approved The Pathway to a Powerful Instagram Influence</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-fix-for-silent-audio-on-obs/"><u>[New] Fix for Silent Audio on OBS</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-growth-galore-strategies-for-surpassing-yield-with-youtube-mobile-audiences/"><u>[Updated] 2024 Approved Growth Galore Strategies for Surpassing Yield with YouTube Mobile Audiences</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-share-the-laughs-right-top-gif-saver-for-twitter/"><u>[Updated] In 2024, Share the Laughs Right Top GIF Saver for Twitter</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-simplified-editing-for-clean-cut-canvas-photos/"><u>[Updated] Simplified Editing for Clean-Cut Canvas Photos</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-vivo-v29-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Vivo V29 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/advantages-and-disadvantages-of-using-pidgin-im-a-comprehensive-guide/"><u>Advantages & Disadvantages of Using Pidgin IM: A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-mobvoi-ticwatch-e2-analysis-is-it-worth-the-price/"><u>Affordable Mobvoi TicWatch E2 Analysis - Is It Worth the Price?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/compact-vr-powerhouse-theta-sc2-unleashed/"><u>Compact VR Powerhouse: Theta SC2 Unleashed</u></a></li>
-<li><a href="https://win11.techidaily.com/maximizing-savings-on-windows-11-keys/"><u>Maximizing Savings on Windows 11 Keys</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/navigating-networking-comprehensive-reviews-on-the-razer-portal-headset/"><u>Navigating Networking: Comprehensive Reviews on the Razer Portal Headset</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/reversing-video-clips-in-final-cut-pro-tips-and-tricks/"><u>Reversing Video Clips in Final Cut Pro Tips and Tricks</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/streamline-your-workflow-with-the-fujitsu-scansnap-ix1400-the-ultimate-scanner-review-for-smbs-and-home-office-professionals/"><u>Streamline Your Workflow with the Fujitsu ScanSnap iX1400: The Ultimate Scanner Review for SMBs & Home Office Professionals</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-missing-link-comprehensive-review-of-the-samsung-galaxy-tab-a-2020/"><u>The Missing Link: Comprehensive Review of the Samsung Galaxy Tab A (2020)</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-ranked-smart-eyewear-a-comprehensive-guide/"><u>Top-Ranked Smart Eyewear : A Comprehensive Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-ideal-image-packs-selecting-the-best-for-macbook-screens/"><u>[New] Ideal Image Packs Selecting the Best for MacBook Screens</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-review-focused-on-longevity-ergohead-mat-delivers-exceptional-cushioning-for-your-stand-up-office-setup/"><u>A Review Focused on Longevity: Ergohead Mat Delivers Exceptional Cushioning for Your Stand-Up Office Setup</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-itel-a70-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Itel A70</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/consumer-choice-awards-for-external-storage-devices-2024/"><u>Consumer Choice Awards for External Storage Devices - 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/convert-your-mov-files-to-avi-format-for-free-with-movavis-web-based-tool/"><u>Convert Your MOV Files to AVI Format for Free with Movavi's Web-Based Tool</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-applecare-plus-warranty-a-cost-benefit-analysis/"><u>Evaluating AppleCare Plus Warranty: A Cost-Benefit Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experiencing-the-future-with-m1-chip-in-depth-review-and-analysis-of-the-2cuyangaple-macbook-pro-13-2020/"><u>Experiencing the Future with M1 Chip: In-Depth Review and Analysis of the 2Cuyangaple MacBook Pro 13'' (2020)</u></a></li>
+<li><a href="https://fox-that.techidaily.com/improve-iphone-wi-fi-speed-with-these-8-simple-strategies/"><u>Improve iPhone Wi-Fi Speed with These 8 Simple Strategies</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-10-insider-secrets-for-smarter-pixlr-usage/"><u>In 2024, 10 Insider Secrets for Smarter Pixlr Usage</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-complete-guide-on-unlocking-apple-iphone-se-2020-with-a-broken-screen-drfone-by-drfone-ios/"><u>In 2024, Complete Guide on Unlocking Apple iPhone SE (2020) with a Broken Screen? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Tecno Camon 20 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-long-distance-wifi-solutions-to-maximize-connectivity/"><u>Leading Long-Distance WiFi Solutions to Maximize Connectivity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastery-of-mesh-wi-fi-with-tp-link-deco-p9-an-in-depth-analysis-and-review/"><u>Mastery of Mesh Wi-Fi with TP-Link Deco P9: An In-Depth Analysis and Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-to-greatness-find-your-favorite-trailers-at-these-top-7-sites/"><u>Navigating to Greatness: Find Your Favorite Trailers at These Top 7 Sites</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/perfecting-the-art-of-itunes-video-recording/"><u>Perfecting the Art of iTunes Video Recording</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reviewing-the-immersive-gameplay-in-star-wars-squadrons-exhilarating-dogfights/"><u>Reviewing the Immersive Gameplay in Star Wars: Squadrons' Exhilarating Dogfights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/starlink-the-sat-trific-upgrade-top-4-advantages/"><u>Starlink: The SAT-Trific Upgrade - Top 4 Advantages</u></a></li>
+<li><a href="https://windows11.techidaily.com/unlock-the-full-potential-of-taskbar-in-win11/"><u>Unlock the Full Potential of Taskbar in Win11</u></a></li>
 </ul></div>
 

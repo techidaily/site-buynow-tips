@@ -1,7 +1,7 @@
 ---
 title: Inside Look at Apple’s Latest Technological Leap – The Revolutionary M4 Chip Specs & Launch Date
-date: 2024-09-09T06:11:41.254Z
-updated: 2024-09-10T06:11:41.254Z
+date: 2024-11-19T16:43:42.639Z
+updated: 2024-11-24T16:00:38.525Z
 categories:
   - BestProducts
 description: This Article Describes Inside Look at Apple’s Latest Technological Leap – The Revolutionary M4 Chip Specs & Launch Date
@@ -41,14 +41,16 @@ Lifewire/Jeremy Laukkonen
 4.4
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Apple iMac 24-inch (2021)
 
 ![Apple iMac M1 (2021)](https://www.lifewire.com/thmb/BAI9YNWyjZ6YgKDJefSHpykeO4g=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iMacM12021_hero_1-SQ-5394e13bec9349e18a0eebd97ce4b3e4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire/Jeremy Laukkonen
 
@@ -88,12 +90,6 @@ Lifewire/Jeremy Laukkonen
 
 ![iMac M1 (2021)](https://www.lifewire.com/thmb/kWyk_ORWGF4cESW9qR4PB_fq-oU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iMacM12021_3-259902f12007403184368f631caabff7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire/Jeremy Laukkonen
 
  The latter represents a bit of a return to form, as the iMac line was once known for its bright, friendly color options, but the last few iterations have been available only in shades of white, silver, and grey.
@@ -108,30 +104,12 @@ Lifewire/Jeremy Laukkonen
 
 ![Apple iMac M1 (2021)](https://www.lifewire.com/thmb/UXQsm7-2bXrWZaRKJCYnriKsm2Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iMacM12021_5-6ad0711fc0d04f55b6f77624fb1479af.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire/Jeremy Laukkonen
 
  Regardless of which model you’re looking at, the bottom line is the 2021 iMac doesn’t have enough ports. The four Thunderbolt and USB-C ports found on the higher-end model aren’t enough, and the paltry two ports you get with the lower-end model definitely fall short. Expect to invest in a USB-C hub if you don’t already have one.
 
  While the jump to Apple silicon is the biggest story here, Apple really hit the design out of the park as well. This is an all-in-one that looks great from every angle. It’s a shame it’s held back by a few small issues, like a baffling lack of ports, but that doesn’t stop it from looking great on your desk.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Display: Beautiful 24-inch retina display
 
  Apple bumped the screen size from 21.5 inches to 24 inches for the M1 iMac refresh, and the difference is remarkable. Apple refers to the panel as a 4.5K[Retina display](https://www.lifewire.com/what-is-retina-display-2000362) , which translates to a resolution of 4480 x 2520 and a pixel density of 218ppi in terms of hard numbers.
@@ -139,11 +117,9 @@ Lifewire/Jeremy Laukkonen
  Colors also look fantastic, as the display covers the entire[DCI-P3 gamut](https://www.lifewire.com/what-is-true-tone-display-4048131) , and it’s quite bright as well. I found myself running it at about 60 percent most of the time, despite the big, south-facing windows in my office.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Performance: The M1 chip continues to impress
 
  The 2021 iMac packs in the same M1 chip first seen in the 2020 Mac mini and MacBooks, and it’s just as impressive here. The version of the hardware I tested came with an 8-core CPU and 7-core GPU, but you can also get the 2021 iMac with an 8-core GPU if you need the extra performance.
@@ -175,27 +151,17 @@ Lifewire/Jeremy Laukkonen
 ![Apple iMac M1 (2021)](https://www.lifewire.com/thmb/M5SVrQdMYUOt-gMWcR5czP6dNlc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iMacM12021_2-c80d821c9b544a8e939ebba9d01b49ba.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire/Jeremy Laukkonen
 
  The Magic Mouse 2 that comes with the M1 iMac is the same mouse that’s been around since 2015, with one minor tweak. The glass top is still while, but the sides and bottom are color-matched to your iMac. The lightning charger connector is still inexplicably located on the bottom, so you can’t use it while charging, and it feels uncomfortably small in my hand.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Audio: Excellent built-in speakers and decent Bluetooth for wireless headphones
 
  The 2021 iMac packs in a surprisingly competent six-speaker system, with support for spatial audio, into its thin frame. I’m a habitual headphone-and-earbud user, but I found the built-in speakers to be more than adequate in a pinch.
@@ -219,16 +185,18 @@ Lifewire/Jeremy Laukkonen
  In addition to Wi-Fi and wired connections, the M1 iMac also features[Bluetooth 5.0](https://www.lifewire.com/bluetooth-5-4160255) . The Bluetooth connection is primarily used to connect the Magic Keyboard and Magic Mouse 2, but I also used it with a pair of AirPods Pro and my Avantree Ario Podio headphones. Sound quality and range were both excellent thanks to the Bluetooth 5.0 support, and I was able to listen to music and podcasts throughout my house.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Camera: 1080P FaceTime camera
 
  The M1 iMac packs in a 1080P full HD[FaceTime](https://www.lifewire.com/what-is-facetime-2000237) camera that’s backed up by Apple’s M1 image signal processor. In practical terms, the camera turns in a uniformly decent image in a variety of light conditions—including low light where a lot of webcams really struggle. It’s a big improvement over the camera included with the MacBook Pro, although the image can look a bit soft or washed out in some lighting conditions.
 
  Paired with the improved camera, the M1 iMac also includes a massively improved built-in microphone array. The three high-quality microphones leverage directional beamforming and a high signal-to-noise ratio to turn in surprisingly good results.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Software: Big Sur with some beautiful custom backgrounds
 
@@ -239,11 +207,9 @@ Lifewire/Jeremy Laukkonen
  Photoshop and other popular apps are slated to eventually get M1 support, but I’ve found Rosetta 2 to deliver more than acceptable performance in the meantime.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What’s New: Apple’s M1 chip and a visual refresh
 
  The iMac (2021) has received a laundry list of changes and updates since the last entry in the line back in 2016\. The biggest news is the inclusion of Apple silicon in the form of the M1 chip, but that’s only the tip of the iceberg.
@@ -258,12 +224,6 @@ Lifewire/Jeremy Laukkonen
 
 Lifewire/Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## M1 iMac (2021) vs. M1 Mac mini
 
  This might seem like an odd comparison, but it’s an important one. The 2021 iMac and 2020 Mac mini have very similar hardware, with the major difference being the iMac is an all-in-one with a beautiful display, while the Mac mini doesn’t have a built-in display.
@@ -284,12 +244,6 @@ Lifewire/Jeremy Laukkonen
 * [Apple Mac mini (M1, 2020)](https://www.lifewire.com/mac-mini-m1-apple-review-5092828)
 * [Apple MacBook Air 13-inch (M1, 2020)](https://www.lifewire.com/macbook-air-13-inch-m1-2020-review-5092793)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  iMac 24-inch (2021)
@@ -317,8 +271,6 @@ Lifewire/Jeremy Laukkonen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -326,4 +278,20 @@ Lifewire/Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-master-the-art-of-video-annotation-using-markers-with-ease/"><u>[New] In 2024, Master the Art of Video Annotation Using Markers with Ease</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-beat-weavers-treasury-high-res-dj-visual-samples-for-2024/"><u>[New] The Beat Weaver's Treasury High-Res DJ Visual Samples for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-foundation-for-success-equipping-new-channels/"><u>[New] The Foundation for Success Equipping New Channels</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-your-path-to-perfect-videos-with-any-of-these-7-free-tools/"><u>[Updated] 2024 Approved Your Path to Perfect Videos with Any of These 7 Free Tools</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-engaging-cycles-perfecting-the-instagram-loop-craft/"><u>2024 Approved Engaging Cycles Perfecting the Instagram Loop Craft</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/cookiebot-driven-growth-unleashing-potential-through-advanced-marketing-automation-tools/"><u>Cookiebot-Driven Growth: Unleashing Potential Through Advanced Marketing Automation Tools</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortless-steps-to-upgrade-your-synaptics-ps2-mousepad-driver-in-no-time/"><u>Effortless Steps to Upgrade Your Synaptics PS/2 Mousepad Driver in No Time</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/to-sonoma-or-not-on-my-mac-making-the-choice/"><u>To Sonoma or Not on My Mac? Making the Choice</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-leading-cordless-phones/"><u>Ultimate Selection: Leading Cordless Phones</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleash-your-inner-performer-a-guide-to-choosing-the-best-karaoke-equipment-for-202n4/"><u>Unleash Your Inner Performer: A Guide to Choosing the Best Karaoke Equipment for 202N4!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleash-your-potential-with-fitbit-versa-3-powered-by-in-built-gps-and-advanced-health-apps/"><u>Unleash Your Potential with Fitbit Versa 3 - Powered by In-Built GPS & Advanced Health Apps</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-daylights-dawn-expert-insights-on-the-heimvision-alarm-clock-a80-series/"><u>Unveiling Daylight's Dawn: Expert Insights on the HeimVision Alarm Clock A80 Series</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/upcoming-release-date-everything-you-need-to-know-about-the-latest-airpods-how-and-where-to-place-your-preorder/"><u>Upcoming Release Date: Everything You Need to Know About the Latest AirPods - How & Where to Place Your Preorder</u></a></li>
+</ul></div>
 

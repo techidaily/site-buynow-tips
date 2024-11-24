@@ -1,7 +1,7 @@
 ---
 title: Microsoft Surface Go Review
-date: 2024-11-08T00:06:53.100Z
-updated: 2024-11-14T21:14:22.607Z
+date: 2024-11-20T20:07:02.362Z
+updated: 2024-11-24T17:54:41.313Z
 categories:
   - BestProducts
 description: This Article Describes Microsoft Surface Go Review
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/O0Cyh5NwiSO2LW6YwP7Ceow5hDQ=/400x300/fi
 ## Microsoft Surface Laptop 4
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/XootaRyVCeCUWEitc2sglk8R7ko=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Microsoft-Surface-Laptop-4-1-6dfa98797a3d4223834c350422c3cb57.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -39,13 +43,6 @@ Lifewire / Matthew S. Smith
 [View On Amazon $382](https://www.amazon.com/dp/B08YWX4W7G?tag=lifewire-onsite-prod-20&ascsubtag=5181480%7Cn9a1b82f25e9b40b2a6b61c30f0b23e4916%7CB08YWX4W7G) [View On Walmart $595](https://www.walmart.com/ip/Microsoft-Surface-Laptop-4-13-5-Touch-Screen-AMD-Ryzen-5-Surface-Edition-8GB-Memory-256GB-Solid-State-Drive-Latest-Model-Platinum/785353210?slfpid=3) [View On Best Buy $600](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6455189.p)
 
 4.5
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Microsoft Surface Laptop 4
 
@@ -88,13 +85,6 @@ Lifewire / Matthew S. Smith
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/LKKMWXF9Y9QgcLz3uT0B5mx2h-Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-6-d4eff9347d784715b769c5bc6a8d196e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Matthew S. Smith
 
  Microsoft’s minimalist aesthetic has aged well, too. Clean, sharp lines and expanses of smooth, matte metal define the laptop, providing a luxurious yet professional look. It’s easy to forget the Surface Laptop 4, though not a budget laptop, undercuts the more luxurious pricing of ThinkPad and Dell XPS models.
@@ -113,6 +103,10 @@ Lifewire / Matthew S. Smith
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/R0s49jnCo3YtH06-VrsuVbmKx0c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-2-2ba46ec5877c4c809b945380501eaf44.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Matthew S. Smith
 
  Brightness is an issue. The Surface Laptop 4’s maximum brightness on battery power is roughly 40 percent less than when connected to a wall socket. Many laptops reduce brightness on battery power, but this is more aggressive than usual. To make matters worse, the mirror-like screen does nothing to reduce reflections. Outdoors use is unpleasant and even a bright, sunlit window creates enough glare to be a distraction.
@@ -120,13 +114,6 @@ Lifewire / Matthew S. Smith
  Brightness is an issue. The Surface Laptop 4’s maximum brightness on battery power is roughly 40 percent less than when connected to a wall socket.
 
  The touchscreen is compatible with the Surface Pen. This isn’t especially useful given that the Surface Laptop 4 is, well, a laptop, but it’s nice to have the option. I often use the touchscreen as an alternative to the touchpad in casual use, like online shopping or watching YouTube.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Performance: AMD and Intel options hold their own
 
@@ -144,6 +131,10 @@ Lifewire / Matthew S. Smith
 
  Still, the Surface Laptop 4 can handle basic gaming needs. Titles like Minecraft and Fortnite are enjoyable at modest detail settings. Newer, demanding games like Metro Exodus are technically playable, but you’ll have to set detail to low and play at a reduced resolution. Even then, you may see hiccups and stutters while playing.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Productivity: A portable multitasking powerhouse
 
  The 3:2 display aspect ratio not only dominates the Surface Laptop 4’s design, but also its functionality in day-to-day use. It offers 12 percent more screen space than a 13.3-inch with a 16:9 aspect ratio. Most 13-inch laptops can’t comfortably fit two documents side-by-side, but this works well on the Laptop 4.
@@ -156,22 +147,23 @@ Lifewire / Matthew S. Smith
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/ZfUq7KgSBkLGGlcycJhWShrQqeg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-5-cc97b158ae2a4aad85a9527ff97d0a76.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Matthew S. Smith
 
  The Surface Laptop 4’s touchpad is large, measuring four and a half inches wide by three inches deep. It’s responsive but doesn’t pick up unintended input. Multi-touch gestures work extremely well, helping you get the most out of[Windows’ underrated multitasking touchpad shortcuts](https://www.lifewire.com/how-to-use-windows-10-touchpad-gestures-4587314) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Audio: Going loud
 
  The Surface Laptop 4 has punchy speakers with excellent volume. There’s great separation between lows, mids, and highs, which avoids the muddy sound that is common to many laptops as speaker volume nears maximum. There’s no subwoofer, so bass can sound flat, but the Laptop 4 provides some sense of depth without overwhelming the rest of the track you’re enjoying.
 
  The speakers are[Dolby Atmos-certified](https://www.lifewire.com/dolby-atmos-cinema-to-home-theater-1847278) and, for once, this has meaning. Movies and TV shows sound great. Dialogue is clear and crisp, yet explosions are impactful. Crisp dialogue also translates to great performance in podcasts. Ramping up volume to maximum let me listen to a podcast while moving around my house, something that normally isn’t possible with a laptop.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Network: Great Wi-Fi, but can we get LTE?
 
@@ -185,13 +177,6 @@ Lifewire / Matthew S. Smith
 
  An IR camera is standard, so[Windows Hello](https://www.lifewire.com/what-is-windows-hello-4782168) facial recognition login is supported. This feature is easy to enable and extremely quick once set up. It works well in poor or uneven lighting.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Battery: It’s good, but don’t believe the hype
 
  Microsoft says the Surface Laptop 4 will last up to 19 hours on a charge. The laptop might be capable of hitting that number, but it’s misleading. Real-world battery life is much less than Microsoft’s ads would have you believe.
@@ -204,16 +189,13 @@ Lifewire / Matthew S. Smith
 
  You can drain the battery more quickly, however. I used the laptop for an hour-long session of heavier photo editing in GIMP and chewed through about 20 percent of the battery. This is a downside of the laptop’s fast six-core processor.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Software: Keep It Stock
 
  The Surface Laptop 4 ships with[Windows 10 Home](https://www.lifewire.com/windows-10-home-vs-pro-4177144) installed. There’s otherwise not much to say about the software which, for most people, will be good news. The Laptop 4’s stock Windows installation has zero bloatware.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Price: It’s not cheap, but it’s good value
 
@@ -223,13 +205,6 @@ Lifewire / Matthew S. Smith
 
  This is similar to Apple’s approach with the MacBook Air; even the base model is great. Dell’s XPS 13 is a different story. It starts at $1,000, but the base model has a lackluster Intel Core i3 processor. Upgrading to the Intel Core i5 sets you back another $100.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What’s New: A small, useful upgrade
 
  The 13.5-inch models of the Surface Laptop 3 and Laptop 4 are nearly identical in design, connectivity, display, keyboard, and touchpad. Most changes are under the hood, as the Laptop 4 receives new AMD and Intel processors. These extend battery life and provide a small boost in performance.
@@ -237,6 +212,10 @@ Lifewire / Matthew S. Smith
  Microsoft sells the Laptop 3 starting at $800\. Seems like a deal, right? But here’s the thing: the base Laptop 3 has a 128GB solid-state drive, while the base Laptop 4 has a 256GB drive. The real difference is only $100 because the Laptop 3’s price jumps to $900 with the storage upgrade.
 
  I think most buyers will be happy with either laptop, but the Laptop 4’s performance feels worth the extra $100\.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Microsoft Surface Laptop 4 vs. Apple MacBook Air
 
@@ -261,6 +240,10 @@ Lifewire / Matthew S. Smith
 * [Microsoft Surface Laptop Go](https://www.lifewire.com/microsoft-surface-laptop-go-review-5088869)
 * [Microsoft Surface Pro 7](https://www.lifewire.com/microsoft-surface-pro-7-review-4797020)
 * [Microsoft's Surface Laptop 2](https://www.lifewire.com/microsoft-surface-laptop-2-review-4779760)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -296,19 +279,18 @@ Lifewire / Matthew S. Smith
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-audio-interpretation-software-zero-cost-version/"><u>[New] 2024 Approved Audio Interpretation Software – Zero Cost Version</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-brain-mechanisms-guiding-high-stakes-business-conclusions/"><u>[New] In 2024, Brain Mechanisms Guiding High-Stakes Business Conclusions</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-slomo-visual-delight-thorough-assessment-release/"><u>[Updated] SloMo Visual Delight Thorough Assessment Release</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-top-9-free-custom-youtube-branding-tools-online/"><u>[Updated] Top 9 FREE Custom YouTube Branding Tools Online</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/demons-souls-reimagined-reviewing-a-masterpiece-with-modernized-graphic-touches/"><u>Demon's Souls Reimagined - Reviewing a Masterpiece with Modernized Graphic Touches</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/economical-streaming-solutions-a-closer-look-at-rokus-wide-selection-and-affordable-pricing/"><u>Economical Streaming Solutions: A Closer Look at Roku's Wide Selection and Affordable Pricing</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-huawei-nova-y91-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Huawei Nova Y91 Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-minimal-effort-maximum-recovery-for-deleted-posts/"><u>In 2024, Minimal Effort, Maximum Recovery for Deleted Posts</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Sony Xperia 10 V | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-samsung-galaxy-s23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Samsung Galaxy S23 | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-top-five-handheld-consoles-for-gamers/"><u>The Top Five Handheld Consoles for Gamers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-8-must-play-apps-available-on-google-play-pass/"><u>Top 8 Must-Play Apps Available on Google Play Pass</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-keyboard-cushion-supports-for-optimal-comfort-in-234/"><u>Top-Rated Keyboard Cushion Supports for Optimal Comfort in 2^34</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/unveiling-the-leading-mac-speech-recorders-our-curated-list-of-5/"><u>Unveiling The Leading Mac Speech Recorders Our Curated List of 5</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-a-step-by-step-guide-to-mp4-and-beyond-vlc-conversions-for-2024/"><u>[New] A Step-by-Step Guide to MP4 and Beyond VLC Conversions for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-navigating-instagrams-personalization-settings-for-2024/"><u>[Updated] Navigating Instagram's Personalization Settings for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/aoc-e1659fwu-driver-update-for-windows-107/"><u>AOC E1659FWU Driver Update for Windows 10/7</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/assassins-vikings-and-empire-domination-the-ultimate-review-of-assassins-creed-valhalla/"><u>Assassins, Vikings, and Empire Domination: The Ultimate Review of Assassin's Creed: Valhalla</u></a></li>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-oneplus-ace-2-pro-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on OnePlus Ace 2 Pro Devices | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/high-quality-harmony-premier-devices-s-music-lovers/"><u>High-Quality Harmony: Premier Devices 'S Music Lovers</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-fix-the-out-of-video-memory-error-in-fortnite-complete-solution/"><u>How to Fix the 'Out of Video Memory' Error in Fortnite - Complete Solution</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-motorola-defy-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Motorola Defy 2? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-achieving-stunning-iphone-hdr-results/"><u>In 2024, Achieving Stunning iPhone HDR Results</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-amazonbasics-7-port-usb-hub-boost-your-devices-functionality/"><u>In-Depth Look at the AmazonBasics 7-Port USB Hub - Boost Your Device's Functionality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/softwares-evolution-the-art-of-small-tweaks-vs-bold-changes/"><u>Software's Evolution: The Art of Small Tweaks vs Bold Changes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-premium-showdown-how-the-ipad-air-4-stacks-up-to-the-samsung-galaxy-tab-s7plus/"><u>The Premium Showdown: How the iPad Air 4 Stacks Up to the Samsung Galaxy Tab S7+</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-troubleshooting-tips-for-fixing-dsounddll-file-not-found-issues/"><u>Ultimate Troubleshooting Tips for Fixing 'dSound.dll' File Not Found Issues</u></a></li>
 </ul></div>
 

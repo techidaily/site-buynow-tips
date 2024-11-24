@@ -1,7 +1,7 @@
 ---
 title: "Reviewing the Ambient Weather WS-10002-WiFi Sensor: A Look at Its Quality and Pricing Structure"
-date: 2024-09-09T06:18:27.788Z
-updated: 2024-09-10T06:18:27.788Z
+date: 2024-11-20T19:19:58.066Z
+updated: 2024-11-24T19:31:08.648Z
 categories:
   - BestProducts
 description: "This Article Describes Reviewing the Ambient Weather WS-10002-WiFi Sensor: A Look at Its Quality and Pricing Structure"
@@ -14,21 +14,17 @@ thumbnail: https://thmb.techidaily.com/dc54f112c78b3afb0110331eb25c5f493a4d3b214
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/6eJwPC0xPwMxCh4aQhG73X9dkzU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
  What We Like
@@ -94,6 +90,10 @@ Lifewire / Erika Rawes
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Almost two dozen channels**
 
  The Antop AT-127 supports UHF and VHF signals. Overall, it works pretty smoothly, though some channels might have look pixelated for a few seconds when you flip to them or take a second or two to fully load.
@@ -103,25 +103,15 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Range: Could be better**
 
  My test home is in a rural area, and there’s a lot of tree cover on the property. The omnidirectional Antop AT-127 has a 40-mile range, which was enough to pick up local channels from neighboring cities.
@@ -130,18 +120,6 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
@@ -150,12 +128,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
  You can find indoor antennas for less than $15 (view on[Amazon](https://www.amazon.com/dp/B075ZQXB26/?tag=lifewire-onsite-prod-20&ascsubtag=4845583%7Cna0f30cabffec4337b279a8df3e4c99b015%7C) ). The[AmazonBasics](https://www.lifewire.com/amazonbasics-flat-tv-antenna-review-4845569) 35-mile range antenna is a good example, though it doesn’t come with a stand or have the easy-push connector. Aesth etically, the AmazonBasics antenna doesn’t hold a candle to the Antop antenna, but it does cost significantly less.
@@ -166,18 +138,6 @@ Lifewire / Erika Rawes
 
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
 
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  AT-127
@@ -194,14 +154,11 @@ Lifewire / Erika Rawes
 * Screen Resolution  1080p
 * Connectivity Options  Quick push “E-Z connect” F connector (coaxial cable)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -210,4 +167,21 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-screen-capture-expertise-3-cost-free-methods/"><u>[New] Screen Capture Expertise 3 Cost-Free Methods</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-ace-your-edits-youtube-studios-time-saving-secrets-revealed/"><u>[Updated] In 2024, Ace Your Edits YouTube Studio's Time-Saving Secrets Revealed</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-polarr-editor-unveiled-ultimate-visual-transformation/"><u>[Updated] In 2024, Polarr Editor Unveiled Ultimate Visual Transformation</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-shop-for-the-cheapest-cloud-storage-step-by-step/"><u>2024 Approved How to Shop for the Cheapest Cloud Storage, Step by Step</u></a></li>
+<li><a href="https://extra-support.techidaily.com/prospects-picks-the-highest-livestream-sites-for-2024/"><u>Prospects' Picks The Highest Livestream Sites for 2024</u></a></li>
+<li><a href="https://win-superb.techidaily.com/reviving-your-drive-saras-expert-guide-on-using-aomei-software-tools/"><u>Reviving Your Drive: Sara's Expert Guide on Using AOMEI Software Tools</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-lenovo-tab-m10-hd-2020-affordable-powerful-tablet-for-online-browsing-and-streaming-entertainment/"><u>The Ultimate Guide to the Lenovo Tab M10 HD (2020): Affordable, Powerful Tablet for Online Browsing and Streaming Entertainment</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/thor-vs-jormungandr-ragnaroks-eve-for-2024/"><u>Thor vs Jormungandr Ragnarok's Eve for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-mesh-wi-fi-setups-the-ultimate-guide/"><u>Top Rated Mesh Wi-Fi Setups: The Ultimate Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-reviews-for-the-netgear-nighthawk-x6-ac3200s-tri-band-wifi-speed-and-user-friendly-design-perfect-for-households/"><u>Top Reviews for the Netgear Nighthawk X6 - AC3200's Tri-Band WiFi Speed and User-Friendly Design Perfect for Households</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-tablets-compared-in-depth-review-of-apple-ipad-air-(ipad)-and-samsung-galaxy-tab-s7plus/"><u>Top Tablets Compared: In-Depth Review of Apple iPad Air <|iPad> and Samsung Galaxy Tab S7+</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-servers-and-storage-racks-the-ultimate-list-for-2bestserverenclosuresin2024-a-comprehensive-guide/"><u>Top-Rated Servers & Storage Racks - The Ultimate List for 2#BestServerEnclosuresIn2024: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/turbo-speed-readers-guide-to-automotive-advancements-top-cars-technology-and-reading-resources-of-the-year-rev/"><u>Turbo-Speed Reader's Guide to Automotive Advancements - Top Cars, Technology & Reading Resources of the Year (Rev.)</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-narakeet-review-text-to-speech-convenient-voice-maker/"><u>Updated In 2024, Narakeet Review Text to Speech Convenient Voice Maker</u></a></li>
+</ul></div>
 

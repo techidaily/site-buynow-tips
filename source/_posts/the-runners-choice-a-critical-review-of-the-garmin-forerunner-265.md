@@ -1,7 +1,7 @@
 ---
 title: The Runner's Choice? - A Critical Review of the Garmin Forerunner 265
-date: 2024-11-09T08:51:25.408Z
-updated: 2024-11-15T03:48:42.363Z
+date: 2024-11-23T19:39:27.620Z
+updated: 2024-11-24T17:17:21.968Z
 categories:
   - BestProducts
 description: This Article Describes The Runner's Choice? - A Critical Review of the Garmin Forerunner 265
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/cqe4AOlmHazUKa_4vZ1ipCp_YuQ=/400x300/fi
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/AyUAqIhKcHESYKlEswC1pUtS1Po=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -37,15 +41,16 @@ Lifewire / Jonno Hill
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
@@ -71,18 +76,15 @@ Lifewire / Jonno Hill
 
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Basic but effective**
 
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
 
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup: Dead simple**
 
@@ -93,13 +95,6 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna wasn’t the highest performing antenna that I tested, even among similar unpowered antennas. In my channel acquisition test, the Leaf picked up 56 channels on average across all the iterations performed.
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Range: Fairly limited**
 
@@ -121,10 +116,7 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -154,24 +146,22 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-navigating-network-growth-strategies-for-instagram-success/"><u>[New] 2024 Approved Navigating Network Growth Strategies for Instagram Success</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-podcast-preludes-crafting-irresistible-openings-for-2024/"><u>[New] Podcast Preludes Crafting Irresistible Openings for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-screensnapper-how-to-record-your-movies-on-tech-gear-for-2024/"><u>[New] ScreenSnapper How to Record Your Movies on Tech Gear for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-direct-video-tweet-to-twitter-via-smartphone-no-retweeting-for-2024/"><u>[Updated] Direct Video Tweet to Twitter via Smartphone No Retweeting for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/2023s-elite-picks-for-competitive-gaming-screens/"><u>2023'S Elite Picks for Competitive Gaming Screens</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/2023s-most-reliable-and-advanced-bluetooth-finders-reviewed-choose-wisely/"><u>2023'S Most Reliable and Advanced Bluetooth Finders Reviewed: Choose Wisely!</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-instantaneously-engaging-audiences-how-obs-simplifies-instagram-streams/"><u>2024 Approved Instantaneously Engaging Audiences How OBS Simplifies Instagram Streams</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/beyond-the-viewfinder-top-6-android-and-ios-video-apps/"><u>Beyond the Viewfinder Top 6 Android and iOS Video Apps</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/essential-high-tech-christmas-gifting-ideas-a-selection-curated-by-how-to-geek/"><u>Essential High-Tech Christmas Gifting Ideas - A Selection Curated by How-To Geek</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-reviews-discover-the-ideal-mirrorless-lens-selection-for-enthusiasts/"><u>Expert Reviews: Discover the Ideal Mirrorless Lens Selection for Enthusiasts</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-vivo-t2-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Vivo T2 5G without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/most-innovative-laptop-add-ons-for-a-superior-tech-experience-2024-edition/"><u>Most Innovative Laptop Add-Ons for a Superior Tech Experience - 2024 Edition</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/performance-powerhouses-top-performing-internal-ssds-of-2023-unveiled/"><u>Performance Powerhouses: Top Performing Internal SSDs of 2023 Unveiled</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/step-by-step-guide-transforming-your-apple-watch-display-with-custom-faces-tips-from-zdnet/"><u>Step-by-Step Guide: Transforming Your Apple Watch Display with Custom Faces - Tips From ZDNet</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/troubleshoot-facebook-live-pause-strategies-for-smooth-broadcasts/"><u>Troubleshoot Facebook Live Pause Strategies for Smooth Broadcasts</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-of-durable-samsung-galaxy-phone-cases-for-2e23-your-buying-checklist/"><u>Ultimate Selection of Durable Samsung Galaxy Phone Cases for 2E23 - Your Buying Checklist</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-the-most-innovative-apple-airtag-add-ons/"><u>Ultimate Selection: The Most Innovative Apple AirTag Add-Ons</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unbeatable-pc-ventilation-systems-discover-the-premier-picks/"><u>Unbeatable PC Ventilation Systems: Discover the Premier Picks</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Tecno Pop 8 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/outube-image-techniques-for-engaging-views/"><u>[New] YouTube Image Techniques for Engaging Views</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-craftsmanship-in-photos-and-videos-the-ultimate-8-mobile-enhancement-tools-for-2024/"><u>[Updated] Craftsmanship in Photos & Videos The Ultimate 8 Mobile Enhancement Tools for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-starting-out-key-equipment-and-software-for-vlogging-for-2024/"><u>[Updated] Starting Out Key Equipment & Software for Vlogging for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-essentials-of-using-azures-voice-recognition/"><u>[Updated] The Essentials of Using Azure's Voice Recognition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-ranking-top-performing-exterior-blu-ray-burners-of-2024/"><u>Comprehensive Ranking: Top-Performing Exterior Blu-Ray Burners of 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-lenovo-thinkpad-x1-titanium-yoga-why-its-a-must-have-for-traditional-thinkpad-lovers/"><u>Comprehensive Review of the Lenovo ThinkPad X1 Titanium Yoga: Why It's a Must-Have for Traditional ThinkPad Lovers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-hp-stream-11-power-efficient-portable-computing-solution/"><u>Discover the HP Stream 11 - Power Efficient, Portable Computing Solution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/docooler-12-megapixel-usb-cam-a-comprehensive-evaluation-and-truth-behind-performance-claims/"><u>Docooler 12 Megapixel USB Cam: A Comprehensive Evaluation & Truth Behind Performance Claims</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-bcm20702a0-controller-download-for-windows-fast-install-guide/"><u>Easy BCM20702A0 Controller Download for Windows - Fast Install Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/edit-and-enhance-photos-effortlessly-using-apples-preview-software/"><u>Edit and Enhance Photos Effortlessly Using Apple’s Preview Software</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expertly-crafted-2024-online-education-modules-on-linkedin-learning-platform/"><u>Expertly Crafted 2024 Online Education Modules on LinkedIn Learning Platform</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-evaluating-live-stream-giants-twitch-and-youtube/"><u>In 2024, Evaluating Live Stream Giants Twitch & YouTube</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-secure-your-content-copyright-checks-before-tiktok-sharing/"><u>In 2024, Secure Your Content Copyright Checks Before TikTok Sharing</u></a></li>
+<li><a href="https://win-dash.techidaily.com/quick-and-simple-find-and-update-your-canon-printerscanner-drivers-for-windows/"><u>Quick & Simple: Find and Update Your Canon Printer/Scanner Drivers for Windows!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-performance-review-exploring-linksys-wrt3200acm-a-leading-open-source-router-option/"><u>Top Performance Review: Exploring Linksys WRT3200ACM - A Leading Open-Source Router Option</u></a></li>
+<li><a href="https://some-tips.techidaily.com/ultimate-guide-to-optimal-key-binding-tools-on-windows-systems/"><u>Ultimate Guide to Optimal Key Binding Tools on Windows Systems</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-choosing-the-ideal-long-range-router-of-2024/"><u>Ultimate Guide: Choosing the Ideal Long Range Router of 2024</u></a></li>
 </ul></div>
 
