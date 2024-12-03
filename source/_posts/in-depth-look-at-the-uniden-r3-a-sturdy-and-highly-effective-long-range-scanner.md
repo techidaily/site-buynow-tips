@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Look at the Uniden R3: A Sturdy and Highly Effective Long-Range Scanner"
-date: 2024-09-11T07:59:21.311Z
-updated: 2024-09-14T22:38:01.913Z
+date: 2024-11-25T22:59:15.724Z
+updated: 2024-12-03T08:47:16.958Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Look at the Uniden R3: A Sturdy and Highly Effective Long-Range Scanner"
@@ -13,9 +13,17 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Dying Light
 
 ![Dying Light](https://www.lifewire.com/thmb/ExEFo7aByvSphU-Qxeq8zUjf8lk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -64,7 +72,15 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/_0yEidfS3S4dy57s584t378TZYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-5-4ec68914607c4b56acff25a78887af7f.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Straight into the action**
 
@@ -73,13 +89,6 @@ Lifewire / Kelsey Simon
 ![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
 
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Plot: A character torn between obligation and friendship**
 
@@ -94,10 +103,7 @@ Harran is a whole different city at night.
 ![Dying Light](https://www.lifewire.com/thmb/8G35q3VsoSEuht_3bqsGm0Pwz-0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-7-d9d2bbe8881e476f8dfb3c13059634ed.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -118,13 +124,6 @@ Harran is a whole different city at night.
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Graphics: Attention to detail**
 
  The graphics of Dying Light compare well to other triple-A titles, though it feels like the developers took more care with the scenery than the characters. Human models look a little plasticky, but the world around you is textured beautifully and rich with small details like posters and graffiti that help make the world around you feel real.
@@ -134,6 +133,10 @@ Harran is a whole different city at night.
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Worth the cost, especially with a friend**
 
@@ -170,5 +173,24 @@ Harran is a whole different city at night.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-effortless-tricks-for-capturing-instagram-stories/"><u>[Updated] 2024 Approved Effortless Tricks for Capturing Instagram Stories</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevating-engagement-best-video-ideas-for-channels/"><u>[Updated] In 2024, Elevating Engagement Best Video Ideas for Channels</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-nostalgic-snapshots-from-your-camera-roll-on-snapchat/"><u>[Updated] In 2024, Nostalgic Snapshots From Your Camera Roll on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-jumpstart-your-snapchat-learn-to-create-top-boomers-for-2024/"><u>[Updated] Jumpstart Your Snapchat Learn to Create Top Boomers for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-visualsizetweak-mastering-your-instagram-media/"><u>[Updated] VisualSizeTweak Mastering Your Instagram Media</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-comparing-digital-dimensions-metaverse-and-multiverse/"><u>2024 Approved Comparing Digital Dimensions Metaverse & Multiverse</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-tecno-pop-8-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Tecno Pop 8 Location by Number | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-apple-iphone-se-2020-by-drfone-ios/"><u>In 2024, Top 11 Free Apps to Check IMEI on Apple iPhone SE (2020)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/step-by-step-tutorial-on-capturing-and-preserving-images-in-microsoft-word/"><u>Step-by-Step Tutorial on Capturing & Preserving Images in Microsoft Word</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-battle-contrasting-nintendos-compact-switch-lite-with-its-new-oled-counterpart/"><u>The Ultimate Battle: Contrasting Nintendo's Compact Switch Lite with Its New OLED Counterpart</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-using-petsafes-automatic-feeder-for-optimal-pet-nutrition-and-weight-management/"><u>The Ultimate Guide to Using PetSafe's Automatic Feeder for Optimal Pet Nutrition and Weight Management</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-list-of-top-8-games-for-androids-google-play-pass-subscribers/"><u>The Ultimate List of Top 8 Games for Android's Google Play Pass Subscribers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-wireless-telephones/"><u>Top-Rated Wireless Telephones</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/trailblazing-car-key-deciphering-specialists-2024/"><u>Trailblazing Car Key Deciphering Specialists, 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-choosing-a-high-performance-compact-gaming-pc/"><u>Ultimate Guide: Choosing a High-Performance Compact Gaming PC</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unboxing-the-asus-chromebook-c202-sa-a-review-on-its-suitability-for-students-and-children/"><u>Unboxing the Asus Chromebook C202 SA: A Review on Its Suitability for Students & Children</u></a></li>
+<li><a href="https://techidaily.com/xiaomi-won-t-play-mkv-movies-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Xiaomi won’t play MKV movies</u></a></li>
+</ul></div>
 

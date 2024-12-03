@@ -1,7 +1,7 @@
 ---
 title: "J5 Tactical V1-Pro Assessed: Exceptional Resilience in a Compact Nightlight Design Review"
-date: 2024-09-11T08:38:46.400Z
-updated: 2024-09-15T09:25:57.171Z
+date: 2024-11-30T03:01:18.339Z
+updated: 2024-12-03T00:32:01.760Z
 categories:
   - BestProducts
 description: "This Article Describes J5 Tactical V1-Pro Assessed: Exceptional Resilience in a Compact Nightlight Design Review"
@@ -40,6 +40,10 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/0gXsFyigpZzsnNAEj3tIrKImB8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Jonno Hill
 
 [View On Amazon $35](https://www.amazon.com/dp/B01HQ4BRIG/?tag=lifewire-onsite-prod-20&ascsubtag=4843098%7Cnd0143d72158b4d609e6ef9a213c7445e18%7CB01HQ4BRIG) [View On Walmart $33](https://www.walmart.com/ip/Antennas-Direct-ECL-Clear-Stream-Eclipse-Sure-Grip-Indoor-HDTV-Antenna/146091443?slfpid=3)
@@ -77,29 +81,9 @@ Lifewire / Jonno Hill
 
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
 
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Above average**
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Range: Fair to middling**
 
@@ -108,17 +92,22 @@ Lifewire / Jonno Hill
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
 
@@ -129,6 +118,10 @@ Lifewire / Jonno Hill
 **The best unpowered indoor antenna.**
 
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -155,5 +148,26 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-cutting-edge-fb-video-ads-mastery-with-free-toolset/"><u>[New] In 2024, Cutting-Edge FB Video Ads Mastery with FREE Toolset</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-unveiling-8-leading-cost-effective-open-source-video-solutions/"><u>[Updated] 2024 Approved Unveiling 8 Leading Cost-Effective Open Source Video Solutions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-facebook-frenzy-top-downloader-tools-that-bring-videos-to-life-on-idevices/"><u>[Updated] Facebook Frenzy Top Downloader Tools that Bring Videos to Life on iDevices</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/airpods-and-quest-3-pairing-made-easy-ensure-privacy-while-connecting-headphones-for-a-peaceful-experience-techadvice/"><u>AirPods and Quest 3 Pairing Made Easy: Ensure Privacy While Connecting Headphones for a Peaceful Experience | TechAdvice</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cheetah-dual-arm-tv-mount-review/"><u>Cheetah Dual Arm TV Mount Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-test-drive-of-the-netgear-nighthawk-x4-wireless-mesh-router-system/"><u>Comprehensive Test Drive of the Netgear Nighthawk X4 Wireless Mesh Router System</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/delving-into-the-bose-quiet-control-30-review-revelations/"><u>Delving Into the Bose Quiet Control 30 Review Revelations</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-strength-of-minuscules-with-a-review-on-apples-ipad-mini/"><u>Discovering the Strength of Minuscules with a Review on Apple's iPad Mini</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/explore-the-best-alternatives-for-microsofts-core-apps/"><u>Explore the Best Alternatives for Microsoft's Core Apps</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-tp-link-av2000-remarkable-networking-speeds-marred-by-substandard-appearance/"><u>Exploring the TP-Link AV2000: Remarkable Networking Speeds Marred by Substandard Appearance</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/five-effective-methods-to-fix-steam-store-not-loading-error/"><u>Five Effective Methods to Fix 'Steam Store Not Loading' Error</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/google-nest-wi-fi-review-speedy-seamless-mesh-networking/"><u>Google Nest Wi-Fi Review: Speedy, Seamless Mesh Networking</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Samsung Galaxy A14 4G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-home-climate-sensors-reviewed-find-your-perfect-match/"><u>Leading Home Climate Sensors Reviewed – Find Your Perfect Match</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-8-chart-tracer-apex-of-youtube-rankings-for-2024/"><u>Prime 8 Chart Tracer Apex of YouTube Rankings for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/resolving-windows-update-issue-error-code-0xc004f050/"><u>Resolving Windows Update Issue: Error Code 0xC004F050</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unlocking-potential-a-detailed-breakdown-of-the-amazfit-bip-entry-level-smartwatch/"><u>Unlocking Potential: A Detailed Breakdown of the Amazfit BIP Entry-Level Smartwatch</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlocking-ultra-hd-viewing-with-tcls-budget-friendly-50s425-50-inch-roku-tv-a-thorough-review/"><u>Unlocking Ultra HD Viewing with TCL's Budget-Friendly 50S425 50-Inch Roku TV - A Thorough Review!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-magic-behind-samsungs-tv-un65ru8000fxxa-a-blend-of-intuitive-smart-features-and-captivating-visual-appeal/"><u>Unveiling the Magic Behind Samsung's TV - UN65ru8000fxxa: A Blend of Intuitive Smart Features & Captivating Visual Appeal</u></a></li>
+</ul></div>
 

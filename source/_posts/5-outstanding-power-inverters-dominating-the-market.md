@@ -1,7 +1,7 @@
 ---
 title: 5 Outstanding Power Inverters Dominating the Market
-date: 2024-11-20T18:41:12.762Z
-updated: 2024-11-24T18:49:04.075Z
+date: 2024-11-30T00:31:35.962Z
+updated: 2024-12-02T20:29:27.884Z
 categories:
   - BestProducts
 description: This Article Describes 5 Outstanding Power Inverters Dominating the Market
@@ -12,10 +12,6 @@ thumbnail: https://www.lifewire.com/thmb/sysN2pFtSj99qDMm8__hpVOTqxk=/400x300/fi
 ## Creative Labs Sound Blaster ZXR Unveiled: Analyzing the 2013 Leading Audio Card
 
 2.8
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Creative Sound Blaster ZxR
 
@@ -44,7 +40,7 @@ Lifewire / Emily Ramirez
 2.8
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Creative Sound Blaster ZxR
@@ -81,19 +77,11 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -108,10 +96,14 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
 
@@ -123,6 +115,10 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: Lots of options with mixed utility**
 
  For the tinkerers out there, Sound Blaster provides a myriad of audio adjustments through their Z-Series software package. Here, you can EQ any frequency between 20 and 20,000 Hz or activate “Crystallization,” “Scout Mode,” and “Theater Mode.” Crystallization adds punch to the audio’s treble, making voices stand out against the background. Theater Mode is similar to Crystallization, but it tries to_only_ boost voices instead of the entire treble range. We found it great for watching videos. Meanwhile, Scout Mode is squarely aimed at gamers. It theoretically makes enemy noises like footsteps louder.
@@ -131,9 +127,17 @@ Lifewire / Emily Ramirez
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
 
@@ -154,10 +158,6 @@ Lifewire / Emily Ramirez
 **A good card that’s showing its age.**
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -202,16 +202,16 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-begin-with-vrecorder-seamless-downloads-and-installs/"><u>[New] Begin with VRecorder Seamless Downloads and Installs</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-oppo-a18-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Oppo A18</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/dive-into-savvy-bargain-hunting-with-oodles-free-classified-network/"><u>Dive Into Savvy Bargain Hunting with Oodle's Free Classified Network</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ic-arrangement-of-your-youtube-selections-for-2024/"><u>Dynamic Arrangement of Your YouTube Selections for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Samsung Galaxy A05 | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-nest-audio-evaluation-the-ultimate-sound-experience-for-audiophiles/"><u>In-Depth Nest Audio Evaluation: The Ultimate Sound Experience for Audiophiles</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lg-gram-156-laptop-unveiled-a-marvel-of-enduring-portability-and-extended-use-in-2018/"><u>LG Gram 15.6” Laptop Unveiled: A Marvel of Enduring Portability and Extended Use in 2018</u></a></li>
-<li><a href="https://games-able.techidaily.com/overcoming-debit-card-errors-false-non-acceptance-on-ps5/"><u>Overcoming Debit Card Errors: False Non-Acceptance on PS5</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/1723038940419-review-of-the-lg-gram-arware-power-laptop-unmatched-portability-and-high-performance-in-one-device/"><u>Review of the LG Gram ˈaɪrware POWER Laptop: Unmatched Portability and High Performance in One Device</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/sleek-and-durable-discover-the-full-potential-of-ankere-powercoreplus-26800-battery-pack-expert-review-inside/"><u>Sleek & Durable? Discover the Full Potential of Anker'e PowerCore+ 26800 Battery Pack - Expert Review Inside!</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-resonant-harmony-a-comprehensive-list-of-voice-enhancing-apps-for-all-audiences-and-budgets-for-2024/"><u>Updated Resonant Harmony A Comprehensive List of Voice-Enhancing Apps for All Audiences and Budgets for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-comprehensive-guide-to-io-screen-capture-capabilities/"><u>[New] In 2024, Comprehensive Guide to IO Screen Capture Capabilities</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-unpacking-the-wirecast-experience-and-its-rivals/"><u>[Updated] In 2024, Unpacking the WireCast Experience & Its Rivals</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/ssdintelwindows-1087hdd/"><u>盒子SSD：用Intel品牌的固态驱动器在Windows 10/8/7上进行HDD备份与数据复制—两种有效技术</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/converting-avian-videos-avi-into-graphic-images-gif-using-filmora-for-2024/"><u>Converting Avian Videos (AVI) Into Graphic Images (GIF) Using Filmora for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/discovering-the-essence-of-excellent-screen-capture-with-recmeister/"><u>Discovering the Essence of Excellent Screen Capture with Recmeister</u></a></li>
+<li><a href="https://extra-information.techidaily.com/dreamy-documentaries-bedtime-stories-reviewed/"><u>Dreamy Documentaries Bedtime Stories Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-understanding-the-advanced-features-of-the-ring-video-doorbell-pro/"><u>The Ultimate Guide to Understanding the Advanced Features of the Ring Video Doorbell Pro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-cable-modem-reviews-and-picks-for-2-groovy-2024/"><u>Top Rated Cable Modem Reviews and Picks for 2 Groovy 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-the-latest-bluetooth-handsets-of-2024/"><u>Ultimate Guide to the Latest Bluetooth Handsets of 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unboxing-and-review-the-new-samsung-galaxy-s2ebrity-a-new-model-that-has-been-released-recently-it-offers-a-combination-of-performance-and-style-with-its-sl108/"><u>Unboxing and Review: The New Samsung Galaxy S2ebrity, a New Model that Has Been Released Recently. It Offers a Combination of Performance and Style with Its Sleek Design and Advanced Features. Here Are some Key Points About This Smartphone:</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unboxing-and-testing-the-samsung-qn55q6f-smart-tv-a-comprehensive-4k-hdr-evaluation/"><u>Unboxing and Testing the Samsung QN55Q6F Smart TV: A Comprehensive 4K HDR Evaluation</u></a></li>
 </ul></div>
 

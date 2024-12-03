@@ -1,7 +1,7 @@
 ---
 title: "Review: Why the Samsung UN65NU8000FXZA Feels Mediocre for Its Cost"
-date: 2024-09-12T16:43:46.874Z
-updated: 2024-09-14T23:24:59.339Z
+date: 2024-11-26T06:33:27.438Z
+updated: 2024-12-02T20:50:18.400Z
 categories:
   - BestProducts
 description: "This Article Describes Review: Why the Samsung UN65NU8000FXZA Feels Mediocre for Its Cost"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/0e439fcdc7bdbc260e3f597d59e8a26c3f2c08b51
 ## Bose Frames Audio Sunglasses
 
 ![Bose Frames](https://www.lifewire.com/thmb/4mVgayPIEia4VY4AvaJAoHfTyAc=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_01LW4051794-1-5af9a422af2d4d92b187e87b1bcbb1e7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -88,13 +92,6 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Comfort: Wearable but slightly heavy**
 
  The Bose Frames offer a fairly comfortable fit. While they’re not at all bulky or hefty in the hands, we did notice that wearing them for over an hour did start to feel heavy on the face. We experienced some discomfort particularly in the nose bridge area where the frames pressed into the skin, but this is not an uncommon fit issue with regular sunglasses or glasses.
@@ -104,13 +101,6 @@ Lifewire / Yoona Wagener
  In terms of overall lens quality, we appreciated how rugged they were. They picked up smudges, but scratching was a non-issue even when we dropped the frames on a hardwood floor and left them loose in a bag with keys.
 
  Lifewire / Yoona Wagener
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Sound Quality: Warm but not immersive**
 
@@ -132,6 +122,10 @@ Lifewire / Yoona Wagener
 
  The Bose Connect app is also the place to view current Bose AR ([augmented reality](https://www.lifewire.com/augmented-reality-ar-definition-4155104) ) apps. Clicking on the AR icon in the app leads to what Bose calls the Experience Showcase, which features third-party apps built around music, audio, gaming, sports, and travel experiences.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance:** **Bose AR experience needs some work**
 
  The Bose AR platform is still new and emerging, and as of right now there are only three products that are enabled with the technology: Bose Frames, Bose Headphones 700, and Bose QC35 headphones II. Each of these devices have built-in sensors that pick up on head and body movements and orientation, and this information is used by the AR apps.
@@ -144,6 +138,10 @@ Lifewire / Yoona Wagener
 
  While the Bose AR functionality is a sort of hidden perk of these frames, it still feels like its very much in the early stages. It’s best to temper any high expectations at this point, but the quality of experience and offerings are likely to expand with further development.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price** :**Not exorbitant compared to smart sunglasses**
 
  Both the Bose Rondo and Alto frames are priced at $199.99 MSRP. While this is a bit pricey for a regular sunglasses, these obviously have a lot of additional features. But the price would feel even fairer if the lenses were polarized or could be swapped out with prescription lenses.
@@ -151,6 +149,10 @@ Lifewire / Yoona Wagener
  If you want to pay less for much of the same functionality, the Inventiv Wireless Bluetooth Sunglasses cost about $69 and attempt to mirror the casual look and open-audio experience of the Bose Frames, though with more sound leaking and without the status and reputation of the Bose brand audio technology.
 
  On the other end of the spectrum, the Vuzix Blade Smart Glasses retail for $999.99, but they also perform a wide array of smart functions like recording video, watching media, and snapping pictures. If you’re looking for a compromise that skews more toward stylish and less on the “smart” side of things, the Bose Frames may be the better pick.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Choosing a fit based on your lifestyle**
 
@@ -177,10 +179,7 @@ Lifewire / Yoona Wagener
 * [Bose Noise Cancelling Headphones 700](https://www.lifewire.com/bose-noise-cancelling-headphones-700-review-4770549)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -212,5 +211,22 @@ Lifewire / Yoona Wagener
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-androids-ultimate-guide-to-best-wildlife-games/"><u>[Updated] 2024 Approved Android's Ultimate Guide to Best Wildlife Games</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-easy-dance-routines-to-follow-with-these-20-country-songs-tiktok/"><u>2024 Approved Easy Dance Routines to Follow with These 20 Country Songs (TikTok)</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/6-ingenious-applications-of-the-code-interpretation-function-in-chatgpt-technology/"><u>6 Ingenious Applications of the Code Interpretation Function in ChatGPT Technology</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/bluettis-dramatic-price-drop-the-ultimate-deal-on-portable-power-stations-during-the-major-seasonal-discount-event-insights-by-zdnet/"><u>Bluetti's Dramatic Price Drop: The Ultimate Deal on Portable Power Stations During the Major Seasonal Discount Event - Insights by ZDNet</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-t-view-mkv-movies-content-on-xiaomi-redmi-note-12t-pro-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Can’t view MKV movies content on Xiaomi Redmi Note 12T Pro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-smart-speakers-google-nest-audio-against-apple-homepod/"><u>Comparing Smart Speakers: Google Nest Audio Against Apple HomePod</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/convert-and-edit-wonders-10-best-youtube-tools-feat-audio/"><u>Convert & Edit Wonders 10 Best YouTube Tools Feat. Audio</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/dash-from-wonder-workshop-in-depth-analysis-of-the-revolutionary-interactive-toy/"><u>Dash From Wonder Workshop: In-Depth Analysis of the Revolutionary Interactive Toy</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-apple-ipad-pro-11-inch-2018-the-unrivaled-king-of-high-end-tablets/"><u>In-Depth Analysis: Apple iPad Pro (11-Inch, 2018) - The Unrivaled King of High-End Tablets</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/master-your-network-on-a-budget-comprehensive-review-of-the-tp-link-archer-a6-ac1200-router/"><u>Master Your Network On a Budget: Comprehensive Review of the TP-Link Archer A6 AC1200 Router</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/new-vs-old-benchmarking-samsungs-latest-s23-vs-s21-ultra-unveiled/"><u>New vs Old: Benchmarking Samsung's Latest - S23 vs S21 Ultra Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-tips-on-evaluating-refurbished-devices/"><u>Top Tips on Evaluating Refurbished Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-notch-evaluation-of-the-microsoft-sculpt-keyboard-exceptional-worth-for-money/"><u>Top-Notch Evaluation of the Microsoft Sculpt Keyboard – Exceptional Worth for Money</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/twitmedia-mastery-elevate-your-tweet-game/"><u>TwitMedia Mastery Elevate Your Tweet Game</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/unlocking-sims-4-memories-key-methods-to-document-gameplay-success/"><u>Unlocking Sims 4 Memories Key Methods to Document Gameplay Success</u></a></li>
+</ul></div>
 

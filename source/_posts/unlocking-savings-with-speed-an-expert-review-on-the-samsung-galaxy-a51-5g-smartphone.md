@@ -1,7 +1,7 @@
 ---
 title: Unlocking Savings with Speed - An Expert Review on the Samsung Galaxy A51 5G Smartphone
-date: 2024-11-10T07:16:07.357Z
-updated: 2024-11-14T23:48:54.687Z
+date: 2024-11-29T00:19:06.696Z
+updated: 2024-12-03T11:31:10.896Z
 categories:
   - BestProducts
 description: This Article Describes Unlocking Savings with Speed - An Expert Review on the Samsung Galaxy A51 5G Smartphone
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/Ky_z-S6FX_qHd7dn5bRT5hGTtx8=/400x300/fi
 ## HP Omen Obelisk
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Szj7RCNucny4rfZ6uBlIf8pdeiE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_HP-OMEN-Obelisk-Gaming-Desktop-Computer-1-56ba747009334162a328f46d8b4743af.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -37,22 +41,12 @@ Lifewire / Jonno Hill
 
 4
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## HP Omen Obelisk
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/ltgwwtDrSkLcZMSVU6VX1rKcbaA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_HP-OMEN-Obelisk-Gaming-Desktop-Computer-1-56ba747009334162a328f46d8b4743af.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
@@ -83,7 +77,15 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/OXMiCXvzh8P7esVvbjPoSorzoxM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-2-7b14850c2ca84af39d5fd116ab483d5d.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design** : **Nice looks and small footprint, with many reservations**
 
@@ -106,13 +108,6 @@ Lifewire / Jonno Hill
  The lighting system is also approachable and understated, giving a little bit of customizable flare without going too over the top. As you’ll see later in the software section, HP has made it very straightforward to tweak any of these settings to your satisfaction.
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/gfeGQoUwG35q5t-JwO07Ax4jm5I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-3-f4e655ec9e684a47855e9ee7373ba4b6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
@@ -138,20 +133,21 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Pz9tV-mhJl_Cjm8HSqEQ_VZPbVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-5-cdbd9d78a8c14b8e8bce0113d12e9fcc.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Network** :**Great speeds, but software that doesn’t do much**
 
  The HP Omen Obelisk has gigabit LAN and a Wi-Fi 5 (2x2) networking, the latter supporting a maximum speed of 866 Mbps. Everything functioned smoothly from a networking standpoint during my tests.
 
  I made a point to try out the Network Booster software found in the OMEN Command Center and didn’t see anything tremendously useful, unfortunately. I tried setting the priority of Steam to “Low” and downloading a game, but the game still downloaded at my maximum internet speed. I took it one step further and toggled the “Block” option for Steam, and tried to resume the download, but Steam kept on downloading at the maximum speed. The software was successful in blocking Chrome when that option was switched on, however.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Just enough options**
 
@@ -184,13 +180,6 @@ Lifewire / Jonno Hill
  **High performance and fantastic value, but upsetting thermals.**
 
  The HP OMEN Obelisk delivers fantastic value for gamers shopping for a high-performance, pre-built PC. HP has come a long way, and now offers a much more compelling solution that will appeal to a much broader set of buyers. That said, there is work to be done still, as the case suffers from poor airflow, poor thermals, and not a lot of meaningful ways to improve them.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -226,19 +215,20 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-in-2024-the-ultimate-guide-easy-file-movement-to-pcs/"><u>[New] In 2024, The Ultimate Guide Easy File Movement to PCs</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-navigating-game-capture-in-the-latest-windows-11/"><u>[Updated] In 2024, Navigating Game Capture in the Latest Windows 11</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-secrets-to-viral-meme-innovation/"><u>2024 Approved Secrets to Viral Meme Innovation</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/diy-screen-protector-installation-avoid-spills-and-smudges-with-zdnets-techniques/"><u>DIY Screen Protector Installation: Avoid Spills and Smudges with ZDNet's Techniques</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-naming-your-channel-with-flair-and-individuality/"><u>In 2024, Naming Your Channel with Flair and Individuality</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Nubia Red Magic 9 Pro+? | Dr.fone</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/printer-setup-error-only-blank-sheets-from-epson/"><u>Printer Setup Error: Only Blank Sheets From Epson</u></a></li>
-<li><a href="https://games-able.techidaily.com/1719170191625-step-up-the-challenge-youtube-touts-new-mini-games/"><u>Step Up the Challenge: YouTube Touts New Mini-Games</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-choosing-superior-external-drive-units/"><u>Ultimate Guide to Choosing Superior External Drive Units</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unboxing-the-thermaltake-massive-tm-powerful-laptop-cooling-solutions-meet-high-costs-is-it-worth-it/"><u>Unboxing the Thermaltake Massive TM: Powerful Laptop Cooling Solutions Meet High Costs - Is It Worth It?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unleash-productivity-on-your-android-adventure-the-definitive-samsung-galaxy-tab-s4-review/"><u>Unleash Productivity on Your Android Adventure - The Definitive Samsung Galaxy Tab S4 Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unmatched-value-budget-friendly-cheetah-dual-arms/"><u>Unmatched Value: Budget-Friendly Cheetah Dual Arms</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unpacking-my-continued-enthusiasm-for-the-huawei-p30-pro-smartphone/"><u>Unpacking My Continued Enthusiasm for the Huawei P30 Pro Smartphone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-hidden-gem-of-tablets-a-comprehensive-review-of-the-apple-ipad-air-cued-for-savings-like-a-more-accessible-ipad-pro/"><u>Unveiling the Hidden Gem of Tablets: A Comprehensive Review of the Apple iPad Air Cued for Savings Like a More Accessible iPad Pro</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ow-to-strategically-use-tags-for-youtube-success-for-2024/"><u>[New] How to Strategically Use Tags for YouTube Success for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-top-pick-for-outdoor-blu-ray-playback-units-external-hardware-review/"><u>2024'S Top Pick for Outdoor Blu-Ray Playback Units - External Hardware Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-riders-perspective-navigating-through-days-gone-a-post-apocalyptic-world-overrun-by-zombies/"><u>A Rider's Perspective: Navigating Through 'Days Gone', A Post-Apocalyptic World Overrun by Zombies</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/acer-xfa240-assessment-performance-takes-priority-in-design/"><u>Acer XFA240 Assessment: Performance Takes Priority in Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/achieve-your-fitness-goals-with-the-built-in-gps-functionality-of-the-fitbit-versa-3-and-its-holistic-health-app-collection/"><u>Achieve Your Fitness Goals with the Built-In GPS Functionality of the Fitbit Versa 3 & Its Holistic Health App Collection</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-topmate-c302-thermal-laptop-stand-test-and-evaluation/"><u>Affordable TopMate C302 Thermal Laptop Stand Test & Evaluation</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/an-easy-to-follow-guide-to-applying-cc-license-types-for-2024/"><u>An Easy-to-Follow Guide to Applying CC License Types for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/effortless-guide-transferring-dvd-content-onto-your-pc-or-mac-with-ease/"><u>Effortless Guide: Transferring DVD Content Onto Your PC or Mac with Ease</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-make-the-most-of-your-iphone-8-lock-screen-with-notifications-drfone-by-drfone-ios/"><u>How to Make the Most of Your iPhone 8 Lock Screen with Notifications? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/master-the-art-of-editing-on-sierra-with-1-5-tools/"><u>Master the Art of Editing on Sierra with #1-#5 Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-quick-youtube-comment-removal-techniques-for-2024/"><u>Mastering Quick YouTube Comment Removal Techniques for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/izing-your-experience-with-youtube-tv-for-2024/"><u>Maximizing Your Experience with YouTube TV for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/1722915395345-troubleshooting-pc-problems-resolve-app-not-working-errors-easily/"><u>Troubleshooting PC Problems - Resolve 'App Not Working' Errors Easily</u></a></li>
+<li><a href="https://techidaily.com/useful-ways-that-can-help-to-effectively-recover-deleted-files-from-realme-note-50-by-fonelab-android-recover-data/"><u>Useful ways that can help to effectively recover deleted files from Realme Note 50</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/z-edge-z3-plus-dashcam-review/"><u>Z-Edge Z3 Plus Dashcam Review</u></a></li>
 </ul></div>
 

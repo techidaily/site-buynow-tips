@@ -1,7 +1,7 @@
 ---
 title: "Lenovo Tab 4 Analyzed: Great Value for Money with Some Trade-Offs"
-date: 2024-11-19T18:53:37.584Z
-updated: 2024-11-24T17:54:55.389Z
+date: 2024-12-01T18:13:37.947Z
+updated: 2024-12-03T14:40:23.965Z
 categories:
   - BestProducts
 description: "This Article Describes Lenovo Tab 4 Analyzed: Great Value for Money with Some Trade-Offs"
@@ -14,12 +14,16 @@ thumbnail: https://thmb.techidaily.com/21ec111232ea695810b8b161c545d6d8dc411e7ee
 4.3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/NltNTWtb6Y6gHFCHDQXlLsrWKTI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -46,6 +50,10 @@ Lifewire / Andy Zahn
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -79,6 +87,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -95,15 +107,15 @@ Lifewire / Andy Zahn
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
 
@@ -137,6 +149,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -150,10 +166,6 @@ Lifewire / Andy Zahn
  A problem with all these automated modes and scene settings is that the images they produce are exclusively JPEG, with RAW being unavailable. Fortunately, Program mode is essentially the same as Auto, and you can enable RAW image recording there.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
 
@@ -169,10 +181,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -183,19 +191,11 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Big brand, big price tag**
 
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
 
@@ -253,24 +253,21 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-free-online-tools-for-youtube-channel-starters/"><u>[New] 2024 Approved Free Online Tools for YouTube Channel Starters</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-ultimate-checklist-for-google-podcast-enthusiasts/"><u>[New] The Ultimate Checklist for Google Podcast Enthusiasts</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-top-10-youtube-video-to-mp3-converter-withwithout-editor/"><u>[Updated] 2024 Approved Top 10 YouTube Video to Mp3 Converter With/Without Editor</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/asus-chromebook-c202sa-overview-a-reliable-tech-companion-for-education-and-young-learners/"><u>Asus Chromebook C202SA Overview: A Reliable Tech Companion for Education & Young Learners</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/1723012050919-bringing-zombies-alive-with-excitement-the-ultimate-insight-into-7-days-to-die-day-by-day-and-platform-by-platform/"><u>Bringing Zombies Alive with Excitement: The Ultimate Insight Into '7 Days to Die,' Day by Day and Platform by Platform</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-d-links-powerline-2000-kit-quick-installation-and-rapid-network-speeds/"><u>Comprehensive Analysis of D-Link's Powerline 2000 Kit: Quick Installation & Rapid Network Speeds</u></a></li>
-<li><a href="https://techtrends.techidaily.com/discover-the-best-pinterest-planning-apps-a-guide-for-efficient-content-management/"><u>Discover the Best Pinterest Planning Apps: A Guide for Efficient Content Management</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/enhancing-your-home-network-detailed-assessment-of-the-netgear-nighthawk-ax8-mesh-wi-fi-extender/"><u>Enhancing Your Home Network: Detailed Assessment of the Netgear Nighthawk AX8 Mesh Wi-Fi Extender</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-poco-m6-pro-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Poco M6 Pro 5G to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-trouble-with-iphone-6s-plus-swipe-up-try-these-11-solutions-drfone-by-drfone-ios/"><u>In 2024, Trouble with iPhone 6s Plus Swipe-Up? Try These 11 Solutions | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Which is the Best Fake GPS Joystick App On Apple iPhone 7? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-asus-zephyrus-g14-where-performance-meets-portability-for-gamers/"><u>In-Depth Analysis of the Asus Zephyrus G14: Where Performance Meets Portability for Gamers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-linksys-ea8300-mastering-smart-device-network-with-superior-performance/"><u>In-Depth Look at Linksys EA8300: Mastering Smart Device Network with Superior Performance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/macbook-pro-vs-ipad-pro-which-device-should-you-choose/"><u>MacBook Pro Vs. IPad Pro: Which Device Should You Choose?</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-recording-voice-overs-in-fcp-like-a-pro-top-tips-and-tricks/"><u>New In 2024, Recording Voice Overs in FCP Like a Pro Top Tips & Tricks</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/preserve-your-visuals-capturing-pictures-within-word-docs-made-easy/"><u>Preserve Your Visuals: Capturing Pictures Within Word Docs Made Easy</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revamped-zombies-and-survival-strategy-discover-what-makes-7-days-to-die-a-thrilling-weeklong-experience/"><u>Revamped Zombies and Survival Strategy: Discover What Makes '7 Days to Die' A Thrilling Weeklong Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/teachers-united-the-bett-2022-edition/"><u>Teachers United: The BETT 2022 Edition</u></a></li>
-<li><a href="https://os-tips.techidaily.com/top-rated-ipad-stand-picks-find-your-perfect-match/"><u>Top-Rated iPad Stand Picks : Find Your Perfect Match</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-monetizing-mastery-in-your-mind-the-no-ad-youtube-money-manual/"><u>[New] 2024 Approved Monetizing Mastery in Your Mind The No-Ad YouTube Money Manual</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-stardews-best-guide-to-ginger-island/"><u>[New] Stardew's Best Guide to Ginger Island</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-ultimate-collection-top-free-ae-template-packs/"><u>[Updated] In 2024, Ultimate Collection Top Free AE Template Packs</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Vivo Y02T | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/effective-strategies-for-twitter-marketing/"><u>Effective Strategies for Twitter Marketing</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/exploring-movavis-foundational-mission-understanding-its-ultimate-goal/"><u>Exploring MOVAVI's Foundational Mission - Understanding Its Ultimate Goal</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-how-to-completely-erase-youtube-shorts-footprint/"><u>In 2024, How To Completely Erase YouTube Shorts Footprint</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/keyboard-woes-tackle-win10-key-problems-now/"><u>Keyboard Woes? Tackle WIN10 Key Problems Now!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-youtube-google-meet-live-broadcast-steps-for-2024/"><u>Mastering YouTube Google Meet Live Broadcast Steps for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sunbriteveranda-4k-55-the-unbeatable-durable-hdtv-for-outdoor-enthusiasts/"><u>SunBriteVeranda 4K 55 - The Unbeatable, Durable HDTV for Outdoor Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/superior-connectivity-on-a-shoestring-comprehensive-analysis-of-the-tp-link-archer-a3-ac1200-router/"><u>Superior Connectivity on a Shoestring: Comprehensive Analysis of the TP-Link Archer A^3 AC1200 Router</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-all-new-samsung-galaxy-watch3-review-a-fusion-of-vintage-charm-and-current-innovations/"><u>The All-New Samsung Galaxy Watch3 Review: A Fusion of Vintage Charm and Current Innovations</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-best-gadgets-for-chilling-at-the-beach-or-pool/"><u>The Best Gadgets for Chilling at the Beach or Pool</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-complete-breakdown-of-the-lenovo-thinkpad-x1-titanium-yoga-review-fusing-classic-design-with-modern-functionality-for-true-thinkpad-admirers/"><u>The Complete Breakdown of the Lenovo ThinkPad X1 Titanium Yoga Review: Fusing Classic Design with Modern Functionality for True ThinkPad Admirers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-perfect-fit-for-your-macbook-unboxing-and-testing-twelve-souths-bookbook-v2-carrying-sleeve/"><u>The Perfect Fit for Your MacBook: Unboxing and Testing Twelve South's BookBook V2 Carrying Sleeve</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-streaming-evolution-how-chromecast-with-google-tv-outshines-traditional-firetv-units/"><u>The Streaming Evolution: How Chromecast with Google TV Outshines Traditional FireTV Units</u></a></li>
 </ul></div>
 

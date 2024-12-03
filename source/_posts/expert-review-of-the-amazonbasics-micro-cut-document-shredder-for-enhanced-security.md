@@ -1,7 +1,7 @@
 ---
 title: Expert Review of the AmazonBasics Micro-Cut Document Shredder for Enhanced Security
-date: 2024-09-08T11:53:28.793Z
-updated: 2024-09-14T16:36:44.855Z
+date: 2024-12-01T09:09:27.314Z
+updated: 2024-12-03T04:27:25.213Z
 categories:
   - BestProducts
 description: This Article Describes Expert Review of the AmazonBasics Micro-Cut Document Shredder for Enhanced Security
@@ -39,9 +39,17 @@ thumbnail: https://www.lifewire.com/thmb/tXinHRNgxsgiEXL28vzOj4OgVls=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## M MOOCK Car Jump Starter
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/9HsjvcJhUjJuGMXLaAGh2B_0bAw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -78,6 +86,10 @@ thumbnail: https://www.lifewire.com/thmb/tXinHRNgxsgiEXL28vzOj4OgVls=/400x300/fi
 
  The accessory kit that comes with the unit is full-bodied. The main piece is the jump starter module which has the two jumper clamps coming off a plastic module that plugs into the unit. To charge the unit you can choose to use either a wall charger for home use or a power port charger for use within a running vehicle. Finally, a set of laptop port adapters and a short DC cable to use with them can be used to[charge your laptop](https://www.lifewire.com/overcharging-laptop-battery-causes-life-span-to-decrease-2378126) or similar device.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: It takes time to find a spot just right to set up for a jump**
 
  Positioning the MOOCK to jump start a car is a little more difficult than it needs to be. Plugging the jumper cable module into the unit and turning it on is the easy part. Due to the short length of the cables, however, it's difficult to get them connected while also keeping the unit secure in the engine bay. Thankfully once you find that Goldilocks spot, the terminal clamps are on the small side and easy to attach, even if the area around the clamping location is cramped.
@@ -87,10 +99,7 @@ thumbnail: https://www.lifewire.com/thmb/tXinHRNgxsgiEXL28vzOj4OgVls=/400x300/fi
  To charge other devices there’s a lot less fuss involved. You simply need to plug the device into the USB or DC power port and turn the unit on. A Micro USB cable is provided, so if you have a device that uses a more modern charging port, you'll want to put an extra cable for it in the MOOCK case as well.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: A nice jolt of power to start even the most drained of vehicles**
@@ -113,19 +122,6 @@ Lifewire / Tony Mitera
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Competition: A good showing against close competition**
 
 **_DBPOWER 600A Peak 18000mAh Portable Car Jump Starter_ :** Despite the high quality of the DBPOWER, the M MOOCK 1000A Peak 18000mAh Car Jump Starter is still a better choice. It provides slightly better output current, which is important for reliable jump starts, and yet it's also slightly less expensive. You can’t go wrong either way, but the MOOCK unit has just the slightest edge.
@@ -143,6 +139,10 @@ Lifewire / Tony Mitera
 A good choice with just a few nagging flaws.
 
  The M Moock 1000A Peak 18000mAh Car Jump Starter is a surprisingly solid choice in jump starters. It has few glaring flaws, and the ones that it does have (like the short cables) just make it marginally more difficult to use, as opposed to being true deal breakers. That said, there are other units available on the market that share some or all the same features but have fewer drawbacks. Overall, the unit's successful but flawed, yet very reliable when you need it most.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -172,5 +172,24 @@ A good choice with just a few nagging flaws.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/updated-from-cinematic-clips-to-harmonic-mp3s-the-instagram-guide-for-2024/"><u>[Updated] From Cinematic Clips to Harmonic MP3s The Instagram Guide for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-on-apple-iphone-14-pro-max-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out On Apple iPhone 14 Pro Max How to Bypass?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-your-internet-experience-with-the-asus-rt-ac68u-a-secure-high-speed-5g-wireless-solution/"><u>Maximizing Your Internet Experience with the Asus RT-AC68U: A Secure, High-Speed 5G Wireless Solution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-traffic-with-intelligence-the-comprehensive-review-of-the-escort-ix-smart-radar-detector/"><u>Navigating Traffic with Intelligence: The Comprehensive Review of the Escort iX Smart Radar Detector</u></a></li>
+<li><a href="https://driver-download.techidaily.com/new-release-updated-nvidia-geforce-5-optimized-nvidia-geforce-210-driver-version-for-improved-graphics-in-windows-10-systems/"><u>New Release: Updated Nvidia GeForce 5. Optimized NVIDIA GeForce 210 Driver Version for Improved Graphics in Windows 10 Systems</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overcoming-acpi-issues-in-windows-10-on-asus-devices/"><u>Overcoming Acpi Issues in Windows 10 on ASUS Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/playtime-face-off-nintendo-switch-lite-vs-oled-which-wins/"><u>Playtime Face-Off: Nintendo Switch Lite vs OLED – Which Wins?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/prioritizing-performance-over-style-with-the-acer-xfa240-review-an-insightful-evaluation/"><u>Prioritizing Performance Over Style with the Acer XFA240 Review: An Insightful Evaluation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/professional-tascam-cd-200bt-analysis-ultimate-music-experience/"><u>Professional Tascam CD-200BT Analysis: Ultimate Music Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-the-moto-g-stylus-a-cost-effective-choice-for-enthusiasts-seeking-an-inbuilt-pen-functionality/"><u>Review of the Moto G Stylus - A Cost-Effective Choice for Enthusiasts Seeking an Inbuilt Pen Functionality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-communication-on-a-budget-with-tangos-free-chat-calls-and-more/"><u>Revolutionize Your Communication on a Budget With Tango’s Free Chat, Calls, and More!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/should-you-invest-in-spotifys-elite-membership/"><u>Should You Invest in Spotify's Elite Membership?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/solution-imaging-studies-including-x-rays-ct-scans-mri-and-pet-scans-are-crucial-for-identifying-the-presence-of-osteoblastic-lesions-they-help-determine-th86/"><u>Solution: Imaging Studies, Including X-Rays, CT Scans, MRI, and PET Scans, Are Crucial for Identifying the Presence of Osteoblastic Lesions. They Help Determine the Extent of Bone Involvement, Guide Treatment Planning, and Monitor Response to Therapy.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/teac-pd-301-cd-player-review/"><u>Teac PD-301 CD Player Review</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-virtuosos-journey-transforming-zoom-live-streams-on-youtube-for-2024/"><u>The Virtuoso's Journey Transforming Zoom Live Streams on YouTube for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/tutorial-getting-your-logitech-mx-master-laptop-mouse-drivers-installed/"><u>Tutorial: Getting Your Logitech MX Master Laptop Mouse Drivers Installed</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/zdnets-expert-guide-to-designing-with-visionos-essential-tips-endorsed-by-apple-featuring-7-strategies/"><u>ZDNet's Expert Guide to Designing with VisionOS - Essential Tips Endorsed by Apple, Featuring 7 Strategies</u></a></li>
+</ul></div>
 

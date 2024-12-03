@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis of Fellowes Microban Corded Keyboard: A Cost-Effective Pick"
-date: 2024-09-13T00:28:15.739Z
-updated: 2024-09-15T12:18:46.943Z
+date: 2024-11-25T16:15:57.658Z
+updated: 2024-12-03T15:07:22.639Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis of Fellowes Microban Corded Keyboard: A Cost-Effective Pick"
@@ -65,6 +65,10 @@ Lifewire / Emily Isaacs
 
  You can tell Microsoft put a considerable amount of thought into the Sculpt Ergonomic Keyboard’s design. From the manta ray style folds, which keep shoulders and hands at a relaxed, comfortable angle, to the detached numpad and magnetized risers for increased customization options when you want them, the Sculpt is quite the package. As with anything new, it took a period of adjustment, but we found it relatively quick thanks to the intuitive, easy-to-use design.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Made for comfort**
 
  The Sculpt is an ergonomic keyboard with a split design akin to that of a manta ray. The two halves of the keyboard sweep outwards and downwards creating an empty, raised space in the center of its swoop design. Its keys vary in size, with those nearest to the split being slightly wider than those on the outer edges of the keyboard. It’s largely made with plastic and has a bit of a clacky sound as you type. The Sculpt employs a standard layout with a fabric wrist pad at the front for extra comfort. This intuitive, split design combined with the wrist pad help your wrists, hands, and shoulders sit at a neutral, natural angle in order to[alleviate repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) that frequent typists are prone to over time.
@@ -85,16 +89,13 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
@@ -104,6 +105,10 @@ Lifewire / Emily Isaacs
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Great for the features**
 
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
@@ -111,19 +116,13 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
@@ -178,5 +177,26 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-leveraging-instagram-metrics-selecting-optimal-analytics-software/"><u>[New] Leveraging Instagram Metrics Selecting Optimal Analytics Software</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-uncover-the-past-advanced-methods-for-instagram-image-retrieval/"><u>[New] Uncover the Past Advanced Methods for Instagram Image Retrieval</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-direct-music-upload-top-tools-for-turning-spotify-into-youtube-listings/"><u>[Updated] 2024 Approved Direct Music Upload Top Tools for Turning Spotify Into YouTube Listings</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-fashion-finds-filled-with-fun-editing-for-hauls/"><u>[Updated] 2024 Approved Fashion Finds Filled with Fun Editing for Hauls</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-tips-for-filming-without-the-hindrance-of-sounds/"><u>[Updated] 2024 Approved Tips for Filming Without the Hindrance of Sounds</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-film-talents-unleashed-downloadable-content-pass/"><u>In 2024, Film Talents Unleashed Downloadable Content Pass</u></a></li>
+<li><a href="https://blog-min.techidaily.com/les-meilleurs-logiciels-de-diaporamas-photographique-pour-apple-mac-comparaison-et-top-7/"><u>Les Meilleurs Logiciels De Diaporamas Photographique Pour Apple Mac : Comparaison Et Top 7</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/play-steam-titles-on-non-compatible-tvs-using-the-power-of-stream-remote-play/"><u>Play Steam Titles on Non-Compatible TVs Using the Power of Stream Remote Play</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/prepare-for-premium-pricing-with-max-offerings/"><u>Prepare for Premium Pricing with Max Offerings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-viewing-experience-with-streamlined-navigation-on-your-google-tv/"><u>Revolutionize Your Viewing Experience with Streamlined Navigation on Your Google TV</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/smart-efficiency-boost-with-stardock-desktopgpt-a-must-have-tool-for-power-users-seeking-a-copilot-upgrade/"><u>Smart Efficiency Boost with Stardock DesktopGPT: A Must-Have Tool for Power Users Seeking a Copilot Upgrade</u></a></li>
+<li><a href="https://techidaily.com/solutions-to-restore-deleted-files-from-galaxy-s23plus-by-fonelab-android-recover-data/"><u>Solutions to restore deleted files from Galaxy S23+</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/step-by-step-instructions-for-shutting-down-resetting-and-starting-up-a-playstation-5/"><u>Step-by-Step Instructions for Shutting Down, Resetting, and Starting Up a PlayStation 5</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/step-by-step-tutorial-on-creating-personalized-mood-lighting-using-color-shifting-nanoleaf-panels/"><u>Step-by-Step Tutorial on Creating Personalized Mood Lighting Using Color-Shifting Nanoleaf Panels</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/stream-all-your-favorites-with-xfinity-access-netflix-peacock-and-apple-tvplus-in-one-handy-package/"><u>Stream All Your Favorites with Xfinity: Access Netflix, Peacock & Apple TV+ in One Handy Package!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/streaming-service-updates-how-youtube-music-now-offers-an-ai-curation-experience-like-spotifys-dynamic-radio/"><u>Streaming Service Updates: How YouTube Music Now Offers an AI Curation Experience Like Spotify's Dynamic Radio</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-impending-demise-of-spotifys-car-thing-a-comprehensive-analysis/"><u>The Impending Demise of Spotify's 'Car Thing': A Comprehensive Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-latest-update-picture-in-picture-revamped-on-android-tv-version-14-launches-now/"><u>The Latest Update: Picture-in-Picture Revamped on Android TV Version 14 Launches Now</u></a></li>
+<li><a href="https://techtrends.techidaily.com/to-your-mac/"><u>To Your Mac</u></a></li>
+</ul></div>
 

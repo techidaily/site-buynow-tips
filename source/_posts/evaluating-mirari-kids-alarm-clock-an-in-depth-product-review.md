@@ -1,7 +1,7 @@
 ---
 title: Evaluating Mirari Kids' Alarm Clock - An In-Depth Product Review
-date: 2024-11-18T17:52:50.454Z
-updated: 2024-11-24T16:36:25.712Z
+date: 2024-11-29T23:13:23.128Z
+updated: 2024-12-02T23:13:49.413Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating Mirari Kids' Alarm Clock - An In-Depth Product Review
@@ -38,12 +38,16 @@ Lifewire / Jonno Hill
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -69,7 +73,7 @@ Lifewire / Jonno Hill
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Basic but effective**
@@ -88,10 +92,6 @@ Lifewire / Jonno Hill
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Range: Fairly limited**
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
@@ -103,7 +103,7 @@ Lifewire / Jonno Hill
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
@@ -116,7 +116,7 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -146,19 +146,19 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-tips.techidaily.com/s55-how-to-enhance-road-safety-without-breaking-the-bank-learn-more-on-this-latest-review-from-our-dedicated-team-at-escortpassport/"><u>'S55': How to Enhance Road Safety Without Breaking the Bank? Learn More on This Latest Review From Our Dedicated Team at Escortpassport</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-accessible-obs-presets-for-affordable-computers/"><u>[New] Accessible OBS Presets for Affordable Computers</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-nocturnal-nexus-versus-daylight-dominion/"><u>[New] In 2024, Nocturnal Nexus Versus Daylight Dominion</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-pioneering-virtual-play-samsungs-most-popular-titles/"><u>[New] Pioneering Virtual Play Samsung's Most Popular Titles</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-stylish-spectacles-trending-insta-filters-list-for-2024/"><u>[New] Stylish Spectacles Trending Insta Filters List for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-time-lapse-tips-for-iphoneipad-users/"><u>[New] Time-Lapse Tips for iPhone/iPad Users</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-top-mic-lists-tailored-for-high-definition-4k-cameras/"><u>[Updated] 2024 Approved Top Mic Lists Tailored for High-Definition 4K Cameras</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/a-beginner-friendly-approach-to-srt-knowledge-for-2024/"><u>A Beginner-Friendly Approach to SRT Knowledge for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/chargetech-27000mah-battery-pack-in-depth-analysis-for-long-lasting-charges/"><u>ChargeTech 27000mAh Battery Pack: In-Depth Analysis for Long-Lasting Charges</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-lightning-fast-connectivity-with-our-comprehensive-review-of-the-google-nest-wi-fi-system/"><u>Experience Lightning Fast Connectivity with Our Comprehensive Review of the Google Nest Wi-Fi System</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Apple iPhone 11 | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-razer-portail-ideal-wireless-setup-for-players/"><u>In-Depth Look at the Razer Portail: Ideal Wireless Setup for Players</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/remove-the-lock-screen-fingerprint-of-your-vivo-s18e-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Vivo S18e</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-singing-machines-colorful-playable-plug-and-play-karaoke-system-sml385btbk-reviewed-and-rated/"><u>The Ultimate Guide to Singing Machine's Colorful, Playable, Plug-and-Play Karaoke System (SML385BTBK) - Reviewed & Rated</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-typographic-tools-in-adobe-after-effects/"><u>[Updated] 2024 Approved Typographic Tools in Adobe After Effects</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-your-complete-discord-companion-manual/"><u>[Updated] In 2024, Your Complete Discord Companion Manual</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-complete-guide-to-producing-high-quality-gopro-time-lapse/"><u>2024 Approved The Complete Guide to Producing High-Quality GoPro Time-Lapse</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/disabled-apple-iphone-7-how-to-unlock-a-disabled-apple-iphone-7-by-drfone-ios/"><u>Disabled Apple iPhone 7 How to Unlock a Disabled Apple iPhone 7?</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effective-ways-to-address-and-resolve-error-0x8024401c-during-the-windows-update-process-on-windows-11-devices/"><u>Effective Ways to Address and Resolve 'Error 0X8024401c' During the Windows Update Process on Windows 11 Devices</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-resolve-xiaomi-mix-fold-3-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Xiaomi Mix Fold 3 Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/1720063414263-no-hassle-no-stress-m-track-fixes-now/"><u>No Hassle, No Stress - M-Track Fixes Now!</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/quick-tips-for-seamlessly-upgrading-your-amd-video-drivers/"><u>Quick Tips for Seamlessly Upgrading Your AMD Video Drivers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-evaluation-of-netgear-nighthawk-c7000-exceptional-wireless-router-insights/"><u>Ultimate Evaluation of Netgear Nighthawk C7000: Exceptional Wireless Router Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-choosing-the-perfect-home-cinema-computer/"><u>Ultimate Guide: Choosing the Perfect Home Cinema Computer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-2024s-premier-lineup-the-ultimate-selection-of-17-inch-laptops/"><u>Unveiling 2024’S Premier Lineup: The Ultimate Selection of 17-Inch Laptops</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-most-economical-hd-pet-camera-by-petcube/"><u>Unveiling the Most Economical HD Pet Camera by Petcube</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-truth-about-thermopro-tp67-economical-but-erratic/"><u>Unveiling the Truth About ThermoPro TP67: Economical but Erratic</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/wasteland-2-directors-cut-evaluation-engaging-strategy-and-tactics-in-a-renowned-roleplaying-game/"><u>Wasteland 2 Director's Cut Evaluation: Engaging Strategy and Tactics in a Renowned Roleplaying Game</u></a></li>
 </ul></div>
 
