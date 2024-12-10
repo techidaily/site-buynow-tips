@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Analysis of the Google Wireless Nest Doorbell with Batteries
-date: 2024-09-14T16:45:39.876Z
-updated: 2024-09-20T16:10:51.517Z
+date: 2024-12-07T03:35:09.415Z
+updated: 2024-12-09T20:39:21.387Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Analysis of the Google Wireless Nest Doorbell with Batteries
@@ -36,6 +36,10 @@ Lifewire / Erika Rawes
 [View On Walmart $29](https://www.walmart.com/ip/612208092)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Antop AT-127
 
@@ -74,6 +78,10 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup: Easier than most**
 
  Setting up the antenna is relatively intuitive. You just connect the antenna to the coaxial/antenna-in connection on your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) . The antenna has an easy-push connector, instead of a connector you have to twist onto the threading. This makes for easier setup because you don’t have to struggle behind your TV with trying to screw on the[coaxial cable](https://www.lifewire.com/coaxial-vs-optical-digital-cable-3134605) .
@@ -91,10 +99,7 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -107,20 +112,21 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
@@ -131,13 +137,6 @@ Lifewire / Erika Rawes
 **Works great & looks even better.**
 
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -168,5 +167,19 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ectified-invisible-shortcut-on-youtube-for-2024/"><u>[New] Rectified Invisible Shortcut on YouTube for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-fives-best-quick-reliable-time-lapse-tools/"><u>[Updated] In 2024, Five's Best Quick, Reliable Time-Lapse Tools</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-perfect-methods-for-computer-based-vhs-artistic-touches/"><u>2024 Approved Perfect Methods for Computer-Based VHS Artistic Touches</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-premier-radio-systems-for-officers/"><u>2024'S Premier Radio Systems for Officers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/battle-royale-showdown-diving-into-fortnites-latest-fun-filled-season/"><u>Battle Royale Showdown: Diving Into Fortnite's Latest Fun-Filled Season</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/dji-phantom-3-professional-review/"><u>DJI Phantom 3 Professional Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-performance-of-tp-link-archer-c80-budget-friendly-sub-100-speeds/"><u>Evaluating the Performance of TP-Link Archer C80: Budget-Friendly Sub-$100 Speeds</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-the-future-of-wireless-with-asus-zenwifi-ax6600-thorough-review-and-setup-guide/"><u>Experience the Future of Wireless with ASUS ZenWifi AX6600: Thorough Review and Setup Guide</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-much-power-does-my-windows-pc-use-heres-how-to-find-out/"><u>How Much Power Does My Windows PC Use? Here's How to Find Out</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-adobe-after-effects-sound-design-incorporating-audio-into-your-animations/"><u>New 2024 Approved Adobe After Effects Sound Design Incorporating Audio Into Your Animations</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-capabilities-detailed-evaluation-of-the-tp-link-re505x-range-extender/"><u>Unveiling the Capabilities: Detailed Evaluation of the TP-Link RE505X Range Extender</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-why-the-huawei-p30-pro-remains-my-preferred-choice-detailed-review/"><u>Unveiling Why the Huawei P30 Pro Remains My Preferred Choice: Detailed Review</u></a></li>
+</ul></div>
 

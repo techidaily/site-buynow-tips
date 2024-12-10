@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Review: How Does AmazonBasics's 12-Sheet High Security Shredder Stack Up?"
-date: 2024-11-26T19:41:14.761Z
-updated: 2024-12-02T22:29:17.481Z
+date: 2024-12-04T21:55:39.825Z
+updated: 2024-12-10T00:04:49.331Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate Review: How Does AmazonBasics's 12-Sheet High Security Shredder Stack Up?"
@@ -13,17 +13,9 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/GshnCnk_G-hNSwDTRjGVB28Nl-o=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -47,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
@@ -55,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/AfRhNgqeOD7JfcVqpjzm5LwPSB4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -82,6 +74,10 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -105,7 +101,7 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Connectivity: Smooth sailing**
@@ -123,6 +119,10 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
  Given the high max speeds, it wasn’t surprising to see strong gaming performance, as well. While playing Rocket League, I saw smooth gameplay across the wired Ethernet connection as well as both wireless networks, with a ping as low as 33 via the wired connection. The wireless ping was only a few points higher.
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -174,21 +174,17 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discord-videos.techidaily.com/new-integrating-social-networks-discord-tutorial-for-2024/"><u>[New] Integrating Social Networks Discord Tutorial for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-leveraging-social-media-giants-to-skyrocket-your-marketing-game-for-2024/"><u>[New] Leveraging Social Media Giants to Skyrocket Your Marketing Game for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-tailoring-your-techniques-for-itunes-videos-for-2024/"><u>[New] Tailoring Your Techniques for iTunes Videos for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-twitter-sharing-guide-for-tiktok-content/"><u>[Updated] 2024 Approved Twitter Sharing Guide for TikTok Content</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-infuse-kinetic-smear-into-photos-in-photoshop-for-2024/"><u>[Updated] Infuse Kinetic Smear Into Photos in Photoshop for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-in-depth-look-at-nikons-4k-powerhouse-j5/"><u>[Updated] The In-Depth Look at Nikon's 4K Powerhouse - J5</u></a></li>
-<li><a href="https://fox-shield.techidaily.com/guide-on-moving-your-files-from-samsung-devices-to-windows-10-system-with-ease/"><u>Guide on Moving Your Files From Samsung Devices to Windows 10 System with Ease</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-master-the-algorithm-top-youtube-seo-tips-and-techniques/"><u>In 2024, Master the Algorithm Top YouTube SEO Tips and Techniques</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-of-microsoft-surface-pro-7-solid-enhancements-amidst-familiar-design/"><u>Review of Microsoft Surface Pro 7: Solid Enhancements Amidst Familiar Design</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/simple-effective-bouncie-navigation-assistance-an-affordable-choice-for-tracking-your-drive/"><u>Simple, Effective Bouncie Navigation Assistance - An Affordable Choice for Tracking Your Drive</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/smart-home-essentials-in-depth-look-at-iseebells-entry-level-video-doorbell/"><u>Smart Home Essentials: In-Depth Look at ISeeBell's Entry-Level Video Doorbell</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/stylish-and-swift-a-comprehensive-review-of-the-swagtron-swagger-electric-scooter/"><u>Stylish and Swift: A Comprehensive Review of the Swagtron Swagger Electric Scooter</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-best-iphone-accessories-you-should-buy/"><u>The Best iPhone Accessories You Should Buy</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-comparison-of-features-between-the-samsung-galaxy-s10plus-and-s20/"><u>The Ultimate Comparison of Features Between the Samsung Galaxy S10+ and S20</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-strategy-companer-for-growing-your-galactic-business-in-offworld-trading-company/"><u>The Ultimate Strategy Companer for Growing Your Galactic Business in Offworld Trading Company</u></a></li>
-<li><a href="https://some-tips.techidaily.com/tips-and-tricks-to-help-you-use-lunapic-photo-editor-like-a-pro-for-2024/"><u>Tips and Tricks to Help You Use Lunapic Photo Editor Like A Pro for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-navigating-the-world-of-pc-screencasters-with-ease/"><u>[New] Navigating the World of PC Screencasters with Ease</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-channel-success-strategy-joining-ytp2024-now/"><u>[Updated] Channel Success Strategy - Joining YTP2024 Now!</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-enhance-your-story-game-applying-fun-sticker-themes/"><u>[Updated] In 2024, Enhance Your Story Game Applying Fun Sticker Themes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-apc-back-ups-pro-1500va-robust-energy-support-numerous-access-points-and-user-friendly-battery-swap-technology/"><u>Evaluating the APC Back-UPS Pro 1500VA: Robust Energy Support, Numerous Access Points, and User-Friendly Battery Swap Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-features-of-jackery-powerbar-charger-bag-the-added-advantage-of-an-integrated-ac-output-port/"><u>Evaluating the Features of Jackery PowerBar Charger Bag: The Added Advantage of an Integrated AC Output Port</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exclusive-prime-day-blowout-score-the-best-deals-on-roku-streaming-sticks-and-players/"><u>Exclusive Prime Day Blowout: Score the Best Deals on Roku Streaming Sticks & Players</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-the-perfect-blend-of-style-and-speed-with-our-swagtrn-swagger-e-scooter-review/"><u>Experience the Perfect Blend of Style & Speed with Our Swagtrn Swagger E-Scooter Review</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-samsung-galaxy-a23-5g-is-unlocked-by-drfone-android/"><u>How To Check if Your Samsung Galaxy A23 5G Is Unlocked</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-best-free-apple-iphone-6s-imei-checker-by-drfone-ios/"><u>In 2024, Best Free Apple iPhone 6s IMEI Checker</u></a></li>
+<li><a href="https://techtrends.techidaily.com/reestablishing-a-lost-link-how-to-get-your-surface-pro-connected-again/"><u>Reestablishing a Lost Link: How to Get Your Surface Pro Connected Again</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/synchronizing-creatives-videos-to-amplify-your-presence/"><u>Synchronizing Creatives Videos to Amplify Your Presence</u></a></li>
+<li><a href="https://change-location.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Samsung Galaxy M14 5G? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Maximizing Connectivity: Insights From Our Expert Review on the Linksys EA8300 Router"
-date: 2024-11-29T19:25:12.244Z
-updated: 2024-12-02T17:33:16.749Z
+date: 2024-12-02T19:34:45.820Z
+updated: 2024-12-09T21:13:09.801Z
 categories:
   - BestProducts
 description: "This Article Describes Maximizing Connectivity: Insights From Our Expert Review on the Linksys EA8300 Router"
@@ -40,6 +40,10 @@ Lifewire / Matthew S. Smith
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Acer Predator Triton 300 SE
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/Coi6EdMOwuyjB7rdhov_hsKrHmo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Acer-Predator-Triton-300-SE-Gaming-Laptop-1-d6f9eeb5a43845a9a328125976c835b0.jpg)
@@ -74,7 +78,7 @@ Lifewire / Matthew S. Smith
  Acer’s Predator Triton 300 SE is, in many respects, a mid-range gaming laptop, but it succeeds at one very important task: it delivers Nvidia RTX 3060 Max-Q at a reasonable price, and it’s actually in stock not just at, but sometimes below, MSRP. Its value pricing helps the Triton 300 SE stand out against attractive competitors like the Asus ROG Zephyrus G14.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Design: Small but sturdy
@@ -109,17 +113,9 @@ Lifewire / Matthew S. Smith
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/eRv5Q4rKutM9zrhSTCRxbBO4rVc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-6-2af7f9999ae847bda4f5b9b830c9c555.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Matthew S. Smith
 
  There’s one downside: poor viewing angles. This is unusual in a modern laptop, though I’ve noticed this trait in many high-refresh laptop displays. I can’t give the Triton 300 SE too much flak for this given its otherwise excellent performance.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Performance: Great for games, ok for everything else
 
@@ -128,10 +124,6 @@ Lifewire / Matthew S. Smith
  PCMark 10 hit an overall score of 5,534\. Geekbench 5 turned in a single-core score of 1,418 and a multi-core score of 4,493\. The Geekbench 5 multi-core score is behind the curve;[new AMD Ryzen 7 5000-series laptops](https://www.lifewire.com/amd-vs-intel-which-processor-is-best-for-you-4780276) can almost double that result. This will disappoint content creators who use CPU-dependent applications. The Acer Triton 300 SE won’t keep up with AMD-powered rivals, like the Asus ROG Zephyrus G14, in such workloads.
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/_blPSVdy574t15clSGhbK6JH68o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-4-5a097b76e29b4ee985eee421ed6d0fe8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -143,6 +135,10 @@ Lifewire / Matthew S. Smith
 
  For me, the Triton 300 SE is easily fast enough: it can handle most games at an average of 60 frames per second (fps), and often much higher, at 1080p resolution. I wouldn’t recommend the Triton 300 SE if you plan to use an external 1440p or 4K monitor, however. Pushing a higher pixel count will lead to sub-60fps performance in most demanding games.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Productivity: All business
 
  The Acer Predator Triton 300 SE’s business-like design carries over to the keyboard and mouse. Key feel is good, with significant key travel and firm bottoming action, and the spacious layout will be comfortable for most users.
@@ -152,6 +148,10 @@ Lifewire / Matthew S. Smith
  Keyboard backlighting is standard and set to white by default, but the color can be customized across three zones. It’s not as impressive as the per-key RGB backlighting found on some gaming laptops but I’m happy to see some customization offered.
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/IiMzYmVU-_I6PnObn0bkjyCzqUk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-3-7cae0e5d13154048bbc93c40976706ca.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -165,6 +165,10 @@ Lifewire / Matthew S. Smith
 
  There are limits, of course. It isn’t loud enough to project impressive volume in a living room or kitchen. It can also sound muddy and confused when playing bass-forward music or the most frantic action games. Still, it’s an impressive set of speakers that will rarely leave you wanting for more.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Network: Killer performance
 
  Downloading a big, hot new game can be a real hassle, especially over Wi-Fi, but the Triton 300 SE can help. It has Intel’s Killer Wi-Fi 6 AX1650 and let me tell you: this thing rips.
@@ -176,10 +180,6 @@ Lifewire / Matthew S. Smith
 ## Camera: BYOW (Bring Your Own Webcam)
 
  Acer’s Predator Triton 300 SE straddles the line between entertainment and productivity in its design, but the camera falls short of its professional aspirations. It’s a tiny 720p pinhole camera that squeezes between the display and the top bezel. Video quality is grainy in all but the brightest rooms and uneven lighting can easily confuse it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Battery: Ouch
 
@@ -195,10 +195,14 @@ Lifewire / Matthew S. Smith
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/RSfl2dEVmErlvh3BUUFcxqsbt9w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-2-c5eed4bfe7e44014952b5503566097d9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Matthew S. Smith
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Software: Planet what now?
@@ -212,10 +216,6 @@ Lifewire / Matthew S. Smith
 ## Price: An outstanding value
 
  Acer sells the Predator Triton 300 SE for $1,400, and it sometimes sells for $1,350 at Best Buy. This is an outstanding price for a laptop packing Nvidia’s RTX 3060\. There’s only a few competitors with the RTX 3060, such as MSI’s GF65 Thin, that can be purchased for less right now. The MSI GF65 manages to undercut the Triton 300 SE by using an older Intel chip and just 8GB of RAM.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Acer Predator Triton 300 SE vs. Asus ROG Zephyrus G14
 
@@ -235,15 +235,15 @@ Lifewire / Matthew S. Smith
 
  Acer’s Predator Triton 300 SE is an excellent value that has what gamers want: a great gaming experience and a quality display. Its short battery life and mediocre multi-core processor hold it back in everyday use, but the laptop’s competitive price makes these flaws easy to forgive.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Microsoft Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584)
 * [Dell XPS 13 2-in-1 Laptop](https://www.lifewire.com/dell-xps-13-2-in-1-laptop-review-4795686)
 * [Microsoft Surface Laptop 2](https://www.lifewire.com/microsoft-surface-laptop-2-review-4779760)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -279,22 +279,20 @@ Lifewire / Matthew S. Smith
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-elevating-visual-clarity-in-digital-facebook-broadcasts/"><u>[New] Elevating Visual Clarity in Digital Facebook Broadcasts</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-navigating-social-media-streams-iphone-and-android-best-practices/"><u>[New] In 2024, Navigating Social Media Streams IPhone & Android Best Practices</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-rapid-camera-movements-home-filmmakers-guide/"><u>[New] Rapid Camera Movements Home Filmmaker's Guide</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-snappy-secrets-learn-screen-recording-with-ease-on-smartphones/"><u>[Updated] 2024 Approved Snappy Secrets Learn Screen Recording with Ease on Smartphones</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-comprehensive-look-at-the-top-ranking-1byone-digital-tv-antenna-perfect-for-indoor-use-and-your-budget/"><u>A Comprehensive Look at the Top-Ranking 1Byone Digital TV Antenna - Perfect for Indoor Use and Your Budget.</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/acer-aspire-c27-all-in-one-laptop-blending-performance-and-compact-design-elegantly/"><u>Acer Aspire C27 All-in-One Laptop - Blending Performance and Compact Design Elegantly</u></a></li>
-<li><a href="https://discover-awesome.techidaily.com/best-file-management-apps-on-ios-17-top-picks-for-iphone-and-ipad/"><u>Best File Management Apps on iOS 17: Top Picks for iPhone and iPad</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/best-radio-drama-scripts/"><u>Best Radio Drama Scripts</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/complete-guide-retrieving-data-from-your-iphone-post-factory-reset/"><u>Complete Guide: Retrieving Data From Your iPhone Post-Factory Reset</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-meizu-21-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Meizu 21 FRP In 3 Different Ways</u></a></li>
-<li><a href="https://android-frp.techidaily.com/top-5-motorola-edge-40-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Motorola Edge 40 Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-halo-bolt-jump-starter-and-portable-charger-top-reviews/"><u>Ultimate Guide to Halo Bolt Jump Starter & Portable Charger - Top Reviews</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unboxing-the-google-pixel-4a-perfect-balance-of-features-and-value/"><u>Unboxing the Google Pixel 4a - Perfect Balance of Features and Value</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlocking-the-secrets-of-elgoog-a-thorough-review-of-the-official-google-mirror-site/"><u>Unlocking the Secrets of elgooG – A Thorough Review of the Official Google Mirror Site</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-performance-and-features-a-deep-dive-into-the-remote-control-ford-galaxy-f-150-truck/"><u>Unveiling Performance & Features: A Deep Dive Into the Remote Control Ford Galaxy F-150 Truck</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-potential-of-apple-books-app-through-a-thorough-review/"><u>Unveiling the Potential of Apple Books App Through a Thorough Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-continuous-activity-tracking-with-fitbit-inspire-hr-a-full-evaluation/"><u>Unveiling the Power of Continuous Activity Tracking with Fitbit Inspire HR - A Full Evaluation</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-pinnacle-top-5-ultra-light-action-camera-list/"><u>[New] In 2024, Pinnacle Top 5 Ultra-Light Action Camera List</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-top-starter-gear-for-gopro-cameras/"><u>[Updated] 2024 Approved Top Starter Gear for GoPro Cameras</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-font-selection-wonders-enhancing-youtube-video-thumbnails/"><u>[Updated] Font Selection Wonders Enhancing YouTube Video Thumbnails</u></a></li>
+<li><a href="https://win-answers.techidaily.com/dragon-quest-xi-stuttering-errors-fixed-step-by-step-troubleshooting-tips/"><u>Dragon Quest XI Stuttering Errors Fixed: Step-by-Step Troubleshooting Tips</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-boost-visual-impact-selecting-excellent-edges-for-instagram-shots/"><u>In 2024, Boost Visual Impact Selecting Excellent Edges for Instagram Shots</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/retrospective-on-demons-souls-brilliant-makeover-without-losing-soul/"><u>Retrospective on Demon's Souls: Brilliant Makeover Without Losing Soul</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionizing-pet-health-and-weight-an-in-depth-review-of-the-petsafe-automatic-feeder/"><u>Revolutionizing Pet Health & Weight: An In-Depth Review of the PetSafe Automatic Feeder</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/romer-rechargeable-searchlight-review-powerful-and-rechargeable-outdoor-flashlight/"><u>Romer Rechargeable Searchlight Review: Powerful and Rechargeable Outdoor Flashlight</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-s20-fe-5g-a-detailed-review-of-why-its-a-hit-among-phone-lovers/"><u>Samsung Galaxy S20 FE 5G: A Detailed Review of Why It's a Hit Among Phone Lovers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/sharex-unmasked-critical-insights-and-substitutes/"><u>ShareX Unmasked Critical Insights & Substitutes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/singing-machine-sml3er-these-are-all-indicative-of-the-machines-ease-of-use-and-vibrant-visual-appeal-making-them-suitable-for-a-target-audience-that-values153/"><u>Singing Machine SML3er. These Are All Indicative of the Machine's Ease of Use and Vibrant Visual Appeal, Making Them Suitable for a Target Audience that Values Simplicity and Entertainment in Their Karaoke Experience.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/soundproof-solutions-top-headsets-2024-guide/"><u>Soundproof Solutions: Top Headsets 2024 Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-definitive-guide-to-apples-newest-marvel-the-iphone-12-review-for-tech-enthusiasts/"><u>The Definitive Guide to Apple's Newest Marvel - The iPhone 12 Review for Tech Enthusiasts</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unlock-iphones-full-potential-4-pro-tips-for-brightening-hdr-in-premiere/"><u>Unlock iPhone's Full Potential 4 Pro Tips for Brightening HDR in Premiere</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-samsung-galaxy-m14-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Samsung Galaxy M14 4G | Dr.fone</u></a></li>
 </ul></div>
 

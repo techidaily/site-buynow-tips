@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive SML385BTBK Karaoke Machine Analysis: Ultimate User-Friendly & Vibrant Singing Experience"
-date: 2024-11-28T17:39:36.867Z
-updated: 2024-12-03T07:48:07.097Z
+date: 2024-12-05T18:43:24.938Z
+updated: 2024-12-10T10:33:41.400Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive SML385BTBK Karaoke Machine Analysis: Ultimate User-Friendly & Vibrant Singing Experience"
@@ -14,7 +14,7 @@ thumbnail: https://thmb.techidaily.com/0c851aeff0505f93ab9210c28e47cf3dc2d613689
 2.7
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## inXile Entertainment Torment: Tides of Numenera
@@ -76,15 +76,15 @@ Lifewire / Kelsey Simon
 
  You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Gameplay: Dialogue prompts and effort**
 
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -100,10 +100,6 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -112,11 +108,11 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Only worth it if you’re keen on the story**
 
@@ -125,6 +121,10 @@ Lifewire / Kelsey Simon
  That said, if role-playing games with a text-heavy focus are of interest to you, then the game does have a lot to offer for the cost. The world of Numenera is vast, and considering all the prompts that alter the story, the game also has a lot of replayability. While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else, and for those players, the $50 cost will be worth it.
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Other story focused RPGs**
 
@@ -139,7 +139,7 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -165,17 +165,22 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-proven-strategies-for-device-screening/"><u>[New] 2024 Approved Proven Strategies for Device Screening</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-easycapture-pro-free-for-windows-10/"><u>[Updated] In 2024, EasyCapture Pro - Free for Windows 10</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-most-effective-macos-sierra-video-coders-for-2024/"><u>[Updated] Most Effective MacOS Sierra Video Coders for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/essential-guide-selecting-ideal-mice-for-a-seamless-ipads-experience/"><u>Essential Guide: Selecting Ideal Mice for a Seamless iPads Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-the-ultimate-ride-test-drive-the-innovative-cycwagen-cargo-electric-bike/"><u>Experience the Ultimate Ride: Test Drive the Innovative CycWagen Cargo Electric Bike</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-flexispot-theodore-adjustable-stand-up-desk-elegant-and-trendy-office-solution/"><u>Expert Analysis of the Flexispot Theodore Adjustable Stand-Up Desk - Elegant and Trendy Office Solution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-mohu-leaf-30-tv-antenna-striking-balance-between-cost-and-capability/"><u>Expert Analysis of the Mohu Leaf 30 TV Antenna - Striking Balance Between Cost and Capability</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-the-luxury-philips-somneo-clock-for-sleepers/"><u>Expert Insights on the Luxury Philips Somneo Clock for Sleepers</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-samsung-galaxy-f04-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Samsung Galaxy F04 to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-iphone-14-plus-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock iPhone 14 Plus</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/masterful-lighting-techniques-for-iphone-users/"><u>Masterful Lighting Techniques for IPhone Users</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/protecting-your-experience-the-essential-guide-to-using-a-vpn-with-vision-pro-and-competing-xr-headsets-insights-from-zdnet/"><u>Protecting Your Experience: The Essential Guide to Using a VPN with Vision Pro and Competing XR Headsets - Insights From ZDNet</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-art-of-crafting-impressive-hdr-images-using-lightroom/"><u>[New] 2024 Approved The Art of Crafting Impressive HDR Images Using Lightroom</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevate-views-and-subscribers-a-list-of-proven-youtube-techniques-for-2024/"><u>[New] Elevate Views and Subscribers A List of Proven YouTube Techniques for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-complete-curve-editing-manual-for-photoshop/"><u>[New] The Complete Curve Editing Manual for Photoshop</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-mastering-zoom-on-a-chromebook-key-techniques/"><u>2024 Approved Mastering Zoom on a Chromebook Key Techniques</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/bust-sound-bugs-a-users-roadmap-to-fixing-windows-11-audio-glitches-part-1-of-5/"><u>Bust Sound Bugs: A User’s Roadmap to Fixing Windows 11 Audio Glitches – Part 1 of 5</u></a></li>
+<li><a href="https://video-capture.techidaily.com/ensuring-properly-formatted-dvd-titles-in-your-media-library-tips-for-windows-media-player-users/"><u>Ensuring Properly Formatted DVD Titles in Your Media Library – Tips for Windows Media Player Users</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-apple-iphone-8-plus-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>In 2024, Apple iPhone 8 Plus Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-best-practices-in-converting-images-to-videos/"><u>In 2024, Best Practices in Converting Images to Videos</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/silent-authentication-disabling-questions-on-windows-11-local-account/"><u>Silent Authentication: Disabling Questions on Windows 11 Local Account</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/simplifying-windows-11-installation-post-windows-10/"><u>Simplifying Windows 11 Installation Post Windows 10</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sing-your-heart-out-with-these-premiere-karaoke-machines-of-2024/"><u>Sing Your Heart Out with These Premiere Karaoke Machines of 2024!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/speed-and-value-combined-unveiling-the-power-of-tp-links-archer-c80-router-under-1-(-100/"><u>Speed and Value Combined: Unveiling the Power of TP-Link's Archer C80 Router Under $1 < 100</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-joyful-journey-with-ddpair-mini3-dashcams-why-this-review-will-make-you-smile/"><u>The Joyful Journey with DDPair Mini3 Dashcams: Why This Review Will Make You Smile</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-perfect-fusion-in-depth-look-at-the-skagen-falster-3s-cutting-edge-features-meet-traditional-charm/"><u>The Perfect Fusion: In-Depth Look at the Skagen Falster 3'S Cutting Edge Features Meet Traditional Charm</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-samsung-galaxy-note20-ultra-5g-a-detailed-user-experience-assessment/"><u>The Samsung Galaxy Note20 Ultra (5G) – A Detailed User Experience Assessment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-2021-apple-macbook-pro-with-m1-chip-why-it-reigns-supreme-in-high-end-computing/"><u>The Ultimate Guide to the 2021 Apple MacBook Pro with M1 Chip - Why It Reigns Supreme in High-End Computing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-starters-guide-for-a-sturdy-tripod-on-amazonbasics/"><u>The Ultimate Starter's Guide for a Sturdy Tripod on AmazonBasics</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Cost Vs. Capability: A Review of the TP-Link Archer C50 Router's Budget Appeal"
-date: 2024-12-01T02:50:52.636Z
-updated: 2024-12-02T17:54:51.111Z
+date: 2024-12-02T17:46:25.746Z
+updated: 2024-12-10T04:08:07.284Z
 categories:
   - BestProducts
 description: "This Article Describes Cost Vs. Capability: A Review of the TP-Link Archer C50 Router's Budget Appeal"
@@ -45,7 +45,7 @@ Lifewire / Jeremy Laukkonen
 ![TP-Link Archer A6 AC1200 Router](https://www.lifewire.com/thmb/eB886Wl9r3D8YMg227kYv9GRkJs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_HeroSquare-3758788658a244148a04b7346643557b.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -72,6 +72,10 @@ Lifewire / Jeremy Laukkonen
 
  Specifications don’t always tell the whole story, so I recently spent about five days with a TP-Link Archer A6 plugged into my own network. I tested how well it holds up under daily use with a lot of data-hungry devices connected at once, tested top speeds and range on both bands, and more.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Improved over older designs**
 
  The Archer A6 doesn’t exactly stand out of the crowd, but it’s a definite improvement over the older C7 that I keep around for testing purposes. Instead of the flat or glossy black finish seen on most routers, the A6 has a two-tone crosshatched pattern that creates an interesting visual effect. The edges are rounded instead of angular, and the top actually curves gently downward when viewed head-on.
@@ -81,7 +85,7 @@ Lifewire / Jeremy Laukkonen
 ![TP-Link Archer A6 AC1200](https://www.lifewire.com/thmb/eeaRHW4APuNCYThw1t-TVwYpmSI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_04-4739ffd6705348959e05e41ab9da2292.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
@@ -89,10 +93,6 @@ Lifewire / Jeremy Laukkonen
  The ports and power button are all found on the back of the unit in a fairly standard array, and you’ll find the indicator LEDs on top near the front edge. The positioning is good for desktop use, and it also leaves the indicators clearly visible when wall mounted.
 
  The Archer A6 doesn’t exactly stand out of the crowd, but it’s a definite improvement over the older C7 that I keep around for testing purposes.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Completely painless once you unwrap the antennas**
 
@@ -106,10 +106,14 @@ Lifewire / Jeremy Laukkonen
 
 ![TP-Link Archer A6 AC1200](https://www.lifewire.com/thmb/2zSHbpT2Rq4Ac-0-u73213g1rlk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_02-8fd53e1cd8284fd4a40091d7896fe8db.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Connectivity: Dual-band with MU-MIMO, but lacking in physical ports**
@@ -119,10 +123,6 @@ Lifewire / Jeremy Laukkonen
  On the physical side, the A6 comes with a bare minimum single WAN port and four LAN ports. There isn’t even a single USB port, so you can’t use this router to host a networked USB drive. That isn’t completely unexpected from a budget router, but it would have been nice if it included at least one USB port.
 
  On the physical side, the A6 comes with a bare minimum single WAN port and four LAN ports. There isn’t even a single USB port, so you can’t use this router to host a networked USB drive.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Network Performance: Decent performance for a budget router**
 
@@ -210,17 +210,20 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-audience-peak-hours-crafting-release-dates/"><u>[New] 2024 Approved Audience Peak Hours Crafting Release Dates</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-2023-guide-ios-device-live-recording-techniques/"><u>[New] In 2024, 2023 Guide IOS Device Live Recording Techniques</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/hite-label-microphones-at-a-wallet-wise-wage/"><u>[New] White-Label Microphones at a Wallet-Wise Wage</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-perfecting-podcast-production-an-ultimate-tutorial-for-high-quality-zoom-recordings/"><u>2024 Approved Perfecting Podcast Production An Ultimate Tutorial for High-Quality Zoom Recordings</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-the-ultimate-drone-accessory-guide-10-must-haves-revealed/"><u>2024 Approved The Ultimate Drone Accessory Guide - 10 Must-Haves Revealed</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/deciphraning-the-message-of-crossed-out-icons-on-files/"><u>Deciphraning: The Message of Crossed-Out Icons on Files</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-the-difference-with-the-2019-kindle-oasis-book-lovers-reviewed/"><u>Experience the Difference with the 2019 Kindle Oasis – Book Lovers Reviewed!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-depths-of-yokus-island-express-a-unique-gaming-experience-revealed/"><u>Exploring the Depths of Yoku's Island Express: A Unique Gaming Experience Revealed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/extraterrestrial-excitement-constructive-chaos-of-martian-city-building-games/"><u>Extraterrestrial Excitement: Constructive Chaos of Martian City Building Games</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/high-performance-bluetooth-headphones-for-tvs/"><u>High-Performance Bluetooth Headphones for TVs</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-oppo-k11x-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Oppo K11x</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unveiling-leading-edge-vr-developers-for-2024/"><u>Unveiling Leading-Edge VR Developers for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-9-essential-apps-for-pulling-youtube-videos-android/"><u>[New] 2024 Approved 9 Essential Apps for Pulling YouTube Videos (Android)</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-getting-started-audacitys-guide-to-microphone-use-on-mac-for-2024/"><u>[New] Getting Started Audacity's Guide to Microphone Use on Mac for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-comprehensive-directory-extracting-yt-template-videos-online/"><u>[Updated] 2024 Approved Comprehensive Directory Extracting YT Template Videos Online</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-innovative-android-and-ios-face-altering-tools/"><u>[Updated] Innovative Android & iOS Face Altering Tools</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/boosting-engagement-tailoring-backgrounds-on-google-meet-devices-for-2024/"><u>Boosting Engagement Tailoring Backgrounds on Google Meet Devices for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-to-select-an-ergonomic-keyboard-for-maximum-productivity-in-202-cufflinks/"><u>How to Select an Ergonomic Keyboard for Maximum Productivity in 202 Cufflinks</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-from-motorola-moto-g23-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Motorola Moto G23 FRP Bypass</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-assessment-netgear-ac1200-wireless-range-extender-ex6200-features-and-performance/"><u>In Depth Assessment: Netgear AC1200 Wireless Range Extender (EX6200) Features and Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-photoscape-analysis-top-features-of-this-complimentary-graphic-design-tool/"><u>In-Depth Photoscape Analysis: Top Features of This Complimentary Graphic Design Tool</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-zmi-powerpack-20000-analysis-the-ultimate-portable-energy-solution/"><u>In-Depth ZMI PowerPack 20000 Analysis - The Ultimate Portable Energy Solution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/initial-thoughts-on-the-samsung-galaxy-s24-ultra/"><u>Initial Thoughts on the Samsung Galaxy S24 Ultra</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/jabra-talk-25-review-a-short-charge-time-for-extended-talk/"><u>Jabra Talk 25 Review: A Short Charge Time for Extended Talk</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/kindle-purchase-benefits-and-value/"><u>Kindle Purchase: Benefits and Value</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/perfecting-the-art-of-online-broadcasts-utilizing-zoom-and-youtube/"><u>Perfecting the Art of Online Broadcasts Utilizing Zoom and YouTube</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-10-most-effective-note-taking-apps-for-the-year-2024/"><u>Top 10 Most Effective Note-Taking Apps for the Year 2024</u></a></li>
 </ul></div>
 

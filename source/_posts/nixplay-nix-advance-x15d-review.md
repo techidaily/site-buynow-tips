@@ -1,7 +1,7 @@
 ---
 title: Nixplay NIX Advance X15D Review
-date: 2024-08-09T00:56:00.463Z
-updated: 2024-08-10T00:56:00.463Z
+date: 2024-12-04T06:57:21.859Z
+updated: 2024-12-10T09:01:47.615Z
 categories:
   - BestProducts
 description: This Article Describes Nixplay NIX Advance X15D Review
@@ -15,10 +15,11 @@ thumbnail: https://www.lifewire.com/thmb/wMdu-fnXnEzs0waE1fBNqpJSG64=/400x300/fi
 
 ## Samsung QN55Q60RAFXZA 55-Inch Smart 4K UHD TV
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![Samsung QN55Q60RAFXZA Smart TV](https://www.lifewire.com/thmb/3wvRd5fdYGaWCbby7QCdqre1xeg=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_SmartTVs_QN55Q60RAFXZA_HeroSquare-b61680537acf4bb8b90cef3343e76e8d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Bill Loguidice
 
@@ -42,14 +43,11 @@ Lifewire / Bill Loguidice
 4.5
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Samsung QN55Q60RAFXZA 55-Inch Smart 4K UHD TV
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![Samsung QN55Q60RAFXZA Smart TV](https://www.lifewire.com/thmb/Uk2902wqEKeVUjk27nqGMWb7vYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_SmartTVs_QN55Q60RAFXZA_HeroSquare-b61680537acf4bb8b90cef3343e76e8d.jpg)
 
 Lifewire / Bill Loguidice
@@ -76,9 +74,6 @@ Lifewire / Bill Loguidice
 
  We tested the 55-inch version of the Samsung QN55Q60RAFXZA, which is simply noted as Samsung QLED Q60R on the side of the box, to see if its Quantum Dot technology and all of its other features make for a TV you’ll want in your home.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Samsung QN55Q60RAFXZA](https://www.lifewire.com/thmb/dOOASOgkfk99nlphGAu1V4JLAVs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_SmartTVs_QN55Q60RAFXZA_02-e0170e47a4924d90bccdc37108f64b75.jpg)
 
  Lifewire / Bill Loguidice
@@ -96,6 +91,10 @@ Lifewire / Bill Loguidice
  The power cable port is located off-center to the right and bottom of the rear panel. A five-foot long, two-prong power cable is included. This power cable can be run along a channel on the rear of the unit to help with cable management. However, unlike previous Samsung models, there’s no cable channel in the stand legs, just a cable clip that snaps onto one of the legs.
 
  All of the rest of the inputs and outputs are located in a recessed area on the far left rear of the unit. Starting from the bottom up, the ports are: ANT IN, EX-LINK, LAN, HDMI IN 1, HDMI IN 2, HDMI IN 3, HDMI IN 4 (ARC), DIGITAL AUTO OUT (OPTICAL), USB (HDD 5V 1A), and USB (5V 0.5A). While having all of those port options is great, arguably the most important are the four HDMI inputs, which go a long way towards accommodating the many set-top boxes, consoles, and other devices in the average home.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Well-packaged with step-by-step instructions**
 
@@ -139,6 +138,10 @@ Lifewire / Bill Loguidice
 
 ![Samsung QN55Q60RAFXZA](https://www.lifewire.com/thmb/q0VqlVXOfdKmRXWu4crID1G-fE4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_SmartTVs_QN55Q60RAFXZA_03-a9de2a1191e2440eab74cf494d36721a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Bill Loguidice
 
 ## **Image Quality: Spectacular color and resolution**
@@ -153,9 +156,6 @@ Lifewire / Bill Loguidice
 
  Even at extreme viewing angles, and certainly any practical angle, the picture remained clear, with little-to-no noticeable color or contrast washout. There are few practical scenarios that we can envision that this TV would not provide an excellent viewing experience, regardless of where you’re seated.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Audio Quality: Serviceable sound**
 
  As expected, even at its non-budget price point, sound quality is merely serviceable on the QN55Q60RAFXZA. If you want sound quality to match your picture quality, you’re going to have to invest in a similarly excellent surround sound system. With that said, even with its volume set to 100, the sound from the downfiring speakers on the QN55Q60RAFXZA is well-defined and clear with no noticeable hissing or popping.
@@ -181,8 +181,9 @@ Lifewire / Bill Loguidice
  Finally, thanks to its Apple Airplay 2 support, the QN55Q60RAFXZA makes an excellent Screen Mirroring and audio target. Simply select Samsung Q60 Series on your recent Apple mobile device and your content plays on the QN55Q60RAFXZA. In our testing, the connection happened quickly and playback was smooth.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Worth the price if you value picture quality**
 
  At $999.99, the QN55Q60RAFXZA is not one of the cheaper 55 inch TV options. With that said, you also don’t have to worry about build or picture quality. With its HDR10 and HDR10+ support and ability to support billions of colors, you’ll get superior color reproduction when paired with the right content. The only negative is that the QN55Q60RAFXZA does not have Dolby Vision support, a color format that many other competitive sets do feature. For most people, however, HDR10 and HDR10+ support is all that really matters, so the lack of Dolby Vision is not as much of a deal-breaker as it could be. Nevertheless, it’s something to keep in mind when comparison shopping at this price point.
@@ -191,9 +192,6 @@ Lifewire / Bill Loguidice
 
  Overall, based on our extensive testing, it’s hard to find many faults with the QN55Q60RAFXZA. You get undeniable quality for the price and plenty of full-feature HDMI inputs.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Samsung QN55Q60RAFXZA vs. Samsung QN55Q6F**
 
  Compared to what is essentially its immediate predecessor, the[Samsung QN55Q6F](https://www.lifewire.com/samsung-qn55q6f-smart-tv-review-4842860) , the QN55Q60RAFXZA offers only a handful of clear advantages, with slightly better color reproduction and Google Assistant and Amazon Alexa support. Right now, the QN55Q6F retails for about $100 less than the QN55Q60RAFXZA, so if that savings is important to you, it makes for a similarly excellent choice. Otherwise, there’s no reason to not go for the newer QN55Q60RAFXZA.
@@ -226,11 +224,30 @@ Lifewire / Bill Loguidice
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2023s-social-media-shopping-top-tiktok-and-amazon-picks-for-2024/"><u>[New] 2023’S Social Media Shopping Top TikTok and Amazon Picks for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-perfecti-the-ultimate-guide-to-iphone-slideshows-xs-max/"><u>[New] In 2024, Perfecti The Ultimate Guide to iPhone Slideshows (XS Max)</u></a></li>
+<li><a href="https://video-capture.techidaily.com/1716069516759-updated-2024-approved-no-money-down-best-free-video-chat-platforms/"><u>[Updated] 2024 Approved No Money Down? Best Free Video Chat Platforms!</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-top-10-high-res-4k-gaming-pcs-revealed/"><u>[Updated] In 2024, Top 10 High-Res 4K Gaming PCs Revealed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-beginners-blueprint-for-mobile-youtube-videos/"><u>[Updated] The Beginner's Blueprint for Mobile YouTube Videos</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-imo-messenger-features-an-in-depth-product-evaluation/"><u>Exploring IMo Messenger Features: An In-Depth Product Evaluation</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/fast-access-to-up-to-date-asus-pce-ac68-drivers-download-here/"><u>Fast Access to Up-to-Date ASUS PCE-AC68 Drivers - Download Here!</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/guide-enjoying-films-and-videos-seamlessly-on-your-windows-11-phone/"><u>Guide: Enjoying Films & Videos Seamlessly on Your Windows 11 Phone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-apowersofts-latest-capture-tech-for-efficient-pc-recording/"><u>In 2024, Apowersoft's Latest Capture Tech for Efficient PC Recording</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-data-from-apple-iphone-13-pro-to-zte-phones-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer Data from Apple iPhone 13 Pro to ZTE Phones | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-tp-link-re305-ac1200-wireless-range-extender-reviewed/"><u>In-Depth Analysis: TP-Link RE305 AC1200 Wireless Range Extender Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-list-the-most-exceptional-wireless-buds/"><u>Ultimate List: The Most Exceptional Wireless Buds</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-the-most-advanced-4k-tvs-available-in-202erlincoln-nebraska/"><u>Ultimate Selection: The Most Advanced 4K TVs Available in 202Erlincoln, Nebraska</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-the-premier-xbox-series-xs-add-ons-of-2023/"><u>Ultimate Selection: The Premier Xbox Series X/S Add-Ons of 2023</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/understanding-the-contrast-between-kindle-e-readers-and-fire-tablets-by-amazon/"><u>Understanding the Contrast Between Kindle E-Readers and Fire Tablets by Amazon</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-ultimate-selection-exclusive-picks-for-your-pixel-6-safety-gear/"><u>Unveiling the Ultimate Selection: Exclusive Picks for Your Pixel 6 Safety Gear</u></a></li>
+</ul></div>
+

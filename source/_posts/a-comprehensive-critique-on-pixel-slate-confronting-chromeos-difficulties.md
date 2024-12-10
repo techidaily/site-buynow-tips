@@ -1,7 +1,7 @@
 ---
 title: "A Comprehensive Critique on Pixel Slate: Confronting ChromeOS Difficulties"
-date: 2024-11-26T08:17:33.556Z
-updated: 2024-12-02T21:35:48.875Z
+date: 2024-12-04T23:27:55.258Z
+updated: 2024-12-10T07:09:38.006Z
 categories:
   - BestProducts
 description: "This Article Describes A Comprehensive Critique on Pixel Slate: Confronting ChromeOS Difficulties"
@@ -12,10 +12,6 @@ thumbnail: https://thmb.techidaily.com/c8166e8b96eec7a32e2c5447a156a34a01b3ade6d
 ## Crafting a New Reality in Torment: A Comprehensive Guide to Science Fiction RPG and Its Unique Setting in Numenera
 
 2.7
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## inXile Entertainment Torment: Tides of Numenera
 
@@ -44,10 +40,6 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Kelsey Simon
 
 [View On Amazon](https://www.amazon.com/Techland-Torment-Tides-Numenera-PlayStation-4/dp/B01N2VISUC/?tag=lifewire-onsite-prod-20&ascsubtag=5077302%7Cnac6eb02defc3413da4da5d4ed0dc77ea21%7CB01N2VISUC) [View On Steampowered.com](https://store.steampowered.com/app/272270/Torment%5FTides%5Fof%5FNumenera/) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/torment-tides-of-numenera/141986.html)
@@ -67,7 +59,7 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Story: Heavy-handed writing to the exclusion of all else**
@@ -104,6 +96,10 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -112,11 +108,11 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Price: Only worth it if you’re keen on the story**
 
@@ -125,6 +121,10 @@ Lifewire / Kelsey Simon
  That said, if role-playing games with a text-heavy focus are of interest to you, then the game does have a lot to offer for the cost. The world of Numenera is vast, and considering all the prompts that alter the story, the game also has a lot of replayability. While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else, and for those players, the $50 cost will be worth it.
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Other story focused RPGs**
 
@@ -139,7 +139,7 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -165,16 +165,24 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-cut-to-the-chase-vimeos-best-practices-for-video-length-reduction/"><u>[New] Cut to the Chase Vimeo's Best Practices for Video Length Reduction</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-chuckle-champions-twitters-comedy-corner/"><u>[New] In 2024, Chuckle-Champions Twitter’s Comedy Corner</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-ultimate-fcp-tutorial-for-new-users/"><u>[Updated] Ultimate FCP Tutorial for New Users</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-the-ultimate-hdtv-showdown-selecting-the-best-8k-models/"><u>2024 Approved The Ultimate HDTV Showdown Selecting the Best 8K Models</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-infinix-smart-8-plus-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Infinix Smart 8 Plus</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unraveling-the-mystery-of-cpu-compatibility-and-motherboards/"><u>Unraveling the Mystery of CPU Compatibility and Motherboards</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-a-younger-peter-parker-in-spider-man-miles-morales/"><u>Unveiling the Power of a Younger Peter Parker in Spider-Man: Miles Morales</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-powerhouse-of-atmospheric-analysis-in-depth-review-of-the-affordable-osprey-ambient-weather-station-ws-2e202a/"><u>Unveiling the Powerhouse of Atmospheric Analysis – In-Depth Review of the Affordable Osprey Ambient Weather Station (WS-2e202A)</u></a></li>
-<li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-from-your-iphone-8-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled From your iPhone 8? How to Fix</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/why-the-apple-ipad-pro-11-reigns-supreme-in-201e-a-deep-dive-into-its-unmatched-features/"><u>Why the Apple iPad Pro (11) Reigns Supreme in 201E - A Deep Dive Into Its Unmatched Features</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/xbox-one-x-review/"><u>Xbox One X Review</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-tackling-live-broadcasts-the-intersection-of-obs-and-zoom/"><u>[New] In 2024, Tackling Live Broadcasts The Intersection of OBS and Zoom</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-leveraging-patient-stories-a-guide-to-powerful-videography/"><u>[New] Leveraging Patient Stories A Guide to Powerful Videography</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-boosting-zoom-clarity-the-guide-to-using-filters-wisely/"><u>[Updated] 2024 Approved Boosting Zoom Clarity The Guide to Using Filters Wisely</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-smart-strategies-for-iphone-podcast-acquisition/"><u>[Updated] Smart Strategies for iPhone Podcast Acquisition</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-honor-play-8t-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/a-new-dawn-for-unadvertised-windows-start-menus/"><u>A New Dawn for Unadvertised Windows Start Menus</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/essential-technology-gadgets-essential-for-students-academic-success/"><u>Essential Technology Gadgets Essential for Students' Academic Success</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exceptional-endurance-discovering-the-moto-g-powers-impressive-battery-capabilities/"><u>Exceptional Endurance: Discovering the Moto G Power's Impressive Battery Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-swagtron-swagboard-t1-striking-a-balance-between-speed-and-price/"><u>Expert Analysis of the Swagtron Swagboard T1 - Striking a Balance Between Speed and Price</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-entertainment-gems-in-the-world-of-pokemon-shining-pearl/"><u>Exploring Entertainment Gems in the World of Pokémon Shining Pearl</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ihome-zenergy-bedside-sleep-therapy-machine-review-wake-up-to-a-bright-new-day/"><u>IHome Zenergy Bedside Sleep Therapy Machine Review: Wake Up To A Bright New Day</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-stanley-j5c09-powerful-performance-in-a-compact-package/"><u>In-Depth Analysis of the Stanley J5C09 - Powerful Performance in a Compact Package</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-tp-link-av1300-wireless-range-extender-surprising-shortcomings-revealed/"><u>In-Depth Analysis of the TP-Link AV1300 Wireless Range Extender - Surprising Shortcomings Revealed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/insights-on-owcs-mercury-pro-ssd-superior-quality-unmatched-reliability-reviewed/"><u>Insights on OWC's Mercury Pro SSD – Superior Quality, Unmatched Reliability Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/insights-on-the-jaco-smartpro-electronic-tire-filler-an-efficient-compact-device/"><u>Insights on the Jaco SmartPro Electronic Tire Filler – An Efficient Compact Device</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/linkedin-learnings-most-valuable-courses-of-the-year-2024/"><u>LinkedIn Learning's Most Valuable Courses of the Year 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/luts-implementation-for-cinematographic-coloring/"><u>Luts Implementation for Cinematographic Coloring</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/maximize-your-gaming-experience-on-mac-compatible-integration-of-ps5-controllers/"><u>Maximize Your Gaming Experience on Mac: Compatible Integration of PS5 Controllers</u></a></li>
+<li><a href="https://win11.techidaily.com/navigating-network-address-translation-change-in-win1110/"><u>Navigating Network Address Translation Change in Win11/10</u></a></li>
 </ul></div>
 

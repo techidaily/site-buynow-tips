@@ -1,7 +1,7 @@
 ---
 title: "TP-Link Archer C9: The Ultimate Review of a Cost-Effective Wireless Router"
-date: 2024-11-27T16:44:42.766Z
-updated: 2024-12-03T02:16:51.312Z
+date: 2024-12-08T18:46:18.116Z
+updated: 2024-12-10T04:03:35.519Z
 categories:
   - BestProducts
 description: "This Article Describes TP-Link Archer C9: The Ultimate Review of a Cost-Effective Wireless Router"
@@ -13,13 +13,13 @@ thumbnail: https://thmb.techidaily.com/0ec3b3e91ce6c2fd312d0c52b550de8f05b444cc8
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/5SQBxSHXey906sYtaz8fIiCXm7k=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -43,6 +43,10 @@ Lifewire / Erika Rawes
 [View On Walmart $68](https://www.walmart.com/ip/124219534) [View On Target $100](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.target.com%2Fp%2Ftp-link-ac1900-mu-mimo-mesh-compatible-dual-band-router%2F-%2FA-79847605%3Fslfpid%3D3) [View On Staples $91](https://www.staples.com/tp-link-archer-c80-ac1900-dual-band-wireless-and-ethernet-router-black/product%5F24467939?cid=AFF%3A24467939&slfpid=3)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
@@ -68,7 +72,7 @@ Lifewire / Erika Rawes
  The TP-Link Archer C80 is an affordable[long range router](https://www.lifewire.com/best-long-range-routers-4122554) that should be ideal for medium-sized homes. With 3x3[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , parental controls, and remote control using TP-Link’s Tether app, the Archer C80 has a few admirable features for a router under $100, but it also lacks some of the things we’ve come to expect in a router in this price range (like smart assistant compatibility and no USB port). I tested the TP-Link Archer C80 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment when compared to other budget routers on the market.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Basic, but effective**
@@ -111,10 +115,6 @@ Lifewire / Erika Rawes
 
  Every closet, bathroom, and bedroom maintained a signal, and I experienced no dead zones whatsoever.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Software: TP-Link Tether app**
 
  The C80 is a cinch to set up in less than five minutes, with guest networks created and all. The TP-Link Tether app is one of my favorite router companion apps. The interface is super clean, and you can see exactly what devices are on each of your network bands. You can even have the app alert you when a new device signs into your network.
@@ -128,7 +128,7 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Around 100 bucks**
@@ -146,7 +146,7 @@ Lifewire / Erika Rawes
  Even though it lacks a USB port, the Archer C80 puts out impressive speeds over a long range in homes with light to medium networking capacity. For homes that have several people streaming, gaming, and working on cloud applications, they’ll want something more high octane.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -184,17 +184,18 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-crafting-an-easy-to-use-youtube-subscription-tagline/"><u>[New] 2024 Approved Crafting an Easy-to-Use YouTube Subscription Tagline</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-elevate-your-social-media-presence-h-videos-reimagined-for-igtv/"><u>[New] In 2024, Elevate Your Social Media Presence H-Videos Reimagined for IGTV</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-art-of-integrating-b-footage-into-main-shots/"><u>[New] The Art of Integrating B-Footage Into Main Shots</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-juicy-jargon-15-viral-food-videos-that-have-the-kitchen-world-in-a-tizzy/"><u>[Updated] 2024 Approved Juicy Jargon 15 Viral Food Videos That Have the Kitchen World in a Tizzy</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722975976548-aggregates-must-be-selected-based-on-cleanliness-hardness-size-and-shape-to-affect-the-final-properties-of-concrete/"><u>Aggregates Must Be Selected Based on Cleanliness, Hardness, Size, and Shape to Affect the Final Properties of Concrete</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/dimming-the-spotlight-in-pre-production-pro/"><u>Dimming the Spotlight In Pre-Production Pro</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-perfecting-your-videos-the-power-of-proper-thumbnails/"><u>In 2024, Perfecting Your Videos The Power of Proper Thumbnails</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/scouring-deals-low-priced-gopro-cameras/"><u>Scouring Deals Low-Priced GoPro Cameras</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-friendly-players-guide-to-game-swapping-on-xbox-one/"><u>The Friendly Player's Guide to Game Swapping on Xbox One</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-methods-for-tracking-user-progress-and-tailoring-personalized-learning-experiences-as-if-guiding-different-animals-through-their-unique-paths-in-the-wil103/"><u>The Methods for Tracking User Progress and Tailoring Personalized Learning Experiences as if Guiding Different Animals Through Their Unique Paths in the Wilderness?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-new-ms-surface-laptop-go-balancing-cost-and-performance/"><u>The Ultimate Guide to the New MS Surface Laptop Go: Balancing Cost and Performance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-review-how-the-fintie-protector-elevates-your-macbook-pro-13-experience-with-durability-at-a-steal/"><u>Top Review: How the Fintie Protector Elevates Your MacBook Pro 13 Experience with Durability at a Steal</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-key-to-smooth-segments-crossfade-logic-pro-steps/"><u>[New] 2024 Approved The Key to Smooth Segments Crossfade Logic Pro Steps</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unveiling-the-perfect-gaming-experience-kinemaster-on-android/"><u>[New] Unveiling the Perfect Gaming Experience KineMaster on Android</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-editors-face-off-which-is-superior-filmora-or-democreator/"><u>2024 Approved Editors Face-Off Which Is Superior, Filmora or Democreator?</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-your-blueprint-for-downloading-youtube-srt-in-3-steps/"><u>2024 Approved Your Blueprint for Downloading YouTube SRT in 3 Steps</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apples-latest-showdown-iphone-15-plus-versus-pro-max/"><u>Apple's Latest Showdown: IPhone 15 Plus Versus Pro Max</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/assessing-the-best-handheld-console-experience-with-the-nintendo-switch/"><u>Assessing the Best Handheld Console Experience with the Nintendo Switch</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/breakdown-of-apples-latest-entry-in-smart-speakers-the-homepod-mini-reviewed-from-melodies-to-ai-interactions/"><u>Breakdown of Apple's Latest Entry in Smart Speakers – The HomePod Mini Reviewed: From Melodies to AI Interactions</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1725288399715-digiarty-winxdvd-faq/"><u>Digiarty WinXDVDソフトウェアの使用方法と一般的なトラブルシューティング - FAQ</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-optimizing-titles-and-tags-for-improved-youtube-visibility/"><u>In 2024, Optimizing Titles and Tags for Improved YouTube Visibility</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/what-to-look-for-in-a-gaming-pc/"><u>What to Look For in a Gaming PC</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/x-chair-x4-unveiled-why-its-a-solid-investment-for-your-business-seating-needs/"><u>X-Chair X4 Unveiled: Why It's a Solid Investment for Your Business Seating Needs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/your-go-to-hubs-for-viewing-top-movies-sneak-peeks-a-list-of-7-chosen-gems/"><u>Your Go-To Hubs for Viewing Top Movies' Sneak Peeks: A List of 7 Chosen Gems</u></a></li>
 </ul></div>
 

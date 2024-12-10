@@ -1,7 +1,7 @@
 ---
 title: "Exploring Rayman Legends: Masterclass in 2D Game Design"
-date: 2024-09-19T17:02:50.748Z
-updated: 2024-09-20T16:29:17.879Z
+date: 2024-12-03T05:23:50.872Z
+updated: 2024-12-10T13:14:05.223Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring Rayman Legends: Masterclass in 2D Game Design"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/0e439fcdc7bdbc260e3f597d59e8a26c3f2c08b51
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/NltNTWtb6Y6gHFCHDQXlLsrWKTI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -38,6 +42,10 @@ Lifewire / Andy Zahn
 [View On Walmart $562](https://www.walmart.com/ip/Canon-PowerShot-SX70-HS-20-3MP-65x-Optical-Zoom-Digital-Point-Shoot-Camera/773178799?slfpid=3) [View On Adorama.com $699](https://www.adorama.com/icasx70.html) [View On B&H Photo Video $599](https://www.bhphotovideo.com/c/product/1435399-REG/canon%5F3071c001%5Fpowershot%5Fsx70%5Fhs%5Fdigital.html)
 
 4.3
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
 
@@ -87,29 +95,19 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
 
@@ -118,13 +116,6 @@ Lifewire / Andy Zahn
  The electronic viewfinder (EVF) is bright and clear with 2,360,000 dots. It’s not the best EVF we’ve ever used as it seems slightly small and cramped, but it gets the job done. A sensor automatically detects when you put your eye up to it (a function that can be adjusted in the settings), which means you don’t have to hunt for a button to switch the EVF on.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Autofocus: Blazing fast**
 
@@ -188,6 +179,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Big brand, big price tag**
 
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
@@ -195,10 +190,7 @@ Lifewire / Andy Zahn
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
@@ -216,6 +208,10 @@ Lifewire / Andy Zahn
  **A tremendously fun camera that is exceedingly well-rounded if a bit pricey.**
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -255,5 +251,24 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-ensemble-moves-syncing-your-song-collections/"><u>[Updated] In 2024, Ensemble Moves Syncing Your Song Collections</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-mastering-desktop-preservation-on-windows-8/"><u>[Updated] In 2024, Mastering Desktop Preservation on Windows 8</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/amazon-basics-tablet-support-device-review-a-handy-stand-for-on-demand-use/"><u>Amazon Basics Tablet Support Device Review: A Handy Stand for On-Demand Use</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-ring-battery-doorbell-plus-features-and-performance/"><u>Comprehensive Review of the Ring Battery Doorbell Plus: Features & Performance</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/continued-savings-prime-day-aftermath-sees-no-change-in-8tb-samsung-t5-ssds-36-price-drop-expert-analysis/"><u>Continued Savings: Prime Day Aftermath Sees No Change in 8TB Samsung T5 SSD's 36% Price Drop - Expert Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/enhancing-your-home-network-with-the-netgear-ac1200-wireless-range-extender-ex6200-a-complete-review/"><u>Enhancing Your Home Network with The Netgear AC1200 Wireless Range Extender (EX6200): A Complete Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-lenovo-thinkpad-x12-detachable-a-superior-blend-of-convertible-design-and-excellent-typing-comfort/"><u>Evaluating the Lenovo ThinkPad X12 Detachable: A Superior Blend of Convertible Design & Excellent Typing Comfort</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-add-flair-with-gifs-on-snapchat-a-comprehensive-walkthrough/"><u>In 2024, Add Flair with GIFs on Snapchat – A Comprehensive Walkthrough</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-unlock-the-secrets-for-a-viral-instagram-account-gain-fans-and-verified-status-in-less-than-150-characters/"><u>In 2024, Unlock the Secrets for a Viral Instagram Account Gain Fans and Verified Status in Less Than 150 Characters</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-logitechs-c615-affordable-excellence-for-your-streaming-needs/"><u>In-Depth Review of Logitech's C615: Affordable Excellence for Your Streaming Needs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-police-bodycams-on-the-market-your-2024-compendium/"><u>Leading Police Bodycams on the Market – Your 2024 Compendium</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-portable-power-solutions-for-your-laptop-the-definitive-list-of-2024/"><u>Leading Portable Power Solutions for Your Laptop: The Definitive List of 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/quick-solutions-how-to-resolve-the-youtube-black-screen-issue-with-ease/"><u>Quick Solutions: How to Resolve the YouTube Black Screen Issue with Ease</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-complete-2023-youtubers-handbook-for-rotated-content-for-2024/"><u>The Complete 2023 Youtuber's Handbook for Rotated Content for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-document-and-image-flatbed-scanners/"><u>Top-Rated Document & Image Flatbed Scanners</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unlocking-potential-with-three-screens-a-deep-dive-into-gigabytes-b760m-micro-atx-board-evaluation/"><u>Unlocking Potential with Three Screens: A Deep Dive Into Gigabyte's B760M Micro ATX Board Evaluation</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-free-8-best-daw-for-chromebook-to-make-music/"><u>Updated 2024 Approved FREE 8 Best DAW for Chromebook to Make Music</u></a></li>
+</ul></div>
 

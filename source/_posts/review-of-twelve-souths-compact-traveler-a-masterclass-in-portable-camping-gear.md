@@ -1,7 +1,7 @@
 ---
 title: Review of Twelve South's Compact Traveler - A Masterclass in Portable Camping Gear
-date: 2024-11-26T14:37:39.438Z
-updated: 2024-12-03T10:07:54.781Z
+date: 2024-12-06T18:48:48.351Z
+updated: 2024-12-09T22:04:36.947Z
 categories:
   - BestProducts
 description: This Article Describes Review of Twelve South's Compact Traveler - A Masterclass in Portable Camping Gear
@@ -13,13 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/RbH1L50C2WDwsCIJHL9rumjvuMg=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Mavix M9 Gaming Chair
 
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/hAa8qU0sdj4xTjLDrUKFPjBlZyY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_HeroSquare-97a9344411454147b8772f86cd75bca7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -43,6 +43,10 @@ Lifewire / Rebecca Isaacs
 ## Mavix M9 Gaming Chair
 
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/cetpXlFoWgl601rjUieYjdXgVCA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_HeroSquare-97a9344411454147b8772f86cd75bca7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -72,19 +76,11 @@ Lifewire / Rebecca Isaacs
 
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/tSFIFAR8G-C5W7DBBLPJ5GiE3EM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_03-8842478b07bd4585ba7f1843afcd29dc.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
 
  Despite this mesh exterior, the M9 chair is incredibly sleek and modern and adds style to any modern gaming setup. This is not only because of the mesh support but the rest of the chair is upholstered in beautiful, smooth leather. The logo on the headrest stands out, but it’s not really a detriment to the overall design of the chair.
 
  At 56 x 26 x 22.75 inches (HWD), the chair has a wide seat for spreading out and comes with an optional headrest. Even the wheels are prepped for hours of gameplay and come with a locking feature to ensure stability.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Comfort: It’s all in the ergonomics
 
@@ -96,11 +92,11 @@ Lifewire / Rebecca Isaacs
 
 ![Mavix M9 Gaming Chair headrest ](https://www.lifewire.com/thmb/dk-8es8V-f2VzVltDiUNw0nCs2o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_02-acc7e137bc7a4b25837fbbe065ac1416.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Performance and Usage: Amazing day-to-day
 
@@ -123,7 +119,7 @@ Lifewire / Rebecca Isaacs
  Only want to go back a few degrees? You can adjust that thanks to the levers underneath the chair seat. This feature also helped relieve my back when I started feeling like I’d been sitting in the chair too long. It’s a great, relaxing addition.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Price: Hits the wallet hard
@@ -152,6 +148,10 @@ Lifewire / Rebecca Isaacs
 * [X Rocker 51396 Pro Series Pedestal 2.1 Gaming Chair](https://www.lifewire.com/x-rocker-51396-pro-series-pedestal-2-1-gaming-chair-review-4771021)
 * [Homall Executive Swivel Chair](https://www.lifewire.com/homall-executive-swivel-chair-review-4589356)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  M9 Gaming Chair
@@ -179,18 +179,21 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-4k-clarity-comparison-projectors-vs-traditional-televisions/"><u>[New] 2024 Approved 4K Clarity Comparison Projectors vs Traditional Televisions</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-best-in-class-ps3-virtual-games-for-pc/"><u>[New] 2024 Approved Best-in-Class PS3 Virtual Games for PC</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-mastering-the-use-of-screencastify-app-step-by-step-guide-for-2024/"><u>[Updated] Mastering the Use of Screencastify App Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-samsung-galaxy-f15-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Samsung Galaxy F15 5G FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-picart-privacy-filter-no-more-recognizable-faces/"><u>In 2024, PicArt Privacy Filter No More Recognizable Faces</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-streamline-your-youtube-experience-shareable-playlists/"><u>In 2024, Streamline Your YouTube Experience Shareable Playlists</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/next-gen-players-guide-rift-vive-vs-ps-vr-games-for-2024/"><u>Next-Gen Players Guide Rift, Vive, vs PS VR Games for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/powershot-sx720hs-unveiled-portable-zoom-wonder/"><u>PowerShot SX720HS Unveiled: Portable Zoom Wonder</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revealing-the-power-of-the-j5-tactical-v1-pro-compact-design-meets-high-visibility-review/"><u>Revealing the Power of the J5 Tactical V1-Pro: Compact Design Meets High Visibility Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-tab-s6-review-s-pen-dex-mode-and-more/"><u>Samsung Galaxy Tab S6 Review: S Pen, DeX Mode, and More</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/simplified-surge-protection-with-cyberpowers-685-av-r-g-ups-a-performance-overview/"><u>Simplified Surge Protection with CyberPower's 685 AV R G UPS - A Performance Overview</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/top-3-strategies-for-capturing-real-time-sports-events-online-for-2024/"><u>Top 3 Strategies for Capturing Real-Time Sports Events Online for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-convert-4k-videos-to-mp4-a-step-by-step-guide-to-easy-downloads-for-2024/"><u>Updated Convert 4K Videos to MP4 A Step-by-Step Guide to Easy Downloads for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-mastery-over-instagram-video-playback-pace/"><u>[New] 2024 Approved Mastery Over Instagram Video Playback Pace</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-5-simplified-steps-for-sequential-youtube-video-viewing-free/"><u>[New] In 2024, 5 Simplified Steps for Sequential YouTube Video Viewing (Free)</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-navigate-lifes-challenges-with-these-15-engaging-activities-while-listening-to-podcasts/"><u>[New] Navigate Life's Challenges with These 15 Engaging Activities While Listening to Podcasts</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-projector-or-tv-optimal-choice-for-excellent-4k-display-experience/"><u>[Updated] 2024 Approved Projector or TV Optimal Choice for Excellent 4K Display Experience</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-archive-alchemist-transforming-social-feeds-to-files/"><u>[Updated] In 2024, The Archive Alchemist Transforming Social Feeds to Files</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-palette-excellence-editor/"><u>[Updated] Palette Excellence Editor</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-tapered-music-transitions-an-intuitive-premiere-pro-tutorial/"><u>2024 Approved Tapered Music Transitions An Intuitive Premiere Pro Tutorial</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/elevate-task-completion-discovering-7-key-benefits-of-chatgpt-in-daily-routine/"><u>Elevate Task Completion: Discovering 7 Key Benefits of ChatGPT in Daily Routine</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/makeblock-mbot-robot-kit-review/"><u>Makeblock mBot Robot Kit Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-home-wifi-with-linksys-velop-an-in-depth-review-of-this-powerful-mesh-solution/"><u>Mastering Home WiFi with Linksys Velop: An In-Depth Review of This Powerful Mesh Solution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mobvoi-ticwatch-e2-analysis-cost-effective-yet-lacks-quality/"><u>Mobvoi TicWatch E2 Analysis: Cost-Effective Yet Lacks Quality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/most-effective-replacements-for-microsoft-office-software/"><u>Most Effective Replacements for Microsoft Office Software</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-through-time-an-in-depth-review-of-lgs-traditional-smartwatch-lineup-powered-by-wear-os-20/"><u>Navigating Through Time: An In-Depth Review of LG's Traditional Smartwatch Lineup Powered by Wear OS 2.0</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/nook-glowlight-3-by-barnes-and-noble-a-comprehensive-nighttime-ebook-reader-assessment/"><u>Nook GlowLight 3 by Barnes & Noble - A Comprehensive Nighttime eBook Reader Assessment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ourlink-u631-tiny-usb-wi-fi-receiver-powerful-performance-in-a-small-package/"><u>Ourlink U631 Tiny USB Wi-Fi Receiver: Powerful Performance in a Small Package</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resolving-jvmdll-cannot-be-launched-a-step-by-step-fix-guide-for-windows-users/"><u>Resolving 'JVM.dll Cannot Be Launched': A Step-by-Step Fix Guide for Windows Users</u></a></li>
 </ul></div>
 

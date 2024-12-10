@@ -1,7 +1,7 @@
 ---
 title: "Unihertz Atom XL Analysis: Compact Yet Sturdy - A Mini Marvel in Smartphones"
-date: 2024-09-13T16:04:57.667Z
-updated: 2024-09-20T16:30:45.291Z
+date: 2024-12-08T12:58:43.369Z
+updated: 2024-12-09T23:53:57.474Z
 categories:
   - BestProducts
 description: "This Article Describes Unihertz Atom XL Analysis: Compact Yet Sturdy - A Mini Marvel in Smartphones"
@@ -63,6 +63,10 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Punching above the price point**
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master features a robust design that doesn’t feel like the manufacturer skimped on build quality — one of our biggest concerns with budget-minded flashes like this. When adjusting the position of the[flash head](https://www.lifewire.com/using-the-dslr-pop-up-flash-492975) through its 90 degrees of vertical and 270 degrees of horizontal range, it felt very solid.
@@ -76,10 +80,7 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Features & Functionality: Full suite manual control**
@@ -102,6 +103,10 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup: A lot of reading before use**
 
  Once you unpack your flash and install the four AA batteries, you’re going to want to familiarize yourself with the buttons and menu system a little. The YN560 IV has a lot of functionality, but it doesn’t have the most intuitive interface. The front of the device contains a top row of four buttons (a Light/Music icon, Mode, a Wi-Fi icon, and Zoom). Below this is a charge indicator button marked “PILOT”, a direction pad, and an On/Off button.
@@ -121,6 +126,10 @@ Lifewire / Jonno Hill
  Buyers that need a lot of manual control for complex flash setups will be very pleased with what the get for the approximately $60 the YN560 IV costs. It sits at a price that’s a fraction of its TTL-enabled Canon and Nikon counterparts, but twice that of even simpler options. Do you need all the functionality that the YN560 IV offers? Are you willing to troubleshoot a bit with returns to make sure you get good, non-defective units? If the answer to those questions is yes, this is definitely the flash for you.
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Yongnuo YN560 IV Wireless Flash Speedlite Master vs Neewer TT560 Flash Speedlite**
 
@@ -143,10 +152,7 @@ Lifewire / Jonno Hill
 * [Fovitec SPK10-037 Softbox Lighting Kit](https://www.lifewire.com/fovitec-spk10-037-softbox-lighting-kit-review-4692503)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -179,5 +185,26 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-craft-excellence-top-10-free-drawing-tools-for-mac/"><u>[New] In 2024, Craft Excellence Top 10 Free Drawing Tools for Mac</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-cutting-edge-techniques-for-live-videos-from-your-smartphone/"><u>[Updated] In 2024, Cutting-Edge Techniques for Live Videos From Your Smartphone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-mpc-hc-high-quality-audio-and-video/"><u>[Updated] In 2024, MPC-HC High Quality Audio and Video</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-professional-approach-to-screen-capturing-in-adobe-captive-environment/"><u>[Updated] In 2024, Professional Approach to Screen Capturing in Adobe Captive Environment</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-perfecting-mp4-conversion-ipv-techniques-for-high-quality-videos-for-2024/"><u>[Updated] Perfecting MP4 Conversion IPV Techniques for High-Quality Videos for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/echotech-acoustic-canal-defenders-review/"><u>EchoTech Acoustic Canal Defenders Review</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/essential-tools-for-advancing-skills-in-ai-prompt-design-discover-7-key-solutions/"><u>Essential Tools for Advancing Skills in AI Prompt Design - Discover 7 Key Solutions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-radpower-radcity-5-plus-a-study-in-strength-and-weight/"><u>Expert Analysis of the RadPower RadCity 5 Plus: A Study in Strength and Weight</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-on-aeious-nys-portable-solar-generator-a-must-have-for-high-quality-inverter-energy-in-healthcare-settings/"><u>Expert Analysis on Aeious Ny's Portable Solar Generator: A Must-Have for High-Quality Inverter Energy in Healthcare Settings</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-set-up-quick-guide-to-accessing-windows-updates/"><u>Get Set Up: Quick Guide to Accessing Windows Updates</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-premium-10-drones-capturing-images-and-films/"><u>In 2024, Premium 10 Drones Capturing Images & Films</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/mastering-the-air-a-detailed-evaluation-of-the-blade-blh41-120s-ready-to-fly-rc-helicopter/"><u>Mastering the Air: A Detailed Evaluation of the Blade BLH41 120S Ready-to-Fly RC Helicopter</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-the-future-a-look-at-top-long-range-routers-of-2024/"><u>Navigating the Future: A Look at Top Long-Range Routers of 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/netgear-c3000-cable-modem-router-review/"><u>Netgear C3000 Cable Modem Router Review</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-animate-on-the-move-best-3d-animation-apps-for-android-iphone-and-ipad-for-2024/"><u>New Animate on the Move Best 3D Animation Apps for Android, iPhone, and iPad for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/spk10-037-softbox-versatile-brightness-studios-new-star/"><u>SPK10-037 Softbox: Versatile Brightness, Studio's New Star</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultra-portable-lg-gram-17-analysis-light-as-a-feather-powerful-as-ever/"><u>Ultra-Portable LG Gram 17 Analysis: Light as a Feather, Powerful as Ever</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unmissable-deals-for-acer-devices-during-holiday-shopping-season-2024/"><u>Unmissable Deals for Acer Devices During Holiday Shopping Season 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-benefits-of-synology-rt2600ac-exceptional-wi-fi-range-and-robust-parental-control-mechanisms-for-secure-home-networking/"><u>Unveiling the Benefits of Synology RT2600ac – Exceptional Wi-Fi Range and Robust Parental Control Mechanisms for Secure Home Networking</u></a></li>
+</ul></div>
 

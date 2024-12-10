@@ -1,7 +1,7 @@
 ---
 title: Tested & Trusted Urban Armor Rainbow Sequin Case for MacBook Pro – A Solid Blend of Style and Durability
-date: 2024-09-15T16:06:11.512Z
-updated: 2024-09-20T16:33:30.480Z
+date: 2024-12-03T18:33:31.807Z
+updated: 2024-12-10T10:17:17.806Z
 categories:
   - BestProducts
 description: This Article Describes Tested & Trusted Urban Armor Rainbow Sequin Case for MacBook Pro – A Solid Blend of Style and Durability
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/5LDuZ6hwEpbkAgggHepaMTWoOBM=/400x300/fi
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/NWhMBmuK3pkL9EGvdNCEAF8sWEo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -41,6 +45,10 @@ Lifewire / Jeffrey Daniel Chadwick
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Jeffrey Daniel Chadwick
 
 [View On Amazon $100](https://www.amazon.com/Kensun-Performance-Portable-Compressor-Inflator/dp/B01J8Y91GC/?tag=lifewire-onsite-prod-20&ascsubtag=4776821%7Cn7137248c5e6f4b0b979879dcac87fc7908%7CB01J8Y91GC)
@@ -63,6 +71,10 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -84,6 +96,10 @@ Lifewire / Jeffrey Daniel Chadwick
  When you do finally get it wrapped up, the pump fits nicely in its included carrying case. It’s made of gore-tex, a fairly durable material, so it can take the punishment of being stored long-term in your trunk, and it’s compact enough that it won’t take up much room.
 
  Lifewire / Jeffrey Daniel Chadwick
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: T-minus one minute**
 
@@ -111,22 +127,12 @@ Lifewire / Jeffrey Daniel Chadwick
 
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: A decent buy considering its versatility**
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
@@ -166,5 +172,22 @@ Lifewire / Jeffrey Daniel Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-inside-the-world-of-zdsoft-video-capturing/"><u>[New] Inside the World of ZDSoft Video Capturing</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-pioneering-the-future-top-tips-for-remotely-capturing-talent/"><u>[Updated] In 2024, Pioneering the Future Top Tips for Remotely Capturing Talent</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-innovating-your-videos-first-impression-on-youtube/"><u>2024 Approved Innovating Your Video's First Impression on YouTube</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/assessing-the-durability-and-portability-of-kensuns-compact-tire-inflation-solution-an-in-depth-review/"><u>Assessing the Durability and Portability of Kensun's Compact Tire Inflation Solution: An In-Depth Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cd-200bt-reviews-top-studio-player-with-bluetooth-connectivity/"><u>CD-200BT Reviews: Top Studio Player with Bluetooth Connectivity</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/clandestine-call-collectors-a-stealthy-apps-review-androidios-for-2024/"><u>Clandestine Call Collectors A Stealthy Apps Review (Android/iOS) for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/gaming-on-samsungs-q60r-series-in-depth-analysis-of-the-qled-4k-tv/"><u>Gaming on Samsung's Q60R Series: In-Depth Analysis of the QLED 4K TV</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-breakthrough-vloggers-reviewed-the-best-15-youtube-channels-for-product-reviews/"><u>In 2024, Breakthrough Vloggers Reviewed The Best 15 YouTube Channels for Product Reviews</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastery-on-your-wrist-an-in-depth-look-at-the-premium-garmin-forerunner-745-fitness-device/"><u>Mastery on Your Wrist: An In-Depth Look at the Premium Garmin Forerunner 745 Fitness Device</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/navigating-ig-videos-successfully-building-an-efficient-marketing-blueprint/"><u>Navigating IG Videos Successfully Building an Efficient Marketing Blueprint</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-complete-guide-to-optimizing-your-home-network-an-in-depth-review-of-the-orbi-wi-fi-6-mesh-solution/"><u>The Complete Guide to Optimizing Your Home Network: An In-Depth Review of the Orbi Wi-Fi 6 Mesh Solution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-comparison-how-the-samsung-galaxy-s23-ultra-stacks-up-against-the-s21-ultra/"><u>Ultimate Comparison: How the Samsung Galaxy S23 Ultra Stacks Up Against the S21 Ultra</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-the-budget-champion-unveiling-the-strengths-of-acer-aspire-e-15/"><u>Ultimate Guide to the Budget Champion: Unveiling the Strengths of Acer Aspire E 15</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-the-ideal-lenovo-device-for-dual-environment-productivity-save-1000-today/"><u>Unveiling the Ideal Lenovo Device for Dual-Environment Productivity - Save $1,000 Today!</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Realme 12 5G? | Dr.fone</u></a></li>
+</ul></div>
 

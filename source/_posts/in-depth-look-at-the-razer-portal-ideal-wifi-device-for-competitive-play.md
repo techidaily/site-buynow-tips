@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Look at the Razer Portal: Ideal WIFI Device for Competitive Play"
-date: 2024-09-17T16:27:58.627Z
-updated: 2024-09-20T16:32:18.979Z
+date: 2024-12-09T06:15:19.142Z
+updated: 2024-12-10T12:02:09.792Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Look at the Razer Portal: Ideal WIFI Device for Competitive Play"
@@ -41,6 +41,10 @@ Lifewire / Sascha Brodsky
 
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/Bj4JU3ddfkgYppYQYoy1GmCukCA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-hero-8413a7aa67ca443bb241da703c1025b2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Sascha Brodsky
 
 [View On Amazon $2,417](https://www.amazon.com/dp/B09JQKBQSB/?tag=lifewire-onsite-prod-20&ascsubtag=5212480%7Cn60ce42cba99242f883f1d9bb0b4eacdd13%7CB09JQKBQSB) [View On B&H Photo Video $2,299](https://www.bhphotovideo.com/c/product/1668191-REG/apple%5Fmk1e3ll%5Fa%5F16%5F2%5Fmacbook%5Fpro%5Fwith.html) [View On Apple $2,499](https://www.apple.com/shop/buy-mac/macbook-pro/16-inch-space-gray-10-core-cpu-16-core-gpu-512gb)
@@ -76,6 +80,10 @@ Lifewire / Sascha Brodsky
 
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/dFndxams3xUoua0_gkYqRycgBdU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-1-db37ffedba744e8eb2070780c0d8de10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Sascha Brodsky
 
  The Pro could be considered a step back in some areas. For one thing, at 0.66 by 14 by 9.8 inches and 4.8 pounds, the MacBook Pro is chunkier and heavier than the model it replaces. This is definitely not a laptop you’ll forget you are carrying in your backpack. On the other hand, the heft of the new MacBook is reassuring and in keeping with its target market of professionals.
@@ -83,10 +91,7 @@ Lifewire / Sascha Brodsky
  Apple has also gone full circle and replaced the ports it removed in previous iterations of the MacBook. You get a MagSafe connector, headphone jack, SD card slot, HDMI port, and three Thunderbolt 4 ports, which should be enough for almost any user. There’s no USB-A port but most people won’t miss it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Keyboard: Precision is everything
@@ -105,16 +110,13 @@ Lifewire / Sascha Brodsky
 
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/tD3rxlw9zH5xufV5ztJIZyrJc3Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-3-db6300639d8049d1862d0e4f25a35222.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Sascha Brodsky
 
  The new MacBook’s trackpad works perfectly, which is more than you can about the one on most Windows laptops. I had no trouble flicking the cursor accurately around the screen when spending hours editing documents.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Display: Bright and beautiful
 
@@ -130,6 +132,10 @@ Lifewire / Sascha Brodsky
 
  Text looks terrific on the Pro, and I ended up spending time gazing at Word documents just to admire the way words look so crisp and defined. Video playback was equally impressive, with the Mini-LED screen revealing a level of detail that made me want to rewatch my favorite movies. The no-glare coating also works very well, even when using the Pro in direct sunlight.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Performance: Sizzling speed that stays cool
 
  The MacBook Pro uses the same cutting-edge M1 chip, designed by Apple, that’s been powering some of the company’s other machines over the past year.
@@ -139,13 +145,6 @@ Lifewire / Sascha Brodsky
  Apps start nearly instantly on the Pro. I have a bad habit of keeping too many browser tabs open while I’m working. But even when I had dozens of tabs open in both the Chrome and Safari web browsers, the Pro didn’t slow down.
 
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/UM5_acSqOhRJtIaZE3CeAWp45y0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-2-2be1639ee44f489286cb43a53aaf6454.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Sascha Brodsky
 
@@ -161,6 +160,10 @@ Lifewire / Sascha Brodsky
 
  Multi-Core: 7552
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Battery: Keeps on going and going
 
  One of the benefits of the new M1 chip is its efficiency. Despite its power, the chip sips energy. The M1 Pro ran for 16 hours on its battery during continuous use, making it the longest-lasting laptop I've ever tried.
@@ -170,13 +173,6 @@ Lifewire / Sascha Brodsky
  The M1 Pro ran for 16 hours during continuous use, making it the longest-lasting laptop I've ever tried.
 
  Another nice thing about the efficient M1 chip is the fact that the MacBook runs cool. I’ve used it for dozens of hours, and it never felt more than slightly warm. Contrast that to my 2019 MacBook Pro that used to get so hot I was worried it would catch fire.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Price: Cough, splutter?
 
@@ -244,5 +240,23 @@ Lifewire / Sascha Brodsky
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-enhancing-engagement-streaming-historical-video-events-on-facebook-for-2024/"><u>[New] Enhancing Engagement Streaming Historical Video Events on Facebook for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-boosting-your-content-reach-with-eye-catching-youtube-video-thumbnails/"><u>[New] In 2024, Boosting Your Content Reach with Eye-Catching YouTube Video Thumbnails</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-innovative-techniques-for-recording-instagram-story-highlights/"><u>[New] Innovative Techniques for Recording Instagram Story Highlights</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-building-a-channel-team-up-videography-guide/"><u>[Updated] 2024 Approved Building a Channel Team-Up Videography Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-guidelines-for-accurate-dating-of-digital-pictures/"><u>[Updated] Guidelines for Accurate Dating of Digital Pictures</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-highest-quality-documentphoto-scanners-selecting-the-perfect-one-for-you/"><u>2024'S Highest Quality Document/Photo Scanners - Selecting the Perfect One for You</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-doesnt-mean-inferior-discover-how-xiaomis-mi-smart-band-4-became-my-go-to-fitness-gadget/"><u>Affordable Doesn't Mean Inferior: Discover How Xiaomi's Mi Smart Band 4 Became My Go-To Fitness Gadget</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/assessing-value-in-mesh-wi-fi-installations/"><u>Assessing Value in Mesh Wi-Fi Installations</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/boost-your-traffic-with-our-cookiebot-seo-solutions/"><u>Boost Your Traffic with Our Cookiebot SEO Solutions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-list-ultimate-waterfront-tech/"><u>Comprehensive List: Ultimate Waterfront Tech</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-asuss-vivobook-11-small-laptop-big-on-performance-and-budget-friendly-features/"><u>Evaluating Asus's VivoBook 11: Small Laptop, Big on Performance & Budget-Friendly Features</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fix-warzone-20-launching-problems-in-pc-for-players-learn-these-7-effective-fixes/"><u>Fix Warzone 2.0 Launching Problems in PC for Players - Learn These 7 Effective Fixes!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-to-make-a-flawless-move-to-ios-15/"><u>How to Make a Flawless Move to iOS 15</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-snapchat-commerce-masterclass-essentials-unveiled/"><u>In 2024, SnapChat Commerce Masterclass Essentials Unveiled</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unpacking-the-power-of-asus-zenwifi-xt8-an-in-depth-review-of-your-next-mesh-router-upgrade/"><u>Unpacking the Power of ASUS ZenWifi XT8: An In-Depth Review of Your Next Mesh Router Upgrade</u></a></li>
+</ul></div>
 

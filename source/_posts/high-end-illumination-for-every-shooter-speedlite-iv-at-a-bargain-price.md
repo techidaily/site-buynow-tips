@@ -1,7 +1,7 @@
 ---
 title: "High-End Illumination for Every Shooter: Speedlite IV at a Bargain Price!"
-date: 2024-09-15T16:45:52.017Z
-updated: 2024-09-20T17:10:16.032Z
+date: 2024-12-03T12:51:38.344Z
+updated: 2024-12-09T17:26:34.918Z
 categories:
   - BestProducts
 description: "This Article Describes High-End Illumination for Every Shooter: Speedlite IV at a Bargain Price!"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/af1734dc2b0a9d3bcad9faa3494b27c219c63253c
 ## Survive the Night with Friends in 'Dying Light': A Thrilling First-Person Parkour and Cooperative Gameplay Experience
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Dying Light
 
@@ -36,6 +40,10 @@ Lifewire / Kelsey Simon
 [View On Amazon](https://www.amazon.com/dp/B00D2ZK1IG/?tag=lifewire-onsite-prod-20&ascsubtag=4778324%7Cn8b17d62e028148938085d16c4455799211%7CB00D2ZK1IG) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/dying-light/10111372.html)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Dying Light
 
@@ -64,6 +72,10 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/_0yEidfS3S4dy57s584t378TZYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-5-4ec68914607c4b56acff25a78887af7f.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 ## **Setup Process: Straight into the action**
@@ -73,6 +85,10 @@ Lifewire / Kelsey Simon
 ![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Plot: A character torn between obligation and friendship**
 
@@ -86,21 +102,7 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/8G35q3VsoSEuht_3bqsGm0Pwz-0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-7-d9d2bbe8881e476f8dfb3c13059634ed.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Gameplay: Parkour and zombies galore**
 
@@ -116,14 +118,11 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/YctEePpYKsIXQ5kU-hQ8w7o9CDo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-4-1edeaf05c6ba435e9b81e68a13831ac6.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Graphics: Attention to detail**
 
@@ -151,6 +150,10 @@ Harran is a whole different city at night.
 
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Dying Light
@@ -170,5 +173,23 @@ Harran is a whole different city at night.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-behind-the-scenes-to-the-best-free-meme-designs/"><u>[New] Behind-The-Scenes to the Best FREE Meme Designs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-fixing-muted-sound-on-youtube-based-twitter-clips/"><u>[New] In 2024, Fixing Muted Sound on YouTube-Based Twitter Clips</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-dial-in-on-details-the-essentials-of-google-meet-zooming/"><u>[Updated] In 2024, Dial In on Details The Essentials of Google Meet Zooming</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-window-warriors-elite-video-editor-picks/"><u>[Updated] In 2024, Window Warriors Elite Video Editor Picks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/amplifi-hd-mesh-system-insights-how-to-achieve-uninterrupted-home-internet-coverage/"><u>Amplifi HD Mesh System Insights: How to Achieve Uninterrupted Home Internet Coverage</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/can-you-upgrade-a-laptop-cpu/"><u>Can You Upgrade a Laptop CPU?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-minecrafts-campfire-stories-skins-edition-analysis/"><u>Comprehensive Guide: Minecraft's Campfire Stories Skins Edition Analysis</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-motorola-edge-40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Motorola Edge 40 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/microsoft-office-substitutes-the-best-picks/"><u>Microsoft Office Substitutes: The Best Picks</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-dynamic-duo-how-to-automatically-manage-volume-levels-using-audio-ducking-in-adobe-premiere-pro-for-macos-for-2024/"><u>New Dynamic Duo How to Automatically Manage Volume Levels Using Audio Ducking in Adobe Premiere Pro for macOS for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/romers-powerful-and-portable-chargeable-searchlight-review-ideal-for-camping-and-hiking/"><u>Romer's Powerful and Portable Chargeable Searchlight Review: Ideal for Camping and Hiking</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/mline-your-content-with-essential-ratio-knowledge-for-youtube-for-2024/"><u>Streamline Your Content with Essential Ratio Knowledge for YouTube for 2024</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-pictures-from-huawei-nova-y91-by-fonelab-android-recover-pictures/"><u>Undelete lost pictures from Huawei Nova Y91.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/understanding-iphones-eco-friendly-upgrade-scheme/"><u>Understanding iPhone’s Eco-Friendly Upgrade Scheme</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unveiling-the-excellence-how-the-oculus-quest-2-redefines-virtual-reality/"><u>Unveiling the Excellence: How the Oculus Quest 2 Redefines Virtual Reality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-portable-marvel-in-depth-look-at-lenovo-thinkpad-x1-nano/"><u>Unveiling the Portable Marvel: In-Depth Look at Lenovo ThinkPad X1 Nano</u></a></li>
+</ul></div>
 

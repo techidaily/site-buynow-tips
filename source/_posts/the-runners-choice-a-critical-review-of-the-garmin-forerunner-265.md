@@ -1,7 +1,7 @@
 ---
 title: The Runner's Choice? - A Critical Review of the Garmin Forerunner 265
-date: 2024-11-27T01:34:43.061Z
-updated: 2024-12-02T18:03:59.599Z
+date: 2024-12-08T07:30:39.666Z
+updated: 2024-12-09T22:21:50.559Z
 categories:
   - BestProducts
 description: This Article Describes The Runner's Choice? - A Critical Review of the Garmin Forerunner 265
@@ -38,16 +38,12 @@ Lifewire / Jonno Hill
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -78,12 +74,16 @@ Lifewire / Jonno Hill
 
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup: Dead simple**
 
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Acceptable but not incredible**
@@ -97,7 +97,7 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Excellent for the performance**
@@ -116,7 +116,7 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -146,22 +146,18 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-digital-diaries-top-picks-for-personal-recorders/"><u>[New] Digital Diaries Top Picks for Personal Recorders</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-guide-to-stretched-seconds-capturing-slow-mo-videos-using-mobile-apps-and-internet-platforms/"><u>[New] The Ultimate Guide to Stretched Seconds Capturing Slow-Mo Videos Using Mobile Apps and Internet Platforms</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-no-software-no-problem-youtube-downloads/"><u>[Updated] No Software, No Problem YouTube Downloads</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/asus-vg245h-the-definitive-display-choice-for-avid-console-gamers/"><u>Asus VG245H: The Definitive Display Choice for Avid Console Gamers</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/best-of-the-best-comparing-top-3-leading-photo-deletion-restoration-apps/"><u>Best of the Best: Comparing Top 3 Leading Photo Deletion Restoration Apps</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/best-on-the-go-car-start-kits-2024/"><u>Best On-the-Go Car Start Kits 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/bluetooth-enabled-blueear-beanie-hat-the-perfect-marriage-of-fashion-and-function-for-your-ears/"><u>Bluetooth-Enabled Blueear Beanie Hat: The Perfect Marriage of Fashion and Function for Your Ears</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/boost-workplace-dynamics-selecting-best-language-aids/"><u>Boost Workplace Dynamics: Selecting Best Language Aids</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/canon-mf8200c-printer-drivers-available-now-compatible-with-windows-operating-systems/"><u>Canon MF8200C Printer Drivers Available Now - Compatible with Windows Operating Systems</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-vyncs-link-reviews-a-reliable-analytics-tool-and-its-puzzling-subscription-tiers/"><u>Comprehensive Guide to Vyncs Link Reviews: A Reliable Analytics Tool and Its Puzzling Subscription Tiers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/culinary-havoc-a-savory-in-depth-review-of-overcooked-2/"><u>Culinary Havoc: A Savory In-Depth Review of Overcooked! 2</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/daring-quests-redefined-delving-into-the-world-of-yokus-island-express/"><u>Daring Quests Redefined: Delving Into the World of Yoku’s Island Express</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/deciding-between-top-brands-a-comparative-guide-to-amazon-fire-and-samsung-tablets/"><u>Deciding Between Top Brands: A Comparative Guide to Amazon Fire and Samsung Tablets</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/digital-domiciles-deluxe-edition-expanding-your-island-home/"><u>Digital Domiciles Deluxe Edition: Expanding Your Island Home</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-htc-u23-pro-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from HTC U23 Pro to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/lenovo-display-troubles-seeing-beyond-the-black/"><u>Lenovo Display Troubles: Seeing Beyond the Black</u></a></li>
-<li><a href="https://change-location.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Vivo V29 Pro | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-game-on-steps-for-crafting-an-influential-online-gamers-channel-for-2024/"><u>[New] Game On Steps for Crafting an Influential Online Gamers' Channel for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/1716070019951-new-in-2024-learn-to-record-mac-display-like-a-pro/"><u>[New] In 2024, Learn to Record MAC Display Like a Pro!</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-social-media-savvy-turning-friends-into-customers-and-coins/"><u>[Updated] Social Media Savvy Turning Friends Into Customers and Coins</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-step-by-step-guide-to-the-ultimate-photo-editing-with-facetune-2e/"><u>[Updated] Step-by-Step Guide to the Ultimate Photo Editing with Facetune (2E)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/big-on-youtube-strategies-for-successful-creators-for-2024/"><u>Earn Big on YouTube Strategies for Successful Creators for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-withings-move-combining-classic-style-with-smart-features/"><u>Evaluating the Withings Move: Combining Classic Style with Smart Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-on-tp-links-re200-80211ac-range-extender-exceptional-performance-meets-economy/"><u>Expert Analysis on TP-Link's RE200 802.11Ac Range Extender - Exceptional Performance Meets Economy</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-bdr-xs06-pioneer-blu-ray-burner-an-in-depth-look-at-its-performance-and-convenience-features/"><u>Exploring the BDR-XS06 Pioneer Blu-Ray Burner: An In-Depth Look at Its Performance and Convenience Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-latest-innovations-on-the-apple-iphone-15-pro-a-closer-look/"><u>Exploring the Latest Innovations on the Apple iPhone 15 Pro – A Closer Look</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fortnite-season-review-a-dynamic-and-engaging-gaming-experience-redefined/"><u>Fortnite Season Review: A Dynamic and Engaging Gaming Experience Redefined</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/framing-life-with-w15a-fantastic-few-foibles/"><u>Framing Life with W15A: Fantastic, Few Foibles</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/pitfalls-of-mobile-chatgpt-engagement/"><u>Pitfalls of Mobile ChatGPT Engagement</u></a></li>
+<li><a href="https://fox-that.techidaily.com/revive-your-iphone-contacts-app-with-these-simple-troubleshooting-steps-3-tips/"><u>Revive Your iPhone Contacts App with These Simple Troubleshooting Steps (3 Tips)</u></a></li>
 </ul></div>
 

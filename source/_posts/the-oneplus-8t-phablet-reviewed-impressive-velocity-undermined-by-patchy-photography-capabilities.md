@@ -1,7 +1,7 @@
 ---
 title: "The OnePlus 8T Phablet Reviewed: Impressive Velocity Undermined by Patchy Photography Capabilities"
-date: 2024-09-16T16:31:28.097Z
-updated: 2024-09-20T16:08:40.893Z
+date: 2024-12-08T06:15:51.891Z
+updated: 2024-12-09T17:23:31.245Z
 categories:
   - BestProducts
 description: "This Article Describes The OnePlus 8T Phablet Reviewed: Impressive Velocity Undermined by Patchy Photography Capabilities"
@@ -13,9 +13,17 @@ thumbnail: https://thmb.techidaily.com/f566bd666fcbb760f9054267072a040c66295187d
 
 4.7
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fitbit Charge 4 Fitness Tracker
 
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/yo9CS9ZHHalRYthVdaCfit6zr7Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Fitbit-Charge-4-Fitness-Tracker-1-c163fbceed1748a6bd3de7883ab66a4d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Anduy Zahn
 
@@ -74,6 +82,10 @@ Lifewire / Anduy Zahn
 
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/hXje3GJQ1qjDfhBph7Q2s-LKCTE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-4-Fitness-Tracker-4-5fb3fda3d53d4120bfb7c3e1b418abab.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
 ## **Setup process: Streamlined and straightforward**
@@ -89,10 +101,7 @@ Lifewire / Anduy Zahn
  As someone with ridiculously large wrists, I really appreciated that the Charge 4 comes with a larger watch band.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: A digital fitness coach**
@@ -119,14 +128,11 @@ Lifewire / Andy Zahn
 
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/wFO4EEqsgPPy2Dq-eUgUTZ1q70A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-4-Fitness-Tracker-3-38e2a0e1ea5a46ee85939b8dec6d6a48.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Battery Life: Awesome, but with caveats**
 
@@ -134,16 +140,13 @@ Lifewire / Andy Zahn
 
  However, I did run into a few issues worth mentioning. First of all, when the battery drops below 20% the Charge 4 seems to go into a power-saving mode that limits functionality. Secondly, using features like exercise tracking that use the GPS will drain the battery much more quickly. When I embarked with a full charge on a two-day backpacking trip and set the Charge 4 to record the hike as an exercise it only lasted me through roughly 75% of the two days of trekking.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Good value**
 
  With an MSRP of $150 the Fitbit Charge 4 is somewhat expensive but fairly priced for a basic smartwatch. However, extra accessories and subscription services can quickly add to the cost.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Fitbit Charge 4 vs. Fossil Sport**
 
@@ -154,19 +157,6 @@ Lifewire / Andy Zahn
  **Whether you’re looking for a minimalist smartwatch or an effective fitness tracker, the Fitbit Charge 4 is a generally excellent device.**
 
  I was frankly shocked by how much I have come to like the Fitbit Charge 4\. It’s as functional as it’s good looking, and provides both reasonably accurate fitness tracking and well integrated basic smartwatch functionality. Despite a few minor flaws such as a subscription paywall for some features and battery hogging GPS I can heartily recommend the Charge 4.
-
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -193,5 +183,26 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-compreeved-tips-on-using-vlcs-video-tools/"><u>[New] Compreeved Tips on Using VLC's Video Tools</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-pro-convertors-guide-top-10-online-free-transformers-listed/"><u>[New] Pro Convertors Guide Top 10 Online, Free Transformers Listed</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-alternatives-to-vlc-revealed-in-detailed-review/"><u>[Updated] 2024 Approved Alternatives to VLC Revealed in Detailed Review</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-efficient-image-capture-try-these-top-5-pc-tools/"><u>[Updated] 2024 Approved Efficient Image Capture? Try These Top 5 PC Tools</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-master-recording-techniques-for-your-logitech-webcam-installation/"><u>2024 Approved Master Recording Techniques for Your Logitech Webcam Installation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/amazon-halo-unveiled-an-innovative-intimate-approach-to-tracking-your-wellbeing/"><u>Amazon Halo Unveiled - An Innovative, Intimate Approach to Tracking Your Wellbeing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/answer-spo0f-acts-as-a-phosphotransferase-that-conveys-a-phosphate-group-from-spo0b-to-spo0a-which-then-becomes-activated-and-initiates-the-expression-of-ge105/"><u>Answer: Spo0F Acts as a Phosphotransferase that Conveys a Phosphate Group From Spo0B to Spo0A, Which Then Becomes Activated and Initiates the Expression of Genes Necessary for the Initiation of Sporulation.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/creating-your-own-nintendo-network-account-a-step-by-step-guide-for-the-3ds/"><u>Creating Your Own Nintendo Network Account: A Step-by-Step Guide for the 3DS</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/days-gone-review/"><u>Days Gone Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-why-the-sumind-bt70b-is-tops-amongst-bluetooth-fm-transmitters-a-review-worth-reading/"><u>Discover Why the Sumind BT70B Is Tops Amongst Bluetooth FM Transmitters: A Review Worth Reading</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150223-9780008667559-gemini-2025-your-personal-horoscope/"><u>Gemini 2025: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-step-by-step-guide-to-professional-youtube-live-broadcast-with-wirecast/"><u>In 2024, Step-by-Step Guide to Professional YouTube Live Broadcast with WireCast</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-vr-for-the-on-the-move-top-10-headsets-reviewed/"><u>In 2024, VR for the On-the-Move Top 10 Headsets Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reliable-petfeeding-solution-with-the-petsafe-six-meal-automatic-feeder/"><u>Reliable PetFeeding Solution with the PetSafe Six-Meal Automatic Feeder</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-catalina-leap-upgrading-to-newest-macos-version/"><u>The Catalina Leap: Upgrading to Newest MacOS Version</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-evolution-of-microsofts-ai-models-understanding-gpt-4-gpt-4-turbo-and-gpt-n-variances/"><u>The Evolution of Microsoft's AI Models – Understanding GPT-4, GPT-4 Turbo and GPT-N Variances</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-tech-gadget-review-poweradds-pilot-pro2-superior-charge-for-laptops-and-more/"><u>The Ultimate Tech Gadget Review: POWERADD's Pilot Pro2 - Superior Charge for Laptops and More</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlocking-pleasure-in-play-a-guide-to-pokemon-shining-pearl-adventures/"><u>Unlocking Pleasure in Play: A Guide to Pokemon Shining Pearl Adventures</u></a></li>
+<li><a href="https://driver-error.techidaily.com/windows-1110-reinstate-acquisition-hardware/"><u>Windows 11/10: Reinstate Acquisition Hardware</u></a></li>
+</ul></div>
 

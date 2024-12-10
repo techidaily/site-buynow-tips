@@ -1,7 +1,7 @@
 ---
 title: "The Featherlight Game Changer: A Deep Dive Review Into the Exceptional Battery Life & Mobility of the LG Gram 15.6 Laptop (2018 Edition)"
-date: 2024-11-25T19:18:54.096Z
-updated: 2024-12-03T05:22:03.886Z
+date: 2024-12-04T05:21:16.633Z
+updated: 2024-12-10T00:22:43.864Z
 categories:
   - BestProducts
 description: "This Article Describes The Featherlight Game Changer: A Deep Dive Review Into the Exceptional Battery Life & Mobility of the LG Gram 15.6 Laptop (2018 Edition)"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/11bd493dd0576b5128c521759756af9ef04692489
 ## Alienware Aurora R9
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/SBirmVys72S63lQd4lWukO_gXRw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -36,6 +40,10 @@ Lifewire / Zach Sweat
 [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Falienware-aurora-r9-gaming-desktop-intel-core-i7-9700-16gb-memory-nvidia-geforce-rtx-2080-super-1tb-hdd-512gb-ssd-white-lunar-light%2F6373818.p%3FskuId%3D6373818) [View On Dell](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.dell.com%2Fen-us%2Fshop%2Fcty%2Fpdp%2Fspd%2Falienware-aurora-r9-desktop)
 
 3.3
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Alienware Aurora R9
 
@@ -73,10 +81,6 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wRBNGBQw39Gc3PVZ6i0PJB4LuWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-08-406d659ae21641d2b9df53303e8f6d76.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
 ## **Design: Polarizing sci-fi aesthetics**
@@ -99,10 +103,6 @@ Lifewire / Zach Sweat
 
  Inside the case, Alienware has made the new R9 quite upgradeable, allowing owners to easily pull things apart for access to various components. Though it’s a bit cramped inside, the genius ability to swing the PSU (power supply unit) out to the side when the case is removed provides easier access to the motherboard and all its parts. While we’re a bit concerned with the airflow due to this tight fit inside the case, it does allow you to upgrade hardware down the line if you want.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Plug and play**
 
  Because this is a prebuilt, setting up your new PC is super simple—essentially plug and play. This is another hugely important thing to consider if you want to get into PC gaming, but don’t know the first thing about installing an OS, troubleshooting build issues or navigating the BIOS.
@@ -116,7 +116,7 @@ Lifewire / Zach Sweat
  From here, you can either fine tune your new PC’s looks within the settings menu or keep things as they are. If you’re using a monitor with a higher refresh rate or resolution, it’s also a good idea to ensure your PC is fully utilizing this by perusing the display settings and options. After all, nobody likes finding out they’ve been stuck on 60Hz with their display that’s capable of hitting 144Hz.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Results may vary**
@@ -135,11 +135,11 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/zWvKnnWGsRBdtRIHTYYD7HEs0qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-13-88a6bd8dac13438794a0bb038df7757f.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Gaming: From ok to amazing, if you have the cash**
 
@@ -200,7 +200,7 @@ Lifewire / Zach Sweat
  For RGB fans, the AlienFX hardware and software provides tons of potential combinations with up to 16.8 million color options. Users can take full control of the external RGB along the front and sides of the tower in addition to supported peripherals. Themes you create can also be saved and assigned to specific games, which is a pretty sweet perk.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Not the best bang for your buck**
@@ -217,6 +217,10 @@ Lifewire / Zach Sweat
 
  Overall, the price of the R9 is ok at best, and you do get some nice software features from Alienware, but it’s still cheaper to build your own.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Alienware Aurora R9 vs. Dell G5 5090**
 
  Comparing two gaming PCs in a head-to-head competition is difficult due to the sheer amount of potential hardware configurations, but Dell also offers prebuilts outside the Alienware brand that are similar.
@@ -232,10 +236,6 @@ Lifewire / Zach Sweat
  **A quality prebuilt, but not the most frugal.**
 
  With a distinct design that only Alienware can pull off, the Aurora R9 is a futuristic-looking prebuilt PC with a lot of good, but a bit of extra cost. If you love Alienware or the look of the R9, it’s not a bad option, but it’s certainly not the most frugal.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -265,20 +265,21 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-are-reviews-for-goods-online-monetized-in-2024/"><u>[New] Are Reviews For Goods Online Monetized, In 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-exploring-the-best-android-and-ios-wedding-timers-for-seamless-countdowns/"><u>[Updated] Exploring the Best Android & iOS Wedding Timers for Seamless Countdowns</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-bypass-activation-lock-from-apple-iphone-xs-max-by-drfone-ios/"><u>3 Effective Ways to Bypass Activation Lock from Apple iPhone XS Max</u></a></li>
-<li><a href="https://howto.techidaily.com/best-methods-for-samsung-galaxy-a14-4g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Samsung Galaxy A14 4G Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/choosing-smart-speakers-how-echo-dot-stacks-up-against-the-homepod-mini/"><u>Choosing Smart Speakers: How Echo Dot Stacks Up Against the HomePod Mini</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/combining-style-with-functionality-a-comprehensive-review-of-the-swagtron-swagger-electric-scooter/"><u>Combining Style with Functionality: A Comprehensive Review of the Swagtron Swagger Electric Scooter</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-prescription-sunglasses-fighting-digital-screen-hazards/"><u>Comprehensive Analysis: Prescription Sunglasses Fighting Digital Screen Hazards</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-star-wars-squadrons-gameplay-analysis-and-space-battle-experience/"><u>Comprehensive Star Wars Squadrons Gameplay Analysis & Space Battle Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/deciding-on-digital-pages-a-detailed-comparison-between-ipads-kindles-and-nooks/"><u>Deciding on Digital Pages: A Detailed Comparison Between iPads, Kindles and Nooks</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/decoding-value-an-in-depth-review-of-the-newly-launched-amazon-fire-hd-8-tablet/"><u>Decoding Value: An In-Depth Review of the Newly Launched Amazon Fire HD 8 Tablet</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discovering-the-best-in-economy-laptops-an-in-depth-review-of-acer-aspire-e-15/"><u>Discovering the Best in Economy Laptops: An In-Depth Review of Acer Aspire E 15</u></a></li>
-<li><a href="https://win-able.techidaily.com/freeze-thaw-cycles/"><u>Freeze-Thaw Cycles:</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-contacts-from-meizu-21-by-fonelab-android-recover-contacts/"><u>Possible solutions to restore deleted contacts from Meizu 21.</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-future-is-here-apple-watch-ultra-teaser-analysis-with-price-estimates-release-windows-and-leaked-specs/"><u>The Future Is Here: Apple Watch Ultra Teaser Analysis with Price Estimates, Release Windows and Leaked Specs</u></a></li>
-<li><a href="https://blog-min.techidaily.com/transformez-vos-videos-mp4-en-animations-gif-facilement-avec-movavi-gratuit-and-off-line/"><u>Transformez Vos Vidéos MP4 en Animations GIF Facilement Avec Movavi, Gratuit & Off-Line</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-best-practices-in-unbounded-online-space-use/"><u>[Updated] Best Practices in Unbounded Online Space Use</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/acer-xfa240-assessment-prioritizing-performance-and-utility/"><u>Acer XFA240 Assessment: Prioritizing Performance and Utility</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/aeiusys-reliable-portable-solar-solution-review-of-a-pure-sine-wave-inverter-designed-for-medical-gear-efficiency/"><u>Aeiusy's Reliable Portable Solar Solution: Review of a Pure Sine Wave Inverter Designed for Medical Gear Efficiency</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-tablet-performance-a-focus-on-cpu-power/"><u>Comparing Tablet Performance: A Focus on CPU Power</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-breakdown-of-uniden-r3s-solid-build-quality-and-superior-range-features/"><u>Comprehensive Breakdown of Uniden R3's Solid Build Quality and Superior Range Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-blade-blh4100-120s-rtf-outdoor-rc-helicopter-in-depth-analysis-and-performance-insights/"><u>Comprehensive Guide: Blade BLH4100 120S RTF Outdoor RC Helicopter - In-Depth Analysis and Performance Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-look-at-apple-watch-series-6-understated-enhancements-keeping-it-as-top-choice/"><u>Comprehensive Look at Apple Watch Series 6: Understated Enhancements Keeping It as Top Choice</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-test-drive-of-the-gaomon-pd1560-the-ultimate-stylus-drawing-device/"><u>Comprehensive Test Drive of the Gaomon PD1560: The Ultimate Stylus Drawing Device?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/decoding-the-instagram-story-viewer-experience-for-2024/"><u>Decoding the Instagram Story Viewer Experience for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-vivo-y100i-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Vivo Y100i Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-oneplus-ace-2v-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your OnePlus Ace 2V Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/motorolas-moto-g-play-examined-impressive-energy-efficiency-and-competent-functionality-on-display/"><u>Motorola's Moto G Play Examined – Impressive Energy Efficiency and Competent Functionality on Display</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/newest-advancements-unveiled-for-samsung-galaxy-wearables-and-cutting-edge-foldable-tech-gadgets/"><u>Newest Advancements Unveiled for Samsung Galaxy Wearables and Cutting-Edge Foldable Tech Gadgets</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/1726030458022-pcdvd/"><u>PC上のDVD鑑賞: 借りた映画をバックアップする自由・有料方法集</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ct-your-channel-imagery-youtube-thumbnail-dos-and-donts-for-2024/"><u>Perfect Your Channel Imagery YouTube Thumbnail Do's & Don'ts for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/ultimate-tutorial-configuring-and-using-telnet-in-windows-os/"><u>Ultimate Tutorial: Configuring and Using Telnet in Windows OS</u></a></li>
 </ul></div>
 
