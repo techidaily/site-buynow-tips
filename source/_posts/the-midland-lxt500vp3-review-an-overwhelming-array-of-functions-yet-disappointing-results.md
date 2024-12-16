@@ -1,7 +1,7 @@
 ---
 title: The Midland LXT500VP3 Review – An Overwhelming Array of Functions Yet Disappointing Results
-date: 2024-12-04T03:37:39.239Z
-updated: 2024-12-09T17:06:32.372Z
+date: 2024-12-13T17:44:29.908Z
+updated: 2024-12-16T17:24:59.882Z
 categories:
   - BestProducts
 description: This Article Describes The Midland LXT500VP3 Review – An Overwhelming Array of Functions Yet Disappointing Results
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/liJwE98Sv8EgOXIWVzrkFGGXxEo=/400x300/fi
 ## Radiation Therapy May Be Employed for Pain Management and Fracture Prevention in Cases of Significant Osteoblastic Growths
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## TopMate C302 Laptop Cooling Pad
 
@@ -36,6 +40,10 @@ Lifewire / Andrew Hayward
 [View On Amazon $17](https://www.amazon.com/dp/B01L8M215A?tag=lifewire-onsite-prod-20&ascsubtag=5193471%7Cn3d06d6a443e14152b7728753066731b712%7CB01L8M215A)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## TopMate C302 Laptop Cooling Pad
 
@@ -72,7 +80,7 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3qjwZzxQ2KVhmQJOdD2R9jBegvI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_03-ed7074949b6f4e4794ce30be2d582058.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
@@ -91,15 +99,7 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Performance: It makes a difference
 
@@ -115,25 +115,21 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Xs71AyeThjZwy-vZJ9LfxIhuXJc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_04-eadbaf270b874af9bb8843b95efe8ca7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
  Lastly, UNIGINE’s Heaven Benchmark hit 162 degrees internally and 109 degrees externally on the Razer Blade 15 alone, and dropped to 154 degrees internally and 105 degrees externally when using the C302\. All told, this lightweight and affordable pad delivered solid cooling power that helped cut down on both the internal and external temperature of the laptop while under significant stress.
 
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Price: It’s very affordable
 
  At $30, this is one of the most affordable laptop cooling pads on the market right now. While results varied across multiple tests and games/apps, the C302 was pretty well in line with some of the pricier options I tested. It feels a little flimsy and doesn’t have any premium features, but the C302 is a very good entry-level option.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -146,6 +142,10 @@ Lifewire / Andrew Hayward
 **An ideal entry-level pick.**
 
  Durability questions aside, the TopMate C302 Laptop Cooling Pad ultimately worked about as well as the other, pricier pads I tested, helping to offset some of the heat generated by a very hot gaming laptop. If you’re concerned about long-term damage or performance degradation from an overheating laptop, the C302 is a cost-efficient way to help keep your notebook from reaching extreme heat peaks.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -181,24 +181,19 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-your-video-rankings-with-effective-seo-tactics/"><u>[Updated] 2024 Approved Elevate Your Video Rankings with Effective SEO Tactics</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-tips-and-tricks-for-efficient-use-of-steams-switch-controllers/"><u>[Updated] 2024 Approved Tips & Tricks for Efficient Use of Steam’s Switch Controllers</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/becoming-an-accomplished-cio-five-key-techniques-to-elevate-your-professional-journey-guidance-by-zdnet/"><u>Becoming an Accomplished CIO: Five Key Techniques to Elevate Your Professional Journey - Guidance by ZDNET</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/direct-video-tweet-to-twitter-apps-no-retweets-involved/"><u>Direct Video Tweet to Twitter Apps, No Retweets Involved</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-motorola-edge-40-neo-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Motorola Edge 40 Neo | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-infinix-note-30-pro-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Infinix Note 30 Pro to iPhone 14/15 | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/managing-stress-effectively-using-chatgpt-a-comprehensive-guide/"><u>Managing Stress Effectively Using ChatGPT: A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-home-wi-fi-with-linksys-ea8300-optimizing-for-multiple-gadgets/"><u>Mastering Home Wi-Fi with Linksys EA8300: Optimizing for Multiple Gadgets</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-mobility-top-car-navigational-aids-of-2024/"><u>Mastering Mobility: Top Car Navigational Aids of 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maximize-productivity-without-breaking-the-bank-the-fellowes-microban-wired-keyboard-reviewed/"><u>Maximize Productivity Without Breaking the Bank: The Fellowes Microban Wired Keyboard Reviewed</u></a></li>
-<li><a href="https://solve-help.techidaily.com/myriadcam-pro-cutting-edge-video-broadcasting-suite-with-digital-webcams/"><u>MyriadCam Pro: Cutting-Edge Video Broadcasting Suite with Digital Webcams</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/navigating-the-market-a-guide-to-prime-scanners-of-2024/"><u>Navigating the Market: A Guide to Prime Scanners of 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/outstanding-huawei-p20-pro-photography-on-an-impressive-smartphone/"><u>Outstanding Huawei P20 Pro Photography on an Impressive Smartphone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/pro-photography-meets-canva-exclusive-editing-secrets/"><u>Pro Photography Meets Canva Exclusive Editing Secrets</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/razer-portal-in-focus-the-ultimate-wi-fi-gaming-experience-for-enthusiasts/"><u>Razer Portal in Focus: The Ultimate Wi-Fi Gaming Experience for Enthusiasts</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-of-the-holy-stone-rc-toys-racing-set-perfect-entertainment-for-all-ages/"><u>Review of the Holy Stone RC Toys Racing Set - Perfect Entertainment for All Ages</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/stellaris-gameplay-breakdown-conquest-diplomacy-and-empire-building-in-deep-space/"><u>Stellaris Gameplay Breakdown: Conquest, Diplomacy & Empire Building in Deep Space</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/streamlined-brilliance-discover-the-well-balanced-design-of-the-acer-aspire-c2/"><u>Streamlined Brilliance: Discover the Well-Balanced Design of the Acer Aspire C2#</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ultimate-guide-setting-up-your-printer-with-windows-11/"><u>Ultimate Guide: Setting Up Your Printer with Windows 11</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-gleeful-loginsign-up-step-guide/"><u>[New] Gleeful Login/Sign Up Step Guide</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-honor-x50i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/editing-wmv-videos-for-free-top-software-solutions-for-seamless-online-and-offline-editing/"><u>Editing WMV Videos for Free: Top Software Solutions for Seamless Online and Offline Editing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-imperator-rome-the-gritty-journey-from-ruins-to-dominion/"><u>Exploring Imperator: Rome – The Gritty Journey From Ruins to Dominion</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-12-pro-without-losing-any-content-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 12 Pro without Losing Any Content? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-rcas-video-doorbell-security-system/"><u>In-Depth Analysis of RCA's Video Doorbell Security System</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-yokus-island-express-unpredictable-epic-journeys-await/"><u>In-Depth Look at Yoku's Island Express: Unpredictable Epic Journeys Await</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580725310-jumpstart-your-croatian-experience-heres-the-7-reason-guide/"><u>Jumpstart Your Croatian Experience - Here's the 7-Reason Guide!</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-selfies-on-instagram-a-guide/"><u>Mastering Selfies on Instagram A Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/snapshot-savvy-embellishing-photos-with-the-cartoon-lens-for-2024/"><u>Snapshot Savvy Embellishing Photos with the Cartoon Lens for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleash-productivity-with-music-ready-jabra-evolve2/"><u>Unleash Productivity With Music-Ready Jabra Evolve2</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-future-of-urban-commuting-hands-on-with-cycwagens-revolutionary-cargo-e-bike/"><u>Unveiling the Future of Urban Commuting: Hands-On with CycWagen's Revolutionary Cargo E-Bike</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-dual-display-and-efficient-gps-a-comprehensive-review-of-mobvoi-ticwatch-pro/"><u>Unveiling the Power of Dual Display and Efficient GPS: A Comprehensive Review of Mobvoi TicWatch Pro</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1723012852214-windows-11-users-rejoice-microsoft-edges-previous-crashing-problem-solved/"><u>Windows 11 Users Rejoice! Microsoft Edge's Previous Crashing Problem Solved.</u></a></li>
 </ul></div>
 

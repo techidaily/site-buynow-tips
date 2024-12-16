@@ -1,7 +1,7 @@
 ---
 title: Affordable Excellence in Fitness Tracking - In-Depth Review of the Fitbit Versa Lite
-date: 2024-12-04T17:10:31.381Z
-updated: 2024-12-10T09:41:25.958Z
+date: 2024-12-15T16:42:46.734Z
+updated: 2024-12-16T16:26:29.260Z
 categories:
   - BestProducts
 description: This Article Describes Affordable Excellence in Fitness Tracking - In-Depth Review of the Fitbit Versa Lite
@@ -16,10 +16,6 @@ thumbnail: https://www.lifewire.com/thmb/FzJNmoIVdYnNkY9ObdnYpm1fjtY=/400x300/fi
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/AyUAqIhKcHESYKlEswC1pUtS1Po=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -40,6 +36,10 @@ Lifewire / Jonno Hill
 [View On Amazon](https://www.amazon.com/Mohu-Television-Paper-thin-Performance-MH-110598/dp/B00HSMK580/?tag=lifewire-onsite-prod-20&ascsubtag=4843108%7Cnc1d14f8f39df4c2dac4b8d8ca33f9ac217%7CB00HSMK580) [View On Walmart $48](https://www.walmart.com/ip/Mohu-Leaf-30-Flat-30-Mile-Indoor-HDTV-Antenna/36126033) [View On Home Depot $41](https://www.homedepot.com/p/Mohu-Leaf-30-HDTV-Indoor-Antenna-MH-110583/205146429?slfpid=3)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Mohu Leaf 30
 
@@ -69,7 +69,7 @@ Lifewire / Jonno Hill
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Basic but effective**
@@ -77,10 +77,6 @@ Lifewire / Jonno Hill
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
 
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup: Dead simple**
 
@@ -93,22 +89,22 @@ Lifewire / Jonno Hill
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Range: Fairly limited**
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Excellent for the performance**
 
  The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
 
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
 
@@ -118,6 +114,10 @@ Lifewire / Jonno Hill
 
 **No fuss, good value.**
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -146,17 +146,22 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-budget-enthusiasts-choices-the-right-gopro-add-ons-for-newbies/"><u>[New] Budget Enthusiasts Choices The Right GoPro Add-Ons for Newbies</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-expert-screencast-wisdom-key-facts-and-strategies/"><u>2024 Approved Expert Screencast Wisdom Key Facts and Strategies</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/expert-advice-for-fixing-chatgpt-sign-in-errors-successfully/"><u>Expert Advice for Fixing ChatGPT Sign-In Errors Successfully</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/exploring-your-choices-with-youtube-tv-plans-for-2024/"><u>Exploring Your Choices with YouTube TV Plans for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-best-no-cost-cross-platform-laptop-dvd-decoders/"><u>In 2024, Best No-Cost, Cross-Platform Laptop DVD Decoders</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-apple-iphone-11-pro-max-to-enjoy-more-fun-drfone-by-drfone-virtual-ios/"><u>In 2024, Change Location on Yik Yak For your Apple iPhone 11 Pro Max to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96418282-9780486123394-nostradamus-and-his-prophecies/"><u>Nostradamus and His Prophecies | Free Book</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-finest-bargain-ssl-certificates-listed/"><u>The Finest Bargain SSL Certificates Listed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-perfect-nights-rest-cutting-edge-tools-to-enhance-your-slumber/"><u>The Perfect Night's Rest: Cutting-Edge Tools to Enhance Your Slumber</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-romer-high-performance-battery-light-analysis-rechargeable-durable-perfect-for-outdoor-enthusiasts/"><u>The Romer High-Performance Battery Light Analysis: Rechargeable, Durable, Perfect for Outdoor Enthusiasts</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-tp-link-re200-an-economical-solution-for-wifi-range-enhancement-and-how-it-stacks-up/"><u>The TP-Link RE200: An Economical Solution for WiFi Range Enhancement and How It Stacks Up</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-have-you-ever-used-an-adjustment-layer-in-photoshop-read-this-article-to-find-out-how-to-add-resize-change-and-use-an-adjustment-layer-in-ph/"><u>Updated In 2024, Have You Ever Used an Adjustment Layer in Photoshop? Read This Article to Find Out How to Add, Resize, Change, and Use an Adjustment Layer in Photoshop Efficiently</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-boosting-your-content-reach-with-eye-catching-youtube-video-thumbnails-for-2024/"><u>[New] Boosting Your Content Reach with Eye-Catching YouTube Video Thumbnails for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-full-time-careers-meet-video-content-a-harmonious-mix/"><u>[New] In 2024, Full-Time Careers Meet Video Content A Harmonious Mix</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-into-the-virtual-vortex-mastering-techniques-of-gameplay-recording/"><u>2024 Approved Into the Virtual Vortex Mastering Techniques of Gameplay Recording</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/audacity-version-35-introduces-new-features-cloud-storage-backup-and-seamless-device-synchronization/"><u>Audacity Version 3.5 Introduces New Features: Cloud Storage Backup & Seamless Device Synchronization</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-xbox-one-hits-you-should-play-again-with-xbox-series-xs-backwards-compatibility/"><u>Best Xbox One Hits You Should Play Again with Xbox Series X/S Backwards Compatibility</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/bundle-up-for-ultimate-entertainment-get-netflix-peacock-and-apple-tvplus-with-xfinitys-exclusive-offering-now/"><u>Bundle Up for Ultimate Entertainment - Get Netflix, Peacock & Apple TV+ With Xfinity's Exclusive Offering Now!</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/comprehensive-solutions-eliminating-interruptions-during-play-for-cult-of-the-lamb-on-personal-computers/"><u>Comprehensive Solutions: Eliminating Interruptions During Play for Cult of The Lamb on Personal Computers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/diy-3d-printing-projects-things-its-better-left-unprinted/"><u>DIY 3D Printing Projects: Things It’s Better Left Unprinted</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/eco-friendly-shift-amazon-eliminates-plastic-air-pillows-for-sustainable-wrapping-options/"><u>Eco-Friendly Shift: Amazon Eliminates Plastic Air Pillows for Sustainable Wrapping Options</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/embracing-the-classics-how-i-prefer-retro-gaming-over-modern-titles/"><u>Embracing the Classics: How I Prefer Retro Gaming Over Modern Titles</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-insight-on-asus-rog-gt-ac5300-a-comprehensive-guide-for-gamers-and-tech-lovers/"><u>Expert Insight on Asus ROG GT-AC5300: A Comprehensive Guide for Gamers & Tech Lovers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/guide-successfully-hooking-up-your-dvd-player-to-the-television-using-hdmiother-essential-wires/"><u>Guide: Successfully Hooking Up Your DVD Player to the Television Using HDMI/Other Essential Wires</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/hosted-network-error-not-started-in-windows-pressenting-solutions-for-quick-fixes/"><u>Hosted Network Error 'Not Started' In Windows Pressenting Solutions for Quick Fixes</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/how-to-download-and-convert-dvd-subtitles-to-srt-format-for-windows-and-mac-os-users/"><u>How to Download and Convert DVD Subtitles to SRT Format for Windows & Mac OS Users</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-photo-editing-a-guide-to-using-print-command-in-photoshop/"><u>Mastering Photo Editing: A Guide to Using Print Command in Photoshop</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/quickened-visuality-speeding-up-keynote-video-sequences-for-2024/"><u>Quickened Visuality Speeding up Keynote Video Sequences for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/seamless-tweet-to-facebook-video-transfers-users-for-2024/"><u>Seamless Tweet-to-Facebook Video Transfers Users for 2024</u></a></li>
 </ul></div>
 

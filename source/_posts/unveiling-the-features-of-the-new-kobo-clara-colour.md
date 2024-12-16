@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Features of the New Kobo Clara Colour
-date: 2024-12-08T13:26:00.609Z
-updated: 2024-12-10T07:46:48.033Z
+date: 2024-12-13T16:42:25.099Z
+updated: 2024-12-16T16:41:45.043Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Features of the New Kobo Clara Colour
@@ -13,13 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/p87KTX9w2nvzlOOitLgg_0NznYY=/400x300/fi
 
 2.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/87Y0vp91-Opdxctf3M6BGQ6r1d8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -42,6 +42,10 @@ Lifewire / Emily Ramirez
 [View On Amazon](https://www.amazon.com/dp/B009ISU33E?tag=lifewire-onsite-prod-20&ascsubtag=4769837%7Cnf4d47b24328e45aa9d01315a6a6b3e1211%7CB009ISU33E)
 
 2.8
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Creative Sound Blaster ZxR
 
@@ -71,19 +75,15 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/U_vmwZDe5HbbungQ5L2hzf2LVto=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-4-b0d1cca56ec04a61b83e20d1cecf2aea.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Hardware: Some odd decisions**
 
@@ -104,10 +104,14 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
 
@@ -118,10 +122,6 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
  Lifewire / Emily Ramirez
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Software: Lots of options with mixed utility**
 
@@ -136,7 +136,7 @@ Lifewire / Emily Ramirez
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
@@ -202,19 +202,22 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-advanced-methodologies-for-backdrop-purification-in-figma-design/"><u>[New] Advanced Methodologies for Backdrop Purification in Figma Design</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-affordable-mic-picks-for-aspiring-yt-bands-for-2024/"><u>[New] Affordable Mic Picks for Aspiring YT Bands for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-decoding-youtubes-intricate-view-count-mechanics/"><u>[New] Decoding YouTube's Intricate View Count Mechanics</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-finding-the-right-mic-a-guide-for-multifaceted-yt-channels/"><u>[Updated] In 2024, Finding the Right Mic A Guide for Multifaceted YT Channels</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-incremental-movie-moment/"><u>[Updated] Incremental Movie Moment</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/color-calibration-transitioning-from-traditional-rgb-to-srgb-for-2024/"><u>Color Calibration Transitioning From Traditional Rgb to Srgb for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/fix-bad-image-files-on-your-pc-a-guide-for-windows-1110-users/"><u>Fix Bad Image Files on Your PC: A Guide for Windows 11/10 Users</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-zte-axon-40-lite-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast ZTE Axon 40 Lite Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-reviews-of-the-new-fitbit-charge-6-is-it-a-step-up-from-its-predecessor/"><u>Top Reviews of the New Fitbit Charge 6: Is It a Step Up From Its Predecessor?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-notch-and-economical-fossil-sports-apparel-comprehensive-analysis/"><u>Top-Notch & Economical Fossil Sports Apparel - Comprehensive Analysis</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-of-the-line-review-for-razer-blade-pro-17-unleashing-unmatched-power-on-the-go/"><u>Top-of-the-Line Review for Razer Blade Pro 17 – Unleashing Unmatched Power on the Go</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-dji-robomaster-s1-the-innovative-combination-of-entertainment-programming-and-battle/"><u>Ultimate Guide: DJI RoboMaster S1 - The Innovative Combination of Entertainment, Programming & Battle</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unboxing-the-future-in-depth-analysis-of-the-revolutionary-iphone-15-pro-in-action/"><u>Unboxing the Future: In-Depth Analysis of the Revolutionary iPhone 15 Pro in Action</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unleashing-power-in-depth-look-at-the-mighty-beatit-bt-d11-charger/"><u>Unleashing Power: In-Depth Look at the Mighty Beatit BT-D11 Charger</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-visualize-your-browser-trails-our-selection-of-premier-recording-apps/"><u>[Updated] Visualize Your Browser Trails Our Selection of Premier Recording Apps</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Samsung Galaxy A05s | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decision-time-evaluating-performance-and-features-of-ring-vs-nest-doorbells/"><u>Decision Time: Evaluating Performance and Features of Ring Vs. Nest Doorbells</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exclusive-prime-day-offers-save-big-on-iphones-and-macbooks/"><u>Exclusive Prime Day Offers: Save Big on iPhones & MacBooks!</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fix-outlook-wont-open/"><u>Fix: Outlook Won’t Open</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/harnessing-the-power-of-cookiebot-for-effective-digital-advertising-strategies/"><u>Harnessing the Power of Cookiebot for Effective Digital Advertising Strategies</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-exploring-imovies-default-cropping-behavior/"><u>In 2024, Exploring iMovie's Default Cropping Behavior</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Honor Magic V2 | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unlocking-performance-top-windows-11-strategies/"><u>In 2024, Unlocking Performance Top Windows 11 Strategies</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-garmin-venu-a-smartwatch-transforming-your-fitness-and-lifestyle-management/"><u>In-Depth Review of Garmin Venu: A Smartwatch Transforming Your Fitness and Lifestyle Management</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/innovative-and-comfy-keyboard-wrist-pads-the-best-on-the-market-in-234/"><u>Innovative and Comfy Keyboard Wrist Pads: The Best on the Market in 2^34</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/its-not-used-for-cad-design-processing-as-that-is-a-digital-task-unrelated-to-physical-welding-techniques/"><u>It's Not Used for CAD Design Processing, as that Is a Digital Task Unrelated to Physical Welding Techniques.</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/quick-fixes-overcoming-your-frustratingly-slow-internet-issues/"><u>Quick Fixes: Overcoming Your Frustratingly Slow Internet Issues</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/screen-capture-mastery-windows-edition-free-3-methods-for-2024/"><u>Screen Capture Mastery Windows Edition (Free, 3 Methods) for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tips-for-capturing-and-saving-images-from-microsoft-word-files/"><u>Tips for Capturing & Saving Images From Microsoft Word Files</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-huawei-p20-pro-impressive-camera-features-combined-with-a-superior-phone-experience/"><u>Unveiling the Huawei P20 Pro: Impressive Camera Features Combined with a Superior Phone Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/worldwide-standard-moco-keyboard-with-unfolding-design-wireless-bluetooth-functionality/"><u>Worldwide Standard MOCO Keyboard with Unfolding Design, Wireless Bluetooth Functionality</u></a></li>
 </ul></div>
 

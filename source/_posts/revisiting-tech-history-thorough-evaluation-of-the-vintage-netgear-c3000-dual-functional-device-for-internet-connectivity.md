@@ -1,7 +1,7 @@
 ---
 title: "Revisiting Tech History: Thorough Evaluation of the Vintage Netgear C3000 Dual-Functional Device for Internet Connectivity"
-date: 2024-12-04T05:04:20.152Z
-updated: 2024-12-10T10:21:07.045Z
+date: 2024-12-09T16:37:45.804Z
+updated: 2024-12-16T16:33:59.794Z
 categories:
   - BestProducts
 description: "This Article Describes Revisiting Tech History: Thorough Evaluation of the Vintage Netgear C3000 Dual-Functional Device for Internet Connectivity"
@@ -37,13 +37,13 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -76,11 +76,11 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup: Easier than most**
 
@@ -90,10 +90,6 @@ Lifewire / Erika Rawes
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: Almost two dozen channels**
 
  The Antop AT-127 supports UHF and VHF signals. Overall, it works pretty smoothly, though some channels might have look pixelated for a few seconds when you flip to them or take a second or two to fully load.
@@ -101,6 +97,10 @@ Lifewire / Erika Rawes
  The attached coax cable isn’t as long as I’ve seen on other similarly-priced antennas, but it is long enough (10 feet) to place the antenna up high without an extender.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -113,7 +113,7 @@ Lifewire / Erika Rawes
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Mid-range**
@@ -123,7 +123,7 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -169,20 +169,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/updated-is-cash-involved-with-criticism-displays-in-2024/"><u>[Updated] Is Cash Involved with Criticism Displays, In 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/detailed-review-of-genius-widecam-f100-overcoming-challenges-with-pixelated-photos-and-echoing-audio/"><u>Detailed Review of Genius WideCam F100 - Overcoming Challenges with Pixelated Photos and Echoing Audio</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discovering-the-samsung-galaxy-buds-pro-audiophiles-delight/"><u>Discovering the Samsung Galaxy Buds Pro: Audiophile's Delight</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/drawing-into-digital-evolution-an-insightful-look-at-the-gaomon-pd1560-pen-tablet/"><u>Drawing Into Digital Evolution: An Insightful Look at the Gaomon PD1560 Pen Tablet</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/easy-ways-to-extract-pictures-from-a-word-document-for-safekeeping/"><u>Easy Ways to Extract Pictures From a Word Document for Safekeeping</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/elevate-every-trip-expert-gadget-selection/"><u>Elevate Every Trip: Expert Gadget Selection</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/enhance-your-machine-upgrading-from-windows-8-to-the-new-os/"><u>Enhance Your Machine: Upgrading From Windows 8 to the New OS</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-reimagined-computing-with-style-the-ultimate-review-of-the-apple-imacs-striking-power-and-4k-visual-delight/"><u>Experience Reimagined Computing with Style: The Ultimate Review of the Apple iMac's Striking Power and 4K Visual Delight</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Honor V Purse | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-unlocking-the-art-of-alluring-youtube-live-image-creation/"><u>In 2024, Unlocking the Art of Alluring YouTube Live Image Creation</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/leading-free-internet-phone-calls-software-ranked-you-cant-miss/"><u>Leading Free Internet Phone Calls Software Ranked You Can't Miss</u></a></li>
-<li><a href="https://common-error.techidaily.com/reviving-your-streaming-experience-quick-tips-to-fix-netflix-audio-glitches/"><u>Reviving Your Streaming Experience: Quick Tips to Fix Netflix Audio Glitches</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/step-up-your-iphone-x7s-selfies-with-these-top-free-tools-for-2024/"><u>Step Up Your iPhone X/7's Selfies with These Top Free Tools for 2024</u></a></li>
-<li><a href="https://discover-exceptional.techidaily.com/transferring-windows-11-to-a-new-ssd-a-step-by-step-guide-with-3-effective-methods/"><u>Transferring Windows 11 to a New SSD: A Step-by-Step Guide with 3 Effective Methods</u></a></li>
-<li><a href="https://media-tips.techidaily.com/unleash-your-sound-creativity-with-reaper-audio-top-tier-recording-editing-and-mixing-solution/"><u>Unleash Your Sound Creativity with Reaper Audio: Top-Tier Recording, Editing & Mixing Solution</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-optimize-video-cuts-selective-mac-mp4-slicers/"><u>[New] In 2024, Optimize Video Cuts Selective Mac MP4 Slicers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-8-most-effective-authentic-promotion-techniques/"><u>[New] The 8 Most Effective, Authentic Promotion Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-iphone-tricks-capturing-and-editing-high-speed-visual-storytelling/"><u>[Updated] 2024 Approved IPhone Tricks Capturing & Editing High-Speed Visual Storytelling</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-kinemasters-secrets-to-transition-excellence/"><u>[Updated] 2024 Approved Kinemaster's Secrets to Transition Excellence</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-crafting-perfection-an-essential-guide-to-hdr-imaging/"><u>[Updated] Crafting Perfection An Essential Guide to HDR Imaging</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-proven-methods-for-youtubers-rapid-subscriber-expansion/"><u>2024 Approved Proven Methods for Youtubers' Rapid Subscriber Expansion</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/7-efficient-ai-methods-that-deliver-results/"><u>7 Efficient AI Methods That Deliver Results</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/acer-aspire-c27-the-ultimate-blend-of-efficiency-and-functionality-in-a-low-profile-desktop/"><u>Acer Aspire C27: The Ultimate Blend of Efficiency and Functionality in a Low-Profile Desktop</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/antenna-showcase-how-the-antop-at-127-delivers-free-television-in-a-stylish-package/"><u>Antenna Showcase - How the Antop AT-127 Delivers FREE Television in a Stylish Package</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-ultimate-android-headphones-galaxy-buds-pro/"><u>Discover the Ultimate Android Headphones: Galaxy Buds Pro</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/essential-guide-to-updating-username-on-windows-11/"><u>Essential Guide to Updating Username on Windows 11</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/gaming-and-streaming-beast-unveiled-a-detailed-look-at-the-nighthawk-rax120/"><u>Gaming & Streaming Beast Unveiled: A Detailed Look at the Nighthawk RAX120</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/panasonics-answer-to-versatile-photography-needs/"><u>Panasonic's Answer to Versatile Photography Needs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/performance-breakdown-how-the-functional-yet-ugly-duckling-design-of-clearstream-2vs-tv-antenna-stacks-up/"><u>Performance Breakdown: How the Functional Yet Ugly-Duckling Design of ClearStream 2V's TV Antenna Stacks Up</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/simplify-your-inbox-chaos-with-this-one-simple-email-hack-no-rule-juggling-needed-techwise/"><u>Simplify Your Inbox Chaos with This One Simple Email Hack – No Rule Juggling Needed! | TechWise</u></a></li>
+<li><a href="https://some-tips.techidaily.com/this-week-in-digital-discoveries-unveiling-new-windows-laptops-and-exclusive-spotify-secrets/"><u>This Week in Digital Discoveries: Unveiling New Windows Laptops and Exclusive Spotify Secrets</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-budget-friendly-digital-cams/"><u>Top Budget-Friendly Digital Cams</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-picks-for-microsoft-onenote-why-you-need-to-try-the-revolutionary-onetastic-add-in/"><u>Top Picks for Microsoft OneNote: Why You Need to Try the Revolutionary Onetastic Add-In</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unraveling-the-success-the-xbox-one-xs-uncontested-rule-over-gaming-machines/"><u>Unraveling the Success: The Xbox One X's Uncontested Rule Over Gaming Machines</u></a></li>
 </ul></div>
 

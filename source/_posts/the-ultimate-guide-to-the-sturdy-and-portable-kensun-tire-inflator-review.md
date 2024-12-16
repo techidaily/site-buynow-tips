@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to the Sturdy & Portable Kensun Tire Inflator Review
-date: 2024-12-05T00:02:27.233Z
-updated: 2024-12-09T17:16:22.762Z
+date: 2024-12-10T17:22:54.307Z
+updated: 2024-12-16T16:59:32.230Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Guide to the Sturdy & Portable Kensun Tire Inflator Review
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/OIHJ0F8VMR0yFUpC8veJBJ39E6A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -43,10 +47,6 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Tony Mitera
 
 [View On EBay](https://www.ebay.com/p/563813511)
@@ -71,7 +71,7 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: A lot of power packed into a small frame**
@@ -83,10 +83,6 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
  Time and again, the Beatit D11 was able to get a car with a very depleted battery started.
 
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: It can’t realistically be much simpler**
 
@@ -104,10 +100,6 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
  There aren’t a ton of other features present with the Beatit Jump Starter D11 but there are some of note, including the unit’s built-in flashlight. It’s a nice addition to have if you must jump start a car in the middle of the night, but it doesn’t put out of a ton of light and the beam is pretty narrow. You can pick the unit up and use it as a large flashlight, though doing so while also trying to get the clamps attached is cumbersome.
@@ -116,11 +108,19 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: A ton of value for a tiny cost**
 
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
 
  At that price point, it packs a ton of value into its diminutive size.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
@@ -139,7 +139,7 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -173,22 +173,24 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-sculpting-shareable-online-laughter/"><u>[New] Sculpting Shareable Online Laughter</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-soundcheck-evaluation-for-2024/"><u>[New] SoundCheck Evaluation for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/vids-to-dollars-navigating-youtubes-monetization-landscape-for-2024/"><u>From Vids to Dollars Navigating YouTube's Monetization Landscape for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-the-latest-acer-predator-xb271h-monitor-drivers-fast-and-simple-installation/"><u>Get the Latest Acer Predator XB271H Monitor Drivers – Fast & Simple Installation</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-streamlining-youtube-audio-pace-via-devices/"><u>In 2024, Streamlining YouTube Audio Pace via Devices</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-whispering-wonders-for-zzzs-choice-vocalists/"><u>In 2024, Whispering Wonders for Zzz's Choice Vocalists</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lumix-dc-fz80-multipurpose-powerhouse/"><u>Lumix DC-FZ80: Multipurpose Powerhouse</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/master-your-gameplay-with-phillipss-ergonomic-49-curved-monitor-an-oled-marvel/"><u>Master Your Gameplay with Phillips's Ergonomic 49 Curved Monitor - An OLED Marvel</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-the-roman-throne-a-review-of-the-strategy-game-imperator-rome/"><u>Mastering the Roman Throne - A Review of the Strategy Game Imperator: Rome</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/portable-moko-compact-bluetooth-keyboard-the-ultimate-folding-solution/"><u>Portable MoKo Compact Bluetooth Keyboard: The Ultimate Folding Solution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/prime-cyber-weekend-acer-discounts-how-to-save-big-in-octobernovember-2024/"><u>Prime Cyber Weekend Acer Discounts: How to Save Big in October/November 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revolutionize-wireless-range-discover-the-strength-of-netgear-nighthawk-pro-extender/"><u>Revolutionize Wireless Range - Discover the Strength of Netgear Nighthawk Pro Extender</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-fit-assessment-ideal-gadget-for-fitness-enthusiasts/"><u>Samsung Galaxy Fit Assessment - Ideal Gadget for Fitness Enthusiasts</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/spyros-grand-adventure-redux-is-it-worth-your-time-our-detailed-review/"><u>Spyro's Grand Adventure Redux - Is It Worth Your Time? Our Detailed Review</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/m-like-a-pro-optimizing-your-360-youtube-broadcasts-for-2024/"><u>Stream Like a Pro Optimizing Your 360° Youtube Broadcasts for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/superior-video-cutting-edge-tools-devices/"><u>Superior Video Cutting-Edge Tools (Devices)</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-apple-watch-series-10-reviewed-top-3-features-that-secured-our-recommendation/"><u>The Apple Watch Series 10 Reviewed: Top 3 Features That Secured Our Recommendation</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-capturing-screen-content-on-huawei-mate-10-20-and-p-series-phones-via-built-in-recorders/"><u>[New] 2024 Approved Capturing Screen Content on Huawei Mate 10, 20 & P-Series Phones via Built-In Recorders</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-solving-snapchat-silent-sections-a-2023-guide-to-smooth-viewing/"><u>[New] 2024 Approved Solving Snapchat Silent Sections - A 2023 Guide to Smooth Viewing</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-find-facebook-recently-watched-videos-for-2024/"><u>[New] How to Find Facebook Recently Watched Videos for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-naming-gems-top-strategies-for-exceptional-podcast-titles/"><u>[Updated] Naming Gems Top Strategies for Exceptional Podcast Titles</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-accessible-visual-aids-for-youtube-videos/"><u>2024 Approved Accessible Visual Aids for YouTube Videos</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-step-by-step-iphone-screen-recording/"><u>2024 Approved Step-by-Step Iphone Screen Recording</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-beatech-bitwatch-s1-plus-smartwatch-evaluation-an-affordable-tech-marvel/"><u>Comprehensive Beatech Bitwatch S1 Plus Smartwatch Evaluation: An Affordable Tech Marvel</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-unbeatable-microsoft-surface-laptop-4/"><u>Comprehensive Review of the Unbeatable Microsoft Surface Laptop 4</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-hc-wxf991-camcorder/"><u>Comprehensive Review: HC-WXF991 Camcorder</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/creation-of-international-institutions/"><u>Creation of International Institutions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/microsoft-surface-pro-7-evaluation-robust-performance-enhancements-without-major-overhauls/"><u>Microsoft Surface Pro 7 Evaluation: Robust Performance Enhancements Without Major Overhauls</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-fcpx-essentials-how-to-add-a-countdown-timer-in-3-easy-steps/"><u>New In 2024, FCPX Essentials How to Add a Countdown Timer in 3 Easy Steps</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolve-you-dont-have-permissions-cant-launch-fortnite-troubleshooting-guide/"><u>Resolve 'You Don't Have Permissions: Can't Launch Fortnite': Troubleshooting Guide</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-the-issue-of-no-sound-in-anthem-on-your-new-windows-11-pc/"><u>Resolving the Issue of No Sound in Anthem on Your New Windows 11 PC</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/stellaris-space-saga-reviewed-mastering-exploration-empire-building-and-warfare/"><u>Stellaris Space Saga Reviewed - Mastering Exploration, Empire Building, and Warfare</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/surge-proof-your-system-in-depth-look-at-the-ideal-apc-gaming-ups/"><u>Surge-Proof Your System: In-Depth Look at the Ideal APC Gaming UPS</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/testing-the-new-cycwagen-cargo-e-bike-a-detailed-overview/"><u>Testing the New CycWagen Cargo E-Bike: A Detailed Overview</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-art-of-cloud-integration-in-modern-photo-systems/"><u>The Art of Cloud Integration in Modern Photo Systems</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-showdown-iphone-vs-samsung-for-tech-savvy-shoppers/"><u>The Ultimate Showdown: IPhone Vs. Samsung for Tech-Savvy Shoppers</u></a></li>
 </ul></div>
 

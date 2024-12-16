@@ -1,7 +1,7 @@
 ---
 title: "Battle of Portable Gaming: Nintendo Switch Lite Vs. Nintendo Switch OLED Reviewed"
-date: 2024-12-06T16:25:23.984Z
-updated: 2024-12-09T16:51:54.889Z
+date: 2024-12-15T17:36:29.684Z
+updated: 2024-12-16T17:16:32.245Z
 categories:
   - BestProducts
 description: "This Article Describes Battle of Portable Gaming: Nintendo Switch Lite Vs. Nintendo Switch OLED Reviewed"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/4d611c850bdcc5debbd6a1052184df209b3a83115
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/JA3JlwOuidCKxo4M92FWCfYUoI4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -68,6 +72,10 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/uXDVHaBrdIlv5tI-qRgiPK0Iig4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460721-e6a53664e7eb4e65a75bf5cceb928e28.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 ## **Plot: A huge world with loads to explore**
@@ -88,11 +96,11 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/1fxH7ty_kqxpugJDk2tIQndKvI0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546078-6bdc67e56311473f9c1edeab00d2caa5.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Gameplay: Not as smooth as on other platforms**
 
@@ -114,16 +122,12 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Graphics: A bit outdated**
 
  The graphics in Skyrim aren’t awful, but they haven't progressed much since 2011\. If you’ve played any other version of Skyrim, you can overlook it, simply because you know what you’re getting into. Bethesda attempted to make Skyrim look realistic, likely in their desire to give you a fully immersive experience. But these days, Skyrim’s graphics just aren’t as realistic as what other, more recent games have accomplished. In places, the mountains look blocky and the grass a little patchy. Character’s faces sometimes seem deeply sunken around the eyes, with the skin looking more like leather than flesh. It’s not that the graphics are overly bad, they’re just not as good as what you can get with better hardware on the PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Platform: Take Skyrim on the go**
@@ -148,10 +152,6 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Competition: Other action RPGs**
 
  The Elder Scrolls V: Skyrim almost competes with itself, due to how many other versions of the game are available on other platforms. But if you’re looking for role-playing games specifically designed for the Switch, it would be worth looking at The Legend of Zelda: Breath of the Wild. It was designed for the Switch from the beginning, sharing Skyrim’s action role-playing gameplay, but with crisp, beautiful graphics and smoother controls. If you’re interested in Japanese RPGs (JRPGs), it might also be worth looking into Xenoblade Chronicles 2, which will also share the same action-packed feel as Skyrim, but with a completely different graphics style and somewhat more complex combat and leveling.
@@ -163,7 +163,7 @@ Lifewire / Kelsey Simon
  Even though The Elder Scrolls V: Skyrim is a great game and the Switch is an amazing platform, our advice is only to buy Skyrim for the Switch if you’re looking to play on the go. Otherwise, we’d suggest purchasing Skyrim for the PC, where you’ll really be able to enjoy superior graphics and customization options.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -173,7 +173,7 @@ Lifewire / Kelsey Simon
 * [Splatoon 2](https://www.lifewire.com/splatoon-2-review-4688940)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -198,22 +198,24 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-ignite-attention-driving-success-in-instagram-posts/"><u>[New] Ignite Attention Driving Success in Instagram Posts</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-expert-online-workshop-title-author-for-2024/"><u>[Updated] Expert Online Workshop Title Author for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723015593844-astro-a50-earpods-malfunction-heres-how-to-repair-them/"><u>Astro A50 EarPods Malfunction? Here's How to Repair Them!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/future-proof-energy-solutions-elite-power-inverter-choices/"><u>Future-Proof Energy Solutions: Elite Power Inverter Choices</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/gamers-guide-assessing-the-graphic-enhancements-of-ps4-pro-for-4k-output/"><u>Gamers' Guide: Assessing the Graphic Enhancements of PS4 Pro for 4K Output</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-to-install-and-benefit-from-the-robust-acurite-professional-weather-station-model-01036m/"><u>How to Install and Benefit From the Robust AcuRite Professional Weather Station - Model 01036M</u></a></li>
-<li><a href="https://win-data.techidaily.com/how-to-retrieve-lost-screenshots-a-step-by-step-guide-for-windows-11-users/"><u>How to Retrieve Lost Screenshots: A Step-by-Step Guide for Windows 11 Users</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-samsung-un65nu8000fxza-evaluating-smart-features-and-cost-effectiveness/"><u>In-Depth Analysis of the Samsung UN65NU8000FXZA: Evaluating Smart Features and Cost Effectiveness</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-review-is-the-docooler-usb-20-and-12-megapixel-quality-worth-it/"><u>In-Depth Review: Is The Docooler USB 2.0 and 12 Megapixel Quality Worth It?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/is-the-newest-generation-apple-ipad-102-inch-worth-it-a-comprehensive-review/"><u>Is the Newest Generation Apple iPad 10.2-Inch Worth It? A Comprehensive Review.</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-performance-watches-find-your-perfect-match/"><u>Leading Performance Watches : Find Your Perfect Match</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-home-surveillance-a-step-by-step-review-of-the-blink-outdoor-4-wi-fi-lighted-security-camera/"><u>Mastering Home Surveillance: A Step-by-Step Review of the Blink Outdoor 4 Wi-Fi Lighted Security Camera</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/optimum-affordable-asmr-microphones-with-incredible-performance/"><u>Optimum Affordable ASMR Microphones with Incredible Performance</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/precision-in-production-5-advanced-methods-for-trimming-on-vimeo-platform-for-2024/"><u>Precision in Production 5 Advanced Methods for Trimming on Vimeo Platform for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-honor-100-pro-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Honor 100 Pro Phones</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ultimate-guide-solving-chromecast-audio-syncing-issues/"><u>Ultimate Guide: Solving Chromecast Audio Syncing Issues</u></a></li>
-<li><a href="https://techtrends.techidaily.com/unveiling-the-top-10-free-email-accounts-for-effortless-communication/"><u>Unveiling the Top 10 Free Email Accounts for Effortless Communication</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-dji-mavic-pro-review/"><u>[New] DJI Mavic Pro Review</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-best-software-to-start-your-youtube-videos-off-strongly/"><u>[New] In 2024, The Best Software to Start Your YouTube Videos Off Strongly</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-harnessing-the-power-of-gopro-a-guide-to-streaming-on-facebookperiscope/"><u>[Updated] Harnessing the Power of GoPro A Guide to Streaming on Facebook/Periscope</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-breaking-down-the-new-2023-samsung-bd-j5900-model/"><u>2024 Approved Breaking Down the New 2023 Samsung BD-J5900 Model</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-navigating-vlcs-features-for-mp4-and-diverse-format-changes/"><u>2024 Approved Navigating VLC's Features for MP4 & Diverse Format Changes</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-dell-inspiron-n3671-a-review-for-budget-friendly-performance/"><u>Comprehensive Evaluation of the Dell Inspiron N3671: A Review for Budget-Friendly Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-and-analysis-of-the-netgear-nighthawk-x6-ac3200-top-choice-for-swift-connectivity/"><u>Comprehensive Guide & Analysis of the Netgear Nighthawk X6 AC3200 - Top Choice for Swift Connectivity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-steam-decks-value-for-gamers/"><u>Exploring Steam Deck's Value for Gamers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/google-nest-wi-fi-review/"><u>Google Nest Wi-Fi Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/hands-on-with-the-samsung-galaxy-budsplus/"><u>Hands-On With the Samsung Galaxy Buds+</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-test-of-garmins-forerunner-nine-four-five-a-revolutionary-all-in-one-athletic-wrist-device/"><u>In-Depth Test of Garmin's Forerunner Nine Four Five: A Revolutionary All-in-One Athletic Wrist Device</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/optimizing-zoom-meetings-a-guide-to-format-upgrading-for-2024/"><u>Optimizing Zoom Meetings A Guide to Format Upgrading for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/selecting-superior-power-inverters-your-comprehensive-guide/"><u>Selecting Superior Power Inverters - Your Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-smooth-shift-adopting-ios-15-today/"><u>The Smooth Shift: Adopting iOS 15 Today</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-apps-and-online-tools-to-track-vivo-t2x-5g-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Vivo T2x 5G Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unlock-a-world-of-movies-captions-in-windows-media-player-for-2024/"><u>Unlock a World of Movies Captions in Windows Media Player for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-lenovo-ideapad-experience-exploring-a-no-frills-robust-laptop-option/"><u>Unveiling the Lenovo IdeaPad Experience: Exploring a No-Frills, Robust Laptop Option</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/your-guide-to-the-latest-gadgets-and-best-reads-computers-phones-and-literature/"><u>Your Guide to the Latest Gadgets and Best Reads: Computers, Phones & Literature</u></a></li>
 </ul></div>
 

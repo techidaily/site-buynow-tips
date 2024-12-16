@@ -1,7 +1,7 @@
 ---
 title: Evaluating Mirari Kids' Alarm Clock - An In-Depth Product Review
-date: 2024-12-07T07:08:50.977Z
-updated: 2024-12-09T18:30:56.611Z
+date: 2024-12-09T17:20:18.152Z
+updated: 2024-12-16T16:15:30.457Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating Mirari Kids' Alarm Clock - An In-Depth Product Review
@@ -12,10 +12,6 @@ thumbnail: https://www.lifewire.com/thmb/QjJGvlIwjSg9Xi4WBoKpTlPb0lA=/400x300/fi
 ## Delivering Premium TV Reception at a Great Value - In-Depth Review of the 30 Mohu Leaf Antenna
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Mohu Leaf 30
 
@@ -41,9 +37,17 @@ Lifewire / Jonno Hill
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -78,10 +82,6 @@ Lifewire / Jonno Hill
 
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: Acceptable but not incredible**
 
  The Mohu Leaf 30 TV Antenna wasn’t the highest performing antenna that I tested, even among similar unpowered antennas. In my channel acquisition test, the Leaf picked up 56 channels on average across all the iterations performed.
@@ -89,7 +89,7 @@ Lifewire / Jonno Hill
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Range: Fairly limited**
@@ -97,7 +97,7 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Excellent for the performance**
@@ -116,7 +116,7 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -146,24 +146,22 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-tips.techidaily.com/battle-for-neighborville-exploring-the-quirky-enjoyable-world-of-plants-vs-zombies-latest-release/"><u>'Battle for Neighborville': Exploring the Quirky, Enjoyable World of Plants Vs. Zombies' Latest Release</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-top-tier-steadicam-options-for-drone-video-production/"><u>[New] 2024 Approved Top-Tier Steadicam Options for Drone Video Production</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-cured-non-appearance-of-tiny-vid-content/"><u>[New] In 2024, Cured Non-Appearance of Tiny Vid Content</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-top-tips-for-capturing-clear-facetime-dialogues-on-screen/"><u>[New] In 2024, Top Tips for Capturing Clear FaceTime Dialogues on Screen</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-ultimate-guide-to-free-and-premium-short-video-clips/"><u>[New] In 2024, Ultimate Guide to Free & Premium Short Video Clips</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-kitchen-kings-and-queen-top-youtube-gastronomes/"><u>[New] Kitchen Kings & Queen Top YouTube Gastronomes</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/assessing-class-and-comfort-an-in-depth-look-at-the-flexispot-theodore-office-desking-solution/"><u>Assessing Class and Comfort: An In-Depth Look at the Flexispot Theodore Office Desking Solution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/audiophile-audit-sonic-precision-of-sony-wh-1000xm4-reviewed/"><u>Audiophile Audit: Sonic Precision of Sony WH-1000XM4 Reviewed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/before-you-invest-in-video-games-know-these-5-key-points-first/"><u>Before You Invest in Video Games, Know These 5 Key Points First!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/best-combo-deals-on-cable-modems-with-routers-top-picks-of-2024/"><u>Best Combo Deals on Cable Modems with Routers - Top Picks of 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/canons-camera-revolution-the-mighty-yet-convenient-sx620/"><u>Canon's Camera Revolution: The Mighty yet Convenient SX620</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comparative-breakdown-of-the-economical-apple-watch-se/"><u>Comparative Breakdown of the Economical Apple Watch SE</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-on-lensdirects-anti-blue-light-spectacles-for-vision-correction/"><u>Comprehensive Guide on LensDirect’s Anti-Blue Light Spectacles for Vision Correction</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-navigating-the-pros-and-cons-of-the-swagtron-swagboard-t1-roller-skates/"><u>Comprehensive Review: Navigating the Pros and Cons of the Swagtron Swagboard T1 Roller Skates</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/downloading-facebook-videos-ultimate-5-list-ranked-for-2024/"><u>Downloading Facebook Videos Ultimate 5 List Ranked for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/from-ts-files-to-fun-gifs-converting-your-videos-into-animations-easily/"><u>From TS Files to Fun GIFs: Converting Your Videos Into Animations Easily</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-tecno-spark-go-2023-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Tecno Spark Go (2023) by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/steps-for-regaining-entry-to-your-misremembered-facebook-profile/"><u>Steps for Regaining Entry to Your Misremembered Facebook Profile</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-auditory-explorers-manual-crafting-unique-sounds-and-ringtones-for-android-users-for-2024/"><u>The Auditory Explorer's Manual Crafting Unique Sounds & Ringtones for Android Users for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-crafting-professional-focus-mastering-teamblend-background-artistry-for-2024/"><u>[New] Crafting Professional Focus Mastering Teamblend Background Artistry for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-legal-pathways-for-youtube-to-mp4-file-downloading/"><u>[Updated] In 2024, Legal Pathways for YouTube to MP4 File Downloading</u></a></li>
+<li><a href="https://windows11.techidaily.com/activating-telnet-on-windows-3-key-methods/"><u>Activating Telnet on Windows: 3 Key Methods</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/beaming-performance-spk10-037-light-kit-sets-standard-high/"><u>Beaming Performance: SPK10-037 Light Kit Sets Standard High</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-big-mouse-pads-for-comfortable-computing-ranked/"><u>Best Big Mouse Pads for Comfortable Computing, Ranked!</u></a></li>
+<li><a href="https://games-able.techidaily.com/bluetooth-pairing-ps5-and-headphones/"><u>Bluetooth Pairing: PS5 & Headphones</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/decoding-the-mystery-insider-knowledge-on-story-watchers-for-2024/"><u>Decoding the Mystery Insider Knowledge on Story Watchers for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-assassins-creed-valhalla-the-ultimate-viking-experience-through-medieval-europe/"><u>Exploring Assassin's Creed: Valhalla – The Ultimate Viking Experience Through Medieval Europe</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-to-choose-a-leading-netgear-wireless-router/"><u>How to Choose a Leading Netgear Wireless Router</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/pix-star-fotoconnect-xd-review/"><u>Pix-Star FotoConnect XD Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-motorola-edgeplus-does-it-really-deliver-elite-phone-experience/"><u>Review of Motorola Edge+ - Does It Really Deliver Elite Phone Experience?</u></a></li>
+<li><a href="https://win-popular.techidaily.com/schritt-fur-schritt-anleitung-erfolgreiches-wiederaufspielen-von-2tb-externer-datentrager/"><u>Schritt-Für-Schritt-Anleitung: Erfolgreiches Wiederaufspielen Von 2TB Externer Datenträger</u></a></li>
+<li><a href="https://win-dash.techidaily.com/seamless-printing-with-konica-minolta-drivers-for-windows-operating-systems-11-10-8-and-ebit/"><u>Seamless Printing with Konica Minolta Drivers for Windows Operating Systems (11, 10, 8, & Ebit)</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/the-definitive-guide-to-upgrades-and-peripherals-by-toms-tech-insights/"><u>The Definitive Guide to Upgrades and Peripherals by Tom’s Tech Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlocking-the-amazfit-helio-ring-details-costs-launch-timeline-and-technical-specifications/"><u>Unlocking the Amazfit Helio Ring Details: Costs, Launch Timeline & Technical Specifications</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-gimp-a-thorough-review-of-its-features-on-multiple-operating-systems/"><u>Unveiling the Power of GIMP: A Thorough Review of Its Features on Multiple Operating Systems</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-bringing-your-memories-to-life-a-guide-to-creating-video-slideshows-in-final-cut-pro/"><u>Updated 2024 Approved Bringing Your Memories to Life A Guide to Creating Video Slideshows in Final Cut Pro</u></a></li>
 </ul></div>
 

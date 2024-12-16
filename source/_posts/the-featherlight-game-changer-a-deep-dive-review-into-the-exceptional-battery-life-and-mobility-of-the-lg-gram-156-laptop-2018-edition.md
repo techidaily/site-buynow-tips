@@ -1,7 +1,7 @@
 ---
 title: "The Featherlight Game Changer: A Deep Dive Review Into the Exceptional Battery Life & Mobility of the LG Gram 15.6 Laptop (2018 Edition)"
-date: 2024-12-04T05:21:16.633Z
-updated: 2024-12-10T00:22:43.864Z
+date: 2024-12-14T17:29:34.430Z
+updated: 2024-12-16T16:23:58.442Z
 categories:
   - BestProducts
 description: "This Article Describes The Featherlight Game Changer: A Deep Dive Review Into the Exceptional Battery Life & Mobility of the LG Gram 15.6 Laptop (2018 Edition)"
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/11bd493dd0576b5128c521759756af9ef04692489
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/SBirmVys72S63lQd4lWukO_gXRw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
@@ -42,7 +42,7 @@ Lifewire / Zach Sweat
 3.3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Alienware Aurora R9
@@ -83,6 +83,10 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Polarizing sci-fi aesthetics**
 
  The best way to describe Alienware’s design for a vast majority of their products can be summed up as “polarizing.” Going all the way back to the company’s early days, their sci-fi and alien-esque aesthetics have always appealed to some, while those who prefer clean lines and minimal looks flee in the opposite direction.
@@ -115,10 +119,6 @@ Lifewire / Zach Sweat
 
  From here, you can either fine tune your new PC’s looks within the settings menu or keep things as they are. If you’re using a monitor with a higher refresh rate or resolution, it’s also a good idea to ensure your PC is fully utilizing this by perusing the display settings and options. After all, nobody likes finding out they’ve been stuck on 60Hz with their display that’s capable of hitting 144Hz.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: Results may vary**
 
  Determining the overall performance of the Aurora R9 will entirely be subject to which hardware options or model you purchased. For performance, you get what you pay for. A quick note on this is that you should typically purchase the best components for your specific needs that are within your budget. If you want to primarily game, your GPU is perhaps the most important part, so start there. For those who want a balance between gaming and work performance, make sure you get a decent CPU.
@@ -135,11 +135,11 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/zWvKnnWGsRBdtRIHTYYD7HEs0qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-13-88a6bd8dac13438794a0bb038df7757f.jpg)
 
- Lifewire / Zach Sweat
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Zach Sweat
 
 ## **Gaming: From ok to amazing, if you have the cash**
 
@@ -156,6 +156,10 @@ Lifewire / Zach Sweat
  Aside from FPS, the load times for games compared to my[SSD-equipped](https://www.lifewire.com/best-external-hard-drives-4050413) PC were much, much slower. Loading into planets and zones in[Destiny 2](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) takes only a few moments with an SSD, while this HDD R9 felt twice as long or more—similar to what you’d see with any current-gen gaming console (they all have HDDs).
 
  Your gaming performance in relation to the Aurora is subject to your hardware, peripherals and network speeds if playing an online game, so choose the best model you can afford within your budgetary restrictions and keep in mind how you plan to use your PC.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Audio: Decent prebuilt performance and surround sound**
 
@@ -199,10 +203,6 @@ Lifewire / Zach Sweat
 
  For RGB fans, the AlienFX hardware and software provides tons of potential combinations with up to 16.8 million color options. Users can take full control of the external RGB along the front and sides of the tower in addition to supported peripherals. Themes you create can also be saved and assigned to specific games, which is a pretty sweet perk.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Not the best bang for your buck**
 
  PC gaming is notoriously expensive to initially get into, but the prices of many components have continued to dwindle over the decades. Although the old adage that building your own computer from scratch is cheaper still holds true, prebuilt computers have also become much more comparable. So how does this Alienware match up?
@@ -218,7 +218,7 @@ Lifewire / Zach Sweat
  Overall, the price of the R9 is ok at best, and you do get some nice software features from Alienware, but it’s still cheaper to build your own.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Alienware Aurora R9 vs. Dell G5 5090**
@@ -265,21 +265,14 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/updated-best-practices-in-unbounded-online-space-use/"><u>[Updated] Best Practices in Unbounded Online Space Use</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/acer-xfa240-assessment-prioritizing-performance-and-utility/"><u>Acer XFA240 Assessment: Prioritizing Performance and Utility</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/aeiusys-reliable-portable-solar-solution-review-of-a-pure-sine-wave-inverter-designed-for-medical-gear-efficiency/"><u>Aeiusy's Reliable Portable Solar Solution: Review of a Pure Sine Wave Inverter Designed for Medical Gear Efficiency</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comparing-tablet-performance-a-focus-on-cpu-power/"><u>Comparing Tablet Performance: A Focus on CPU Power</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-breakdown-of-uniden-r3s-solid-build-quality-and-superior-range-features/"><u>Comprehensive Breakdown of Uniden R3's Solid Build Quality and Superior Range Features</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-blade-blh4100-120s-rtf-outdoor-rc-helicopter-in-depth-analysis-and-performance-insights/"><u>Comprehensive Guide: Blade BLH4100 120S RTF Outdoor RC Helicopter - In-Depth Analysis and Performance Insights</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-look-at-apple-watch-series-6-understated-enhancements-keeping-it-as-top-choice/"><u>Comprehensive Look at Apple Watch Series 6: Understated Enhancements Keeping It as Top Choice</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-test-drive-of-the-gaomon-pd1560-the-ultimate-stylus-drawing-device/"><u>Comprehensive Test Drive of the Gaomon PD1560: The Ultimate Stylus Drawing Device?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/decoding-the-instagram-story-viewer-experience-for-2024/"><u>Decoding the Instagram Story Viewer Experience for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-vivo-y100i-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Vivo Y100i Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-oneplus-ace-2v-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your OnePlus Ace 2V Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/motorolas-moto-g-play-examined-impressive-energy-efficiency-and-competent-functionality-on-display/"><u>Motorola's Moto G Play Examined – Impressive Energy Efficiency and Competent Functionality on Display</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/newest-advancements-unveiled-for-samsung-galaxy-wearables-and-cutting-edge-foldable-tech-gadgets/"><u>Newest Advancements Unveiled for Samsung Galaxy Wearables and Cutting-Edge Foldable Tech Gadgets</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/1726030458022-pcdvd/"><u>PC上のDVD鑑賞: 借りた映画をバックアップする自由・有料方法集</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ct-your-channel-imagery-youtube-thumbnail-dos-and-donts-for-2024/"><u>Perfect Your Channel Imagery YouTube Thumbnail Do's & Don'ts for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ultimate-tutorial-configuring-and-using-telnet-in-windows-os/"><u>Ultimate Tutorial: Configuring and Using Telnet in Windows OS</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-bridging-communication-gaps-utilizing-zoom-with-gmail-mail/"><u>[Updated] Bridging Communication Gaps Utilizing Zoom with Gmail Mail</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-digital-imagery-standards-rgb-and-its-successor-srgb-for-2024/"><u>[Updated] Digital Imagery Standards Rgb & Its Successor, Srgb for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-a-comprehensive-list-top-rated-srt-translation-services/"><u>2024 Approved A Comprehensive List Top-Rated SRT Translation Services</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-leading-ergo-friendly-typing-solutions-reviewed/"><u>2024'S Leading Ergo-Friendly Typing Solutions Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/futureproofing-your-internet-the-premier-long-distance-routers-launched/"><u>Futureproofing Your Internet: The Premier Long-Distance Routers Launched</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-xiaomi-redmi-note-13-pro-5g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Xiaomi Redmi Note 13 Pro 5G to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/mastering-monetization-an-instagram-income-journey-for-2024/"><u>Mastering Monetization An Instagram Income Journey for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tp-link-re305-range-extender-ac1200-evaluation-user-friendly-design/"><u>TP-Link RE305 Range Extender AC1200 Evaluation: User-Friendly Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/value-meets-versatility-our-comprehensive-review-of-the-zte-blade-a3y-budget-phone/"><u>Value Meets Versatility: Our Comprehensive Review of the ZTE Blade A3Y Budget Phone</u></a></li>
 </ul></div>
 

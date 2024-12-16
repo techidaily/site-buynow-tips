@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Review: Why the Flexispot Theodore Is Setting New Standards for Chic Office Workstations"
-date: 2024-12-04T07:59:09.600Z
-updated: 2024-12-10T11:39:12.452Z
+date: 2024-12-10T16:36:42.065Z
+updated: 2024-12-16T16:13:10.115Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Review: Why the Flexispot Theodore Is Setting New Standards for Chic Office Workstations"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/c6429f73427910ad10427b45e11889d34e56d443e
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -41,6 +45,10 @@ Lifewire / Todd Braylor
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Todd Braylor
 
 [View On Amazon $280](https://www.amazon.com/dp/B019HF60EI/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7CB019HF60EI) [View On Walmart $140](https://www.walmart.com/ip/Escort-Passport-S55-High-Performance-Pro-Radar-and-Laser-Detector-w-DSP/49140972)
@@ -62,10 +70,6 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -77,7 +81,7 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easy installation**
@@ -87,7 +91,7 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Range: Impressive detection**
@@ -95,10 +99,6 @@ Lifewire / Todd Braylor
  The Passport S55 features Enhanced Radar Protection that delivers long-distance range for laser and radar bands, including K and Ka bands, widely used microwave frequencies for police radar guns. It reliably delivers on its promise of long-distance sensitivity. While testing the S55 in Highway mode I received Ka-band alerts over a mile and a half out from where I approached a highway patrol parked on the median of the interstate. This range was on par with much more expensive models.
 
  It reliably delivers on its promise of long-distance sensitivity.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Not exactly enhanced**
 
@@ -109,7 +109,7 @@ Lifewire / Todd Braylor
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: You get what you pay for**
@@ -159,22 +159,22 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-a-detailed-examination-of-mycam-for-smart-home-setups/"><u>[New] A Detailed Examination of MyCam for Smart Home Setups</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-precision-guide-for-webp-to-jpg-conversion/"><u>[Updated] In 2024, Precision Guide for WebP to JPG Conversion</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-luxury-in-smartphones-a-comprehensive-review-of-the-nokia-71-display-and-camera/"><u>Affordable Luxury in Smartphones: A Comprehensive Review of the Nokia 7.1 Display & Camera</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/amazon-prime-day-alert-secure-spectacular-discounts-on-top-tier-samsung-tech-products/"><u>Amazon Prime Day Alert! Secure Spectacular Discounts on Top-Tier Samsung Tech Products</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/awaken-gently-with-totobays-new-genesis-the-ultimate-guide-to-the-best-value-wake-up-light/"><u>Awaken Gently with Totobay's New Genesis: The Ultimate Guide to the Best Value Wake-Up Light</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/best-deals-alert-save-big-on-premium-benq-displays-for-prime-event/"><u>Best Deals Alert: Save Big on Premium BenQ Displays for Prime Event!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/bouncie-gps-tracking-solution-an-easy-to-use-and-budget-friendly-car-locator/"><u>Bouncie GPS Tracking Solution - An Easy-to-Use & Budget-Friendly Car Locator</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/breakdown-the-compelling-case-for-buying-an-ipad/"><u>Breakdown: The Compelling Case for Buying an iPad</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/brookstone-showcases-best-digital-frames-for-you/"><u>Brookstone Showcases Best Digital Frames for You</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/changing-tides-in-streaming-tech-a-detailed-look-at-chromecast-with-google-tv/"><u>Changing Tides in Streaming Tech: A Detailed Look at Chromecast with Google TV</u></a></li>
-<li><a href="https://win-able.techidaily.com/discover-the-finest-selection-of-royalty-free-mp3s-on-these-10-unbeatable-websites/"><u>Discover the Finest Selection of Royalty-Free MP3s on These 10 Unbeatable Websites!</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/exiting-androids-safe-mode-essential-tips-and-tricks/"><u>Exiting Android's Safe Mode: Essential Tips and Tricks</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/fixing-windows-11-command-not-working-issue/"><u>Fixing Windows 11 Command Not Working Issue</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-oneplus-12-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your OnePlus 12 Is Unlocked</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-optimize-your-gaming-with-kinemaster-usage-tips-and-comparisons-with-best-online-games/"><u>In 2024, Optimize Your Gaming with KineMaster Usage Tips & Comparisons with Best Online Games</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/universal-unlock-pattern-for-realme-by-drfone-android/"><u>Universal Unlock Pattern for Realme</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unlock-virtual-worlds-top-10-pc-games-for-ultimate-vr-experience-for-2024/"><u>Unlock Virtual Worlds Top 10 PC Games for Ultimate VR Experience for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-freeze-frame-fantasy-expert-techniques-for-gameplay-preservation-pc/"><u>[New] 2024 Approved Freeze Frame Fantasy Expert Techniques for Gameplay Preservation (PC)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-list-of-top-5-mac-streamers/"><u>[New] The Ultimate List of Top 5 Mac Streamers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-the-ultimate-guide-to-recording-gaming-with-fraps/"><u>2024 Approved The Ultimate Guide to Recording Gaming with Fraps</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-unbeatable-hard-drives-to-upgrade-your-xbox-gear/"><u>2024 Approved Unbeatable Hard Drives to Upgrade Your Xbox Gear</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-fun-awaits-at-karaoke-usa-experience-endless-singing-pleasure-below-150/"><u>Budget-Friendly Fun Awaits at Karaoke USA – Experience Endless Singing Pleasure Below $150</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-apple-iphone-xr-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On Apple iPhone XR</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/deciding-between-the-newest-giants-apple-ipad-air-links-to-reviewhttpsexamplecomipadairreview-and-samsung-galaxy-tab-s7plus-links-to-reviewhttpsexamplecomga94/"><u>Deciding Between the Newest Giants: Apple iPad Air ([Links to Review](https://example.com/iPadAirReview)) and Samsung Galaxy Tab S7+ ([Links to Review](https://example.com/GalaxyTabS7Review))</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-unveiling-the-lenovo-thinkpad-x1-titanium-yoga-a-must-have-hybrid-device-for-traditionalists/"><u>Expert Analysis: Unveiling the Lenovo ThinkPad X1 Titanium Yoga - A Must-Have Hybrid Device for Traditionalists</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/get-the-best-of-both-worlds-affordable-and-powerful-yn560iv-speedlight/"><u>Get the Best of Both Worlds: Affordable and Powerful YN560IV Speedlight</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/guide-converting-heic-images-to-jpeg-format-for-both-macos-and-windows-systems/"><u>Guide: Converting HEIC Images to JPEG Format for Both macOS & Windows Systems</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-online-frenzy-essential-trending-hashes/"><u>Igniting Online Frenzy Essential Trending Hashes</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-easy-tutorial-for-activating-icloud-from-apple-iphone-11-pro-max-safe-and-legal-by-drfone-ios/"><u>In 2024, Easy Tutorial for Activating iCloud from Apple iPhone 11 Pro Max Safe and Legal</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-optimal-video-player-for-avi-files-on-devices/"><u>In 2024, Optimal Video Player for Avi Files on Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-owc-mercur-pro-top-tier-capacity-and-elite-performance/"><u>In-Depth Review of OWC Mercur Pro - Top-Tier Capacity & Elite Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/martian-metropolis-madness-construct-cities-ignite-whirlwinds-of-delight-for-an-out-of-this-world-fun-experience/"><u>Martian Metropolis Madness: Construct Cities, Ignite Whirlwinds of Delight for an Out-of-This-World Fun Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-pick-of-wireless-portable-routers-for-2verageous-adventurers/"><u>The Ultimate Pick of Wireless Portable Routers for 2veRageous Adventurers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unpacking-the-benefits-of-upgrading-to-an-iphone-1n-pro-max-is-a-larger-phone-worth-it/"><u>Unpacking the Benefits of Upgrading to an iPhone 1N Pro Max - Is a Larger Phone Worth It?</u></a></li>
 </ul></div>
 

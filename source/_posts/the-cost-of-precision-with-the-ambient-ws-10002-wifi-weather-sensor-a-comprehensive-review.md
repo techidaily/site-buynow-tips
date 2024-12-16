@@ -1,7 +1,7 @@
 ---
 title: The Cost of Precision with the Ambient WS-10002 WiFi Weather Sensor - A Comprehensive Review
-date: 2024-12-05T10:25:59.893Z
-updated: 2024-12-10T09:05:33.600Z
+date: 2024-12-12T16:11:45.972Z
+updated: 2024-12-16T16:27:35.195Z
 categories:
   - BestProducts
 description: This Article Describes The Cost of Precision with the Ambient WS-10002 WiFi Weather Sensor - A Comprehensive Review
@@ -14,7 +14,7 @@ thumbnail: https://www.lifewire.com/thmb/_l5BbUURYoQnwwhE4_8736v4eQ4=/400x300/fi
 4.5
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Acer Aspire E 15
@@ -41,10 +41,6 @@ Lifewire / Jeremy Laukkonen
 [View On Amazon $580](https://www.amazon.com/Acer-Aspire-i3-8130U-Memory-E5-576-392H/dp/B079TGL2BZ/?tag=lifewire-onsite-prod-20&ascsubtag=4686717%7Cn4f28d43e30f1457ea7a870c685e75d4f06%7CB079TGL2BZ) [View On Walmart $499](https://www.walmart.com/ip/Acer-Aspire-E-15-E5-576-392H-15-6-LCD-Notebook-Intel-Core-i3-8th-Gen-i3-8130U-Dual-core-2-Core-2-20-GHz-6-GB-DDR3L-SDRAM-1-TB-HDD-Windows-10-Home-64-/350526182)
 
 4.5
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Acer Aspire E 15
 
@@ -83,6 +79,10 @@ Lifewire / Jeremy Laukkonen
 
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/urRsU5n3D2A-nzQe6NGdQgrDGwM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1lW4043278-Acer-Aspire-2-4cb96f03e4c748a583d14f0c8c9224dc.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 ## **Design: A decent plastic case, but not exactly a premium look**
@@ -97,6 +97,10 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  The keyboard is roomy and comfortable and the keys feel sharp and springy. The trackpad is massive and responsive, but it doesn’t feel as robust as the keyboard. The left and right buttons are incorporated into the main body of the trackpad, and they have far too much give—if we pressed down with more than the absolute minimum necessary force, it felt like the trackpad might collapse.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process:** **A ton of bloatware to remove**
 
  The Acer Aspire E 15 comes with[Windows 10](https://www.lifewire.com/windows-10-2626217) preloaded, and the setup process isn’t really anything out of the ordinary for a Windows 10 laptop. Acer requests some contact information during the initial setup, which is something that most of the[OEMs](https://www.lifewire.com/what-is-oem-software-1701736) do to help with warranties and support. We timed the process from start to finish, and it took about 10 minutes to go from plugging it in and turning it on, to hitting the desktop for the first time.
@@ -105,21 +109,17 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/M-q3UXEJ6htBtTcwPWAH9SLwJeI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1lW4043278-Acer-Aspire-4-1cfdfcc543fa4eb5b5e5449b6ea37413.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Display: Full HD display with awesome contrast but washed-out color**
 
  While the Aspire E 15’s screen isn’t the brightest or most colorful in the world, it is a full HD display that absolutely shines compared to the low-resolution screens found on a lot of laptops in this category.
 
  The display has decent viewing angles and great contrast, but the colors are a bit washed out. It’s fine for watching videos on YouTube and Netflix—and DVDs, of course—but it wouldn’t be our first choice for movie night. It’s definitely a display that’s best suited for work, with media and gaming as afterthoughts.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Outperforms the competition, but suffers from a slow HDD**
 
@@ -143,10 +143,6 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  The takeaway is that we absolutely wouldn’t recommend buying this laptop for the purpose of playing games, but it is capable of rising to the task if you’re willing to lower the settings and stick to older games.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Productivity: Gets the job done at work, home, or on the go**
 
  The Aspire E 15 is designed with productivity in mind. While we found that it was capable of some light gaming, it’s definitely intended for students and people who need a basic[business laptop](https://www.lifewire.com/best-laptops-to-buy-4043650) .
@@ -163,10 +159,6 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  Strangely enough, the audio is actually louder and clearer when the[laptop](https://www.lifewire.com/14-16-inch-laptops-833846) is sitting on a flat surface. It seems like there is a lot of sound escaping from the vents as well as through the actual speaker grills, and placing it on a solid surface seems to improve the audio quality.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Network: Great speeds on both 5 GHz and 2.4 GHz networks**
 
  The Aspire E 15 includes a wireless card that’s capable of connecting to both 2.4 and 5 GHz wireless networks, which is a nice touch if you have a wireless router that lets you take advantage of this feature. 2.4 and 5 GHz network compatibility is standard on more expensive laptops, but a lot of competitors in the budget category leave it out.
@@ -174,6 +166,10 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
  Acer advertises a 12-hour battery life, and we found that to be a pretty accurate claim.
 
  We found that the Aspire E 15 was able to achieve download speeds of 260 Mbps and upload speeds of 65 Mbps when connected to our 5 GHz network. When connected to our 2.4 GHz network, it notched speeds of 66 Mbps down and 64 Mbps up. These speeds are pretty good across the board.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Camera: 720p webcam takes grainy stills**
 
@@ -215,6 +211,10 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  The Acer Aspire E 15 hits almost all the right notes while keeping the price way, way down. If you have a little room in your budget, it’s worth investing in the more expensive configuration of this laptop, which comes with a discrete NVIDIA graphics card for gaming, extra RAM, and a speedy SSD.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Asus Chromebook C202SA](https://www.lifewire.com/asus-chromebook-c202sa-review-4589359)
@@ -222,7 +222,7 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 * [Lenovo Ideapad 320](https://www.lifewire.com/lenovo-ideapad-320-review-4686723)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -254,24 +254,24 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-step-by-step-creation-of-gamers-channel-graphics/"><u>[New] In 2024, Step-By-Step Creation of Gamers' Channel Graphics</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/budget-friendly-lenovo-tab-m10-fhd-plus-comprehensive-review/"><u>Budget-Friendly Lenovo Tab M10 FHD Plus - Comprehensive Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/chromecast-powered-by-google-tv-review-can-it-outshine-amazon-firetv/"><u>Chromecast Powered by Google TV Review: Can It Outshine Amazon FireTV?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/code-refreshments-vs-big-leap-system-changes/"><u>Code Refreshments Vs. Big-Leap System Changes</u></a></li>
-<li><a href="https://win-data.techidaily.com/comment-resoudre-lecroulement-dun-fichier-excel-sous-windows-guides-complets/"><u>Comment Résoudre L'Écroulement D'un Fichier Excel Sous Windows : Guides Complets</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comparing-apples-contenders-how-does-the-ipad-air-stack-up-against-the-original-ipad/"><u>Comparing Apple's Contenders: How Does the iPad Air Stack Up Against the Original iPad?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-garmin-vivomove-hr-your-stylish-companion-for-active-living/"><u>Comprehensive Evaluation of the Garmin Vivomove HR - Your Stylish Companion for Active Living</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-and-evaluation-of-the-apple-macbook-pro-with-m1-chip-16-inch-2021-release/"><u>Comprehensive Guide & Evaluation of the Apple MacBook Pro with M1 Chip (16-Inch, 2021 Release)</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-anthropics-smart-photo-editor-top-features-and-performance/"><u>Comprehensive Review of Anthropics' Smart Photo Editor: Top Features and Performance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/console-gaming-revolutionized-why-asus-vg2nvh-is-a-must-have-for-serious-gamers/"><u>Console Gaming Revolutionized: Why Asus VG2nVH Is a Must-Have for Serious Gamers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/cyberpower-cp685avrg-analysis-simplistic-design-meets-core-protection-needs-for-critical-devices/"><u>Cyberpower CP685AVRG Analysis: Simplistic Design Meets Core Protection Needs for Critical Devices</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/find-everything-you-need-for-your-apple-gadgets-on-zdnet-detailed-manuals-specs-listed-and-expert-repair-tips-in-a-single-hub/"><u>Find Everything You Need for Your Apple Gadgets on ZDNet: Detailed Manuals, Specs Listed, and Expert Repair Tips in a Single Hub</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-resolve-freezing-problems-with-call-of-duty-modern-warfare-on-your-computer/"><u>How to Resolve Freezing Problems with Call of Duty: Modern Warfare on Your Computer</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-samsung-galaxy-a05s-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Samsung Galaxy A05s Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-guide-to-creating-unique-tiktok-cover-art/"><u>In 2024, Guide to Creating Unique TikTok Cover Art</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/panoramic-viewpoint-gear-for-vr-for-2024/"><u>Panoramic Viewpoint Gear for VR for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/revolutionary-printing-speed-attained-modified-3d-printer-renders-speed-benchy-model-in-record-time/"><u>Revolutionary Printing Speed Attained: Modified 3D Printer Renders 'Speed Benchy' Model in Record Time!</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/ultimate-evaluation-of-the-linksys-ac1900-mx2400d-wifi-tri-band-smart-wireless-router/"><u>Ultimate Evaluation of the Linksys AC1900 MX2400D WiFi Tri-Band Smart Wireless Router</u></a></li>
-<li><a href="https://win-bits.techidaily.com/understanding-and-fixing-widely-encountered-gpu-problems-in-windows-insights-from-yl-software/"><u>Understanding and Fixing Widely Encountered GPU Problems in Windows - Insights From YL Software</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-capturing-the-unseen-9-must-have-camgear-for-aspiring-vloggers/"><u>[New] 2024 Approved Capturing the Unseen 9 Must-Have CamGear for Aspiring Vloggers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rafting-news-end-credits-a-step-by-step-guide/"><u>[New] Crafting News End Credits A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-maximizing-impact-with-smartly-produced-fb-videos/"><u>[New] In 2024, Maximizing Impact with Smartly Produced FB Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-tailoring-your-online-persona-with-a-new-background-photo/"><u>[New] In 2024, Tailoring Your Online Persona with a New Background Photo</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-amazon-prime-fan-favorites-highest-likes-and-view-counts/"><u>[Updated] In 2024, Amazon Prime Fan Favorites Highest Likes & View Counts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/acurite-pro-01036m-weather-instrument-examination-easy-setup-and-solid-framework/"><u>AcuRite Pro 01036M Weather Instrument Examination - Easy Setup & Solid Framework</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/deciding-between-streaming-giants-a-detailed-look-at-apple-tv-4k-and-roku-ultra/"><u>Deciding Between Streaming Giants: A Detailed Look at Apple TV 4K and Roku Ultra</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-clearstream-2-v-channel-master-hd-tv-antenna-exceptional-indoorsoutdoors-function-in-a-not-so-attractive-design/"><u>Evaluating the ClearStream 2 V Channel Master HD TV Antenna: Exceptional Indoors/Outdoors Function in a Not-so-Attractive Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-skagen-falster-3-timeless-elegance-fused-with-advanced-features/"><u>Exploring the Skagen Falster 3: Timeless Elegance Fused with Advanced Features</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-honor-x8b-easily-by-drfone-android/"><u>How To Unlock a Honor X8b Easily?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-uniden-r3-a-robust-radar-detector-with-impressive-long-distance-performance/"><u>In-Depth Review of Uniden R3 - A Robust Radar Detector with Impressive Long Distance Performance</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/al-explanation-designer-for-2024/"><u>Lyrical Explanation Designer for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/preventing-corruption-write-restoration-in-windows-systems/"><u>Preventing Corruption: Write Restoration in Windows Systems</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-smarter-way-to-drive-in-depth-look-at-the-escort-ix-your-self-improving-radar-detective/"><u>The Smarter Way to Drive: In-Depth Look at the Escort iX - Your Self-Improving Radar Detective</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-surprising-strengths-and-limitations-of-the-compact-apple-iphone-12-mini/"><u>The Surprising Strengths and Limitations of the Compact Apple iPhone 12 Mini</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-budget-pick-for-gamers-a-closer-look-at-the-fellowes-microban-wired-keyboard/"><u>The Ultimate Budget Pick for Gamers: A Closer Look at the Fellowes Microban Wired Keyboard</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-list-of-the-6-greatest-antivirus-tools-for-your-iphone/"><u>The Ultimate List of the 6 Greatest Antivirus Tools for Your iPhone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultra-compact-wireless-solution-boost-connectivity-with-ourlink-u631-usb-wi-fi-card/"><u>Ultra-Compact Wireless Solution - Boost Connectivity with Ourlink U631 USB Wi-Fi Card</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/videographers-freelancer-form/"><u>Videographer's Freelancer Form</u></a></li>
 </ul></div>
 

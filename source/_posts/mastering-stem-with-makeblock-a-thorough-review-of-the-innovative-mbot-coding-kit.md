@@ -1,7 +1,7 @@
 ---
 title: Mastering STEM with Makeblock – A Thorough Review of the Innovative mBot Coding Kit
-date: 2024-12-09T05:08:19.153Z
-updated: 2024-12-10T00:29:51.677Z
+date: 2024-12-12T17:48:08.505Z
+updated: 2024-12-16T16:55:24.451Z
 categories:
   - BestProducts
 description: This Article Describes Mastering STEM with Makeblock – A Thorough Review of the Innovative mBot Coding Kit
@@ -38,7 +38,7 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazon Echo Dot (4th Gen)
@@ -67,10 +67,6 @@ Lifewire / Erika Rawes
 
  Amazon’s[Echo](https://www.lifewire.com/what-is-the-amazon-echo-4147189) Dot has become a go-to option for those looking for a compact and affordable smart speaker. The brand has now released a 4th generation of its[Echo Dot](https://www.lifewire.com/amazon-dot-4149509) , and the new version has a totally different look than its predecessors. What else is new and different about the Echo Dot (4th Gen)? How does the new Dot perform? I tested the Echo Dot (4th Gen) to find out.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: A completely new look**
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/TtbQpfhvpeKgt-Aso1WoKQ6m2VI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-2-89fbd54fb6a14efba195a0094b8d7b6f.jpg)
@@ -85,10 +81,6 @@ Lifewire / Erika Rawes
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/HELf_jWdoxnVe1w7XOL9sC7GoO8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-4-f100069b4b7d40dc8661b1614e150934.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
  The 4th Gen Dot still has a 3.5 mm output jack, which I was really pleased to see. Google’s Nest Mini (2nd Gen) lacks a 3.5 mm jack. However, unlike Google’s newest mini smart speaker, the Echo Dot does not have a keyhole mount for mounting on a wall. The speaker is meant for placement on a flat surface, as evidenced by the rubberized bottom that prevents slipping and helps the Echo Dot stay in place.
@@ -96,7 +88,7 @@ Lifewire / Erika Rawes
  Overall, I really appreciate the design of the new Dot. Modern and elegant, it fits into my living room, kitchen, or bedroom, as it doesn’t have a cold feel that takes away from the space. The 4th-Gen Dot is made from environmentally conscious materials like post-consumer recycled plastics and fabrics, thus securing it a “Climate Pledge Friendly” tag on Amazon.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easy as ever**
@@ -106,6 +98,10 @@ Lifewire / Erika Rawes
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/dVUkRuy5SxFHmCHXxSseZY5tjhw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-3-320d298cdb18405d9d326c272464ef0d.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Sound Quality: A front-firing speaker**
 
@@ -125,10 +121,6 @@ Lifewire / Erika Rawes
 
  The Echo Dot (4th Gen) is powered by[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) . The Alexa voice assistant on the new Echo Dot is the same Alexa that you get on the Echo Dot (3rd Gen). You’ll be able to control your smart devices, listen to music, hear the news, set routines, shop, manage your schedule, and do all of the same things you could do before.[Alexa is always learning new skills](https://www.lifewire.com/alexa-skills-4126799) though. Amazon announced new Alexa features (coming soon) like Care Hub, which is a free feature that lets you check in on loved ones.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Echo Dot (4th Gen) With Clock: A Design Game Changer**
 
  The Echo Dot (4th Gen) comes in two other iterations: The Echo Dot (4th Gen) with Clock and the Echo Dot (4th Gen) Kids Edition. I tested the “with clock” iteration as a part of this review, but I did not test the kids model.
@@ -136,6 +128,10 @@ Lifewire / Erika Rawes
  I was blown away by the Echo Dot (4th Gen) With Clock. It’s the same device (internally) as the regular Echo Dot (4th Gen), but it has an LED display on the front of the speaker. Doesn’t sound like much, right?
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/bnVMEDjyf8t4zDkpRwr4-5msD2s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-7-with-Clock-9b93a56f3d0049c5a2064cd4b21c7cb5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -146,7 +142,7 @@ Lifewire / Erika Rawes
  I like the Echo Dot (4th Gen) with Clock better than the regular Echo Dot (4th Gen), as the regular version feels like it’s missing something.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: $60 with clock, $50 without**
@@ -166,6 +162,10 @@ Lifewire / Erika Rawes
 **Primarily a design upgrade.**
 
  The new Echo Dot is a great speaker at a great price, but it’s not worth an upgrade if you already have the 3rd-gen Dot unless you’re going with the clock version. For first time buyers, it's a no-brainer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -199,16 +199,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-optimal-budget-free-fb-picturemotion-designer/"><u>[Updated] In 2024, Optimal Budget-Free FB Picture/Motion Designer</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-saving-your-focus-a-guide-to-quieting-naysayers-on-google-video-calls-for-2024/"><u>[Updated] Saving Your Focus A Guide to Quieting Naysayers on Google Video Calls for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/comprendre-la-resolution-de-votre-disque-dur-faq-sur-les-caracteristiques-techniques/"><u>Comprendre La Résolution De Votre Disque Dur : FAQ Sur Les Caractéristiques Techniques</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/essential-browser-extensions-for-flawless-webm-experience/"><u>Essential Browser Extensions for Flawless WebM Experience</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-master-your-youtube-experience-with-premium-subscription/"><u>In 2024, Master Your YouTube Experience with Premium Subscription</u></a></li>
-<li><a href="https://program-issues.techidaily.com/phasmophobia-fix-guide-resolving-the-stubborn-90-loading-barrier-of-2024/"><u>Phasmophobia Fix Guide: Resolving the Stubborn 90% Loading Barrier of 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-comprehensive-review-affordable-excellence-in-the-rexing-v1-invisible-dashcam/"><u>The Comprehensive Review: Affordable Excellence in the Rexing V1 Invisible Dashcam</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-five-critical-considerations-for-selecting-your-ideal-activity-monitor/"><u>The Five Critical Considerations for Selecting Your Ideal Activity Monitor</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-netgear-powerline-av-1200-assessment-how-heavy-design-impacts-connection-speed/"><u>The Netgear Powerline AV 1200 Assessment: How Heavy Design Impacts Connection Speed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-top-things-to-think-about-before-investing-in-a-freely-locked-cell-phone/"><u>The Top Things To Think About Before Investing in a Freely Locked Cell Phone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-monster-hunter-world-defeating-rare-and-fearsome-enemies/"><u>The Ultimate Guide to Monster Hunter: World - Defeating Rare and Fearsome Enemies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/evolutionize-channel-wrapping-with-expert-templates-and-how-tos-for-2024/"><u>[New] Revolutionize Channel Wrapping with Expert Templates & How-Tos for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-becoming-a-skin-deep-sage-setting-up-your-beauty-channel/"><u>[Updated] Becoming a Skin-Deep Sage Setting Up Your Beauty Channel</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-from-mere-color-to-spectacle-hdr-vs-sdr-in-editing/"><u>2024 Approved From Mere Color to Spectacle HDR vs SDR in Editing</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unlock-the-power-of-spotifys-advertising-potential/"><u>2024 Approved Unlock the Power of Spotify’s Advertising Potential</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/air-vs-pro-in-depth-look-at-the-similarities-and-disparities-of-macbook-models/"><u>Air Vs. Pro: In-Depth Look at the Similarities & Disparities of MacBook Models</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/compare-deals-look-out-for-bundle-offers-that-include-accessories-like-a-case-screen-protector-or-headphones-at-a-reduced-price-when-purchasing-your-phone.m157/"><u>Compare Deals: Look Out for Bundle Offers that Include Accessories Like a Case, Screen Protector, or Headphones at a Reduced Price when Purchasing Your Phone.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-opinion-on-tp-link-deco-p9-revolutionizing-mesh-networking-at-home/"><u>Expert Opinion on TP-Link Deco P9: Revolutionizing Mesh Networking at Home</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-dual-nature-of-microsofts-budget-friendly-surface-go-a-portable-computing-conundrum/"><u>Exploring the Dual Nature of Microsoft's Budget-Friendly Surface Go - A Portable Computing Conundrum?</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-samsung-galaxy-s24plus-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Samsung Galaxy S24+ Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-compreenas-guide-to-seamless-time-marking-in-youtube-videos-desktopmobile/"><u>In 2024, The Compreenas Guide to Seamless Time Marking in YouTube Videos (Desktop/Mobile)</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/meet-the-gem12-pro-powerful-performance-with-upgraded-ryzen-processor-built-in-screen-and-enhanced-overclocking-connectivity/"><u>Meet the Gem12 Pro – Powerful Performance with Upgraded Ryzen Processor, Built-In Screen, and Enhanced Overclocking Connectivity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/microsoft-surface-pro-7-reviewed-a-comforting-update-with-steady-performance-gains/"><u>Microsoft Surface Pro 7 Reviewed – A Comforting Update with Steady Performance Gains</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-the-compact-powerhouse-how-the-audew-portable-air-compressor-delivers-consistently/"><u>Review: The Compact Powerhouse - How the Audew Portable Air Compressor Delivers Consistently</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/subtle-image-alteration-mastery-in-photoshop/"><u>Subtle Image Alteration Mastery in Photoshop</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-considerations-when-choosing-a-performance-laptop/"><u>Top Considerations When Choosing a Performance Laptop</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723053241983-ultimate-buyers-guide-selecting-the-perfect-tablet-by-dimensions-and-mass/"><u>Ultimate Buyer's Guide: Selecting the Perfect Tablet by Dimensions and Mass</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unlock-more-views-twitch-to-facebook-streaming-tips/"><u>Unlock More Views Twitch to Facebook Streaming Tips</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-oneplus-nord-n100-the-ultimate-budget-friendly-smartphone-evaluation/"><u>Unveiling the OnePlus Nord N100: The Ultimate Budget-Friendly Smartphone Evaluation</u></a></li>
 </ul></div>
 

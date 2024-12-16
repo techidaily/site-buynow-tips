@@ -1,7 +1,7 @@
 ---
 title: "High Performance, Low Price: Exploring the Acer Predator Triton 300SE's Worth"
-date: 2024-12-03T09:37:01.709Z
-updated: 2024-12-10T06:22:32.622Z
+date: 2024-12-09T17:05:23.290Z
+updated: 2024-12-16T16:34:41.836Z
 categories:
   - BestProducts
 description: "This Article Describes High Performance, Low Price: Exploring the Acer Predator Triton 300SE's Worth"
@@ -16,10 +16,6 @@ thumbnail: https://thmb.techidaily.com/e2a22d0e1eb69e31073b9f86edc15bd17dc9ed743
 ## Microsoft Surface Laptop Go
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/2bvxbVTYSDGrHTNRBt9DslXolEg=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_Hero5x4-c5d70a06640a47aca3f64903cf5af851.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -81,10 +77,6 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/DZ-_Yk02QL0fYrm0o3TDO7zXv3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_05-e2623904845848a3841272c93ab139f1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
 
  The keyboard and trackpad really steal the show here, as they are exceptionally high quality for a laptop in this price range. The keyboard is quiet and tactile with soft, almost luxurious keycaps. I was able to write this review on it quite comfortably. The trackpad is one of the best I’ve seen on a laptop of this size. It’s large, easy to use, and compares very well to the top-notch trackpads on the[Dell XPS 13](https://www.lifewire.com/dell-xps-13-9370-review-4779836) . For navigation, the Surface Laptop Go also has a touchscreen, which I found to be responsive and accurate.
@@ -94,7 +86,7 @@ Lifewire / Andy Zahn
  Port selection is rather limited, with a[USB-C](https://www.lifewire.com/usb-c-4149490) port, a USB-A port, a 3.5mm audio jack, and a Surface Connect port which is used for power but can also be used to connect to a Surface Dock. This is really the bare minimum for I/O, and was one of the most frustrating issues for me when using the device.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Display: Ideal for productivity**
@@ -111,10 +103,6 @@ Lifewire / Andy Zahn
 
  Bass was underwhelming, but that’s really to be expected in any laptop, particularly one with this form factor. It still provided a pleasant listening experience for both rock and classical music and provided excellent audio for watching movies and shows.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Camera: Low quality**
 
  Cameras on laptops are never very good, but the one on the Surface Laptop Go is particularly poor. It’s only capable of 720p, but it’s not the low resolution itself that really lets it down. Even in decent lighting conditions the video and still images produced by this camera are extremely grainy and low quality so it’s not a great option even for[Zoom](https://www.lifewire.com/what-is-zoom-and-how-does-it-work-4800476) meetings.
@@ -122,7 +110,7 @@ Lifewire / Andy Zahn
  The Surface Laptop Go is certainly not the most powerful laptop around, but with 8GB of RAM, an Intel Core i5-1035G1 CPU, and a fast solid-state drive for storage it feels zippy and responsive.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Decent power for the price**
@@ -133,13 +121,13 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/dzb-7fUK5xGots6oe-9ZhkMnnTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_07-3d9500befc3a4b50baf014cc571210a5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
  Another limiting factor is the storage capacity of the Surface Laptop Go. The configuration I tested only had 128GB of space on its solid-state drive, and the maximum configuration only comes with 256GB. You’re not going to be storing a lot of data locally on this machine forcing you to resort to cloud storage most of the time.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Connectivity: Modern hardware**
 
@@ -153,6 +141,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: A decision to make**
 
  The Surface Laptop Go ships with[Windows 10](https://www.lifewire.com/windows-10-2626217) in[S mode](https://www.lifewire.com/what-is-windows-10-s-4173113#:~:text=Windows%2010%20in%20S%20mode%20can%20only%20run%20Windows%20apps,and%20potentially%20longer%20battery%20life.) . This means that the device gains an extra degree of security, but also that it’s limited to apps available in the Windows Store. However, you can take the computer out of S mode to use a fully-functional version of Windows 10\. However, think carefully before doing so because there’s no going back.
@@ -161,6 +153,10 @@ Lifewire / Andy Zahn
 
  In terms of bloatware, the laptop came with a few pre-installed apps: a Microsoft Office trial, Adobe Photoshop Express, and a few other odds and ends. However, it’s all easily removed if you so choose, and doesn’t really get in the way.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Reasonable Value**
 
  With an MSRP of $549, the Surface Laptop Go offers high-end build quality at a mid-range price point. It’s hard to find a laptop in this price range that looks this good and is so eminently usable. Of course, that price might be higher depending upon the configuration you go with.
@@ -168,7 +164,7 @@ Lifewire / Andy Zahn
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/_QEntMJEPlaXArgv2l576Qnr7MU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_04-21f4f7c4d0f54436bb1449bf36a42460.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
@@ -191,6 +187,10 @@ Lifewire / Andy Zahn
 
 * [Microsoft Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584)
 * [Google Pixelbook Go](https://www.lifewire.com/google-pixelbook-go-review-4797012)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -222,24 +222,16 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-a-step-by-step-review-of-using-showmore-for-video-capture/"><u>[Updated] 2024 Approved A Step-by-Step Review of Using ShowMore for Video Capture</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-gain-instagram-reel-fame-emulate-top-tiktok-trends-and-insights/"><u>[Updated] 2024 Approved Gain Instagram Reel Fame Emulate Top TikTok Trends & Insights</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-hitting-the-sweet-spot-top-5-tips-for-channel-growth-for-2024/"><u>[Updated] Hitting the Sweet Spot Top 5 Tips for Channel Growth for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-visual-storytelling-made-easy-a-guide-to-blending-photo-and-video-in-pixiz/"><u>2024 Approved Visual Storytelling Made Easy A Guide to Blending Photo and Video in Pixiz</u></a></li>
-<li><a href="https://win-latest.techidaily.com/boost-your-computers-speed-with-these-expert-recommended-tools/"><u>Boost Your Computer’s Speed with These Expert-Recommended Tools</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-the-creme-de-la-creme-a-ranking-of-8-leading-mobile-games/"><u>Discover The Crème De La Crème: A Ranking Of 8 Leading Mobile Games</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/elevate-your-game-with-the-top-notch-asus-vg245h-gaming-monitor/"><u>Elevate Your Game with the Top-Notch Asus VG245H Gaming Monitor</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/enhance-your-entryway-with-arlo-a-complete-walkthrough-for-the-all-in-one-video-doorbell-system-with-alarm-capability/"><u>Enhance Your Entryway with Arlo: A Complete Walkthrough for the All-in-One Video Doorbell System With Alarm Capability</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/enhancing-your-home-network-the-definitive-analysis-of-the-netgear-nighthawk-ax8-mesh-wi-fi-6-extender/"><u>Enhancing Your Home Network: The Definitive Analysis of the Netgear Nighthawk AX8 Mesh Wi-Fi 6 Extender</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-comfort-and-quality-with-the-fellowes-microban-wireless-keyboard-budget-friendly/"><u>Experience Comfort and Quality with the Fellowes Microban Wireless Keyboard – Budget Friendly</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-functionalities-of-the-omnicharge-omni-20-a-versatile-all-in-one-portable-battery-solution-with-innovative-qi-wireless-feature/"><u>Exploring the Functionalities of the Omnicharge Omni 20: A Versatile, All-in-One Portable Battery Solution with Innovative Qi Wireless Feature</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/groundbreaking-stability-giant-insights/"><u>Groundbreaking Stability Giant Insights</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/hulu-justification-crucial-subscription-factors/"><u>Hulu Justification: Crucial Subscription Factors</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-durable-fujitsu-scansnap-ix1600-desktop-scanner-for-businesses/"><u>In Depth Analysis of the Durable Fujitsu ScanSnap iX1600 Desktop Scanner for Businesses</u></a></li>
-<li><a href="https://video-capture.techidaily.com/master-the-conversion-process-effortlessly-changing-your-av1-videos-to-popular-formats-like-mp4-h265-hevc-and-mpeg-4/"><u>Master the Conversion Process: Effortlessly Changing Your AV1 Videos to Popular Formats Like MP4, H.265 (HEVC), and MPEG-4</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/smooth-cuts-and-seamless-edits-top-6-mac-videos-editors/"><u>Smooth Cuts and Seamless Edits Top 6 Mac Videos Editors</u></a></li>
-<li><a href="https://driver-download.techidaily.com/successful-broadcom-ethernet-driver-installation-guide-on-windows-10/"><u>Successful Broadcom Ethernet Driver Installation Guide on Windows 10</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/wirecast-strategies-for-successful-social-media-livestreams-for-2024/"><u>Wirecast Strategies for Successful Social Media Livestreams for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-apowersoft-screen-recorder-for-pc-review/"><u>[New] Apowersoft Screen Recorder for PC Review</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-mastery-over-windows-10s-photo-app-stability-challenges/"><u>[New] Mastery Over Windows 10'S Photo App Stability Challenges</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-real-time-audio-recording-techniques-for-web-broadcasts-for-2024/"><u>[New] Real-Time Audio Recording Techniques for Web Broadcasts for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-10-must-see-historical-channels-on-youtube/"><u>[Updated] 2024 Approved 10 Must-See Historical Channels on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-directing-the-flow-of-digital-storytelling-through-youtube-fusion/"><u>[Updated] 2024 Approved Directing the Flow of Digital Storytelling Through Youtube Fusion</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-budget-friendly-tp-link-archer-c50-wifi-router/"><u>Comprehensive Evaluation of the Budget-Friendly TP-LInk Archer C50 WiFi Router</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/dark-fantasy-quest-in-bloodborne-a-detailed-critique/"><u>Dark Fantasy Quest in Bloodborne – A Detailed Critique</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/explore-the-latest-in-smart-technology-reviewing-the-third-gen-amazon-echo-show-10-with-room-aware-movements/"><u>Explore the Latest in Smart Technology: Reviewing the Third Gen Amazon Echo Show 10 with Room-Aware Movements</u></a></li>
+<li><a href="https://article-tips.techidaily.com/simplified-methods-to-close-unused-social-media-linkedin-account-for-2024/"><u>Simplified Methods to Close Unused Social Media (LinkedIn) Account for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-pick-of-the-year-navigating-with-the-garmin-gpsmap-64st-the-complete-handhunded-system-evaluation/"><u>Top Pick of the Year: Navigating with the Garmin GPSMAP 64St – The Complete Handhunded System Evaluation</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitters-top-picks-most-retweeted-and-binge-watched-series-for-2024/"><u>Twitters' Top Picks Most Retweeted & Binge-Watched Series for 2024</u></a></li>
 </ul></div>
 

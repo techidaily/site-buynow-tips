@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
-date: 2024-12-06T02:23:02.197Z
-updated: 2024-12-10T06:01:27.488Z
+date: 2024-12-15T16:10:39.530Z
+updated: 2024-12-16T16:49:38.289Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
@@ -14,7 +14,7 @@ thumbnail: https://thmb.techidaily.com/e0be33554f7e808cbb9defb5e44d8742371f9f0a4
 4
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## HP Omen Obelisk
@@ -40,6 +40,10 @@ Lifewire / Jonno Hill
 [View On Amazon $950](https://www.amazon.com/dp/B07SW895CZ?tag=lifewire-onsite-prod-20&ascsubtag=5072832%7Cnbfa2130ffdd54ba8b950c4ad0f0be8b007%7CB07SW895CZ) [View On Microsoft](https://www.microsoft.com/en-us/p/hp-omen-obelisk-gaming-desktop/8rqn7sf9phfz?activetab=pivot%3aoverviewtab)
 
 4
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## HP Omen Obelisk
 
@@ -75,6 +79,10 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design** : **Nice looks and small footprint, with many reservations**
 
  The HP OMEN Obelisk looks good in pictures but starts to fall apart a little when examined up close. Overall, HP did a pretty decent job here, but there are plenty of areas for improvement.
@@ -97,10 +105,6 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/gfeGQoUwG35q5t-JwO07Ax4jm5I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-3-f4e655ec9e684a47855e9ee7373ba4b6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
 
 ## **Performance** :**Great components for gaming and productivity**
@@ -112,7 +116,7 @@ Lifewire / Jonno Hill
  The Omen comes equipped with a 1TB[NVMe SSD](https://www.lifewire.com/what-is-m2-833453) and 32GB of DDR4 2666 memory. This is definitely more RAM than games alone will call for, but it’s merely an adequate amount of RAM for some creative professionals working with more demanding software like Adobe After Effects. Keep in mind though, even those that don’t normally need a lot of RAM can still benefit from having more. Among other things, it gives you the luxury of keeping all of your browser tabs and background applications running without having to start juggling applications on and off, which can be helpful from a productivity standpoint.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Gaming** :**Great for the most demanding titles**
@@ -129,21 +133,17 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Pz9tV-mhJl_Cjm8HSqEQ_VZPbVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-5-cdbd9d78a8c14b8e8bce0113d12e9fcc.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Network** :**Great speeds, but software that doesn’t do much**
 
  The HP Omen Obelisk has gigabit LAN and a Wi-Fi 5 (2x2) networking, the latter supporting a maximum speed of 866 Mbps. Everything functioned smoothly from a networking standpoint during my tests.
 
  I made a point to try out the Network Booster software found in the OMEN Command Center and didn’t see anything tremendously useful, unfortunately. I tried setting the priority of Steam to “Low” and downloading a game, but the game still downloaded at my maximum internet speed. I took it one step further and toggled the “Block” option for Steam, and tried to resume the download, but Steam kept on downloading at the maximum speed. The software was successful in blocking Chrome when that option was switched on, however.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Just enough options**
 
@@ -166,7 +166,7 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **HP OMEN Obelisk vs Corsair One Pro**
@@ -215,24 +215,21 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/updated-streamline-your-experience-with-youtubes-comment-features/"><u>[Updated] Streamline Your Experience with YouTube's Comment Features</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-itel-p40-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Itel P40 to Roku | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-google-wifi-why-its-the-perfect-choice-for-seamless-home-connectivity/"><u>Expert Analysis of Google WiFi – Why It’s the Perfect Choice for Seamless Home Connectivity</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploratory-extension-tripod-the-best-for-adventures/"><u>Exploratory Extension Tripod: The Best for Adventures</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-7-most-suitable-senior-phone-contracts-of-2024/"><u>Exploring the 7 Most Suitable Senior Phone Contracts of 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-kindle-advantages/"><u>Exploring the Kindle Advantages</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/find-the-perfect-range-extender-to-maximize-wi-fi-coverage-best-picks-of-202/"><u>Find the Perfect Range Extender to Maximize Wi-Fi Coverage - Best Picks of 202지</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/finding-drivers-dont-endorse-opengl/"><u>Finding: Drivers Don't Endorse OpenGL</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/fitbit-charge-charaj-evaluating-its-relevance-and-reliability-in-modern-wearables/"><u>Fitbit Charge ˈCharaj: Evaluating Its Relevance and Reliability in Modern Wearables</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/fixing-gmail-sync-issues-effective-solutions-for-non-syncing-emails/"><u>Fixing Gmail Sync Issues: Effective Solutions for Non-Syncing Emails</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/google-pixelbook-go-assessment-impressive-chromebook-capabilities-for-a-costly-investment/"><u>Google Pixelbook Go Assessment: Impressive Chromebook Capabilities for a Costly Investment</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/handheld-pc-gaming-revolution-a-deep-dive-into-steam-deck/"><u>Handheld PC Gaming Revolution: A Deep Dive Into Steam Deck</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-the-2023-apple-ipad-air-competes-with-the-high-end-ipad-pro/"><u>How the 2023 Apple iPad Air Competes with the High-End iPad Pro</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/how-to-successfully-convert-and-save-imovies-as-idvd-files/"><u>How to Successfully Convert and Save iMovies as iDVD Files</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-hearing-from-you-simple-windows-10-recorder-guide/"><u>In 2024, Hearing From You Simple Windows 10 Recorder Guide</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-from-iphone-xs-max-without-password-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account From iPhone XS Max without Password?</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolve-windows-could-not-install-in-minutes-with-these-tips/"><u>Resolve 'Windows Could Not Install' In Minutes with These Tips</u></a></li>
-<li><a href="https://driver-install.techidaily.com/swift-driver-changes-gtx-760-style/"><u>Swift Driver Changes, GTX 760 Style</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-sony-vegas-or-adobe-premiere-pro-which-video-editing-software-is-right-for-you-2023-guide-for-2024/"><u>Updated Sony Vegas or Adobe Premiere Pro Which Video Editing Software Is Right for You? 2023 Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-cost-effective-subscriber-growth-hundreds-at-a-bargain-price/"><u>[New] 2024 Approved Cost-Effective Subscriber Growth - Hundreds at a Bargain Price</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-expert-recommendations-for-downloading-snapchat-tunes/"><u>[Updated] Expert Recommendations for Downloading Snapchat Tunes</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-purefocuserase-professionally-crafted-photo-editor/"><u>[Updated] In 2024, PureFocusErase Professionally Crafted Photo Editor</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-samsung-galaxy-watch-active-enhancing-your-wellbeing-journey/"><u>Comprehensive Review of the Samsung Galaxy Watch Active - Enhancing Your Wellbeing Journey</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-next-level-gaming-with-corsair-one-pro-an-expert-take/"><u>Experience Next-Level Gaming with Corsair One Pro – An Expert Take</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/explore-the-potential-of-wonder-workshops-dash-a-full-review/"><u>Explore the Potential of Wonder Workshop's Dash: A Full Review</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/fun-flicks-online-must-see-comedy-streaming-stations-for-2024/"><u>Fun Flicks Online Must-See Comedy Streaming Stations for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/furbo-dog-camera-review-the-best-overall/"><u>Furbo Dog Camera Review: The Best Overall</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-chatgpt-overlooks-its-own-syntax/"><u>How ChatGPT Overlooks Its Own Syntax</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-premium-slideshow-tools-for-iphone-series-9-13-xr-ios13/"><u>In 2024, Premium Slideshow Tools For iPhone Series 9-13 (XR-iOS13)</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-the-noobs-manual-to-saving-streaming-radio-lines/"><u>In 2024, The Noob's Manual to Saving Streaming Radio Lines</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/singing-machine-sml385btbk-karaoke-review/"><u>Singing Machine SML385BTBK Karaoke Review</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/solutions-for-resolving-the-missing-msvcr80dll-file-problem/"><u>Solutions for Resolving the 'Missing MSVCR80.DLL' File Problem</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/test-drive-exploring-features-of-the-innovative-ampage-andes-1500-portable-generator/"><u>Test Drive: Exploring Features of the Innovative Ampage Andes 1500 Portable Generator</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshoot-and-solve-microsoft-edge-freezing-problems-in-windows-nt/"><u>Troubleshoot and Solve Microsoft Edge Freezing Problems in Windows nT</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-best-features-of-nokia-71-impressive-screen-clarity-superior-camera-quality-and-budget-friendly-price-point/"><u>Unveiling the Best Features of Nokia 7.1: Impressive Screen Clarity, Superior Camera Quality, and Budget-Friendly Price Point</u></a></li>
 </ul></div>
 

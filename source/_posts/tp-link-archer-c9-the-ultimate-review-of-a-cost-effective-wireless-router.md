@@ -1,7 +1,7 @@
 ---
 title: "TP-Link Archer C9: The Ultimate Review of a Cost-Effective Wireless Router"
-date: 2024-12-08T18:46:18.116Z
-updated: 2024-12-10T04:03:35.519Z
+date: 2024-12-15T17:40:58.878Z
+updated: 2024-12-16T16:36:22.956Z
 categories:
   - BestProducts
 description: "This Article Describes TP-Link Archer C9: The Ultimate Review of a Cost-Effective Wireless Router"
@@ -14,7 +14,7 @@ thumbnail: https://thmb.techidaily.com/0ec3b3e91ce6c2fd312d0c52b550de8f05b444cc8
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
@@ -45,7 +45,7 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
@@ -71,10 +71,6 @@ Lifewire / Erika Rawes
 
  The TP-Link Archer C80 is an affordable[long range router](https://www.lifewire.com/best-long-range-routers-4122554) that should be ideal for medium-sized homes. With 3x3[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , parental controls, and remote control using TP-Link’s Tether app, the Archer C80 has a few admirable features for a router under $100, but it also lacks some of the things we’ve come to expect in a router in this price range (like smart assistant compatibility and no USB port). I tested the TP-Link Archer C80 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment when compared to other budget routers on the market.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Basic, but effective**
 
  The Archer C80 is an exceptionally small router, with a body that measures only 4.6 inches tall, 8.5 inches wide, and 1.26 inches in depth. Since its body is smaller than a paperback book, the router can sit inconspicuously on a table or desk. It also has two keyhole mounts on the back for mounting on a wall.
@@ -97,7 +93,15 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/tXeiVJNqjtwMg97as87xxtsMwhc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_04-375b5f92ce9d44f4af109c8f6bfada16.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Network Performance: Fast speeds, No USB port**
 
@@ -106,6 +110,10 @@ Lifewire / Erika Rawes
  When I loaded up the network with several of the devices in my home—more than 30 smart home products, gaming PCs, laptops, consoles, streaming devices, smart TVs, and phones—I started to experience a noticeable slowdown. This is not the best router for gaming or for those who use multiple connected devices simultaneously. The C80 would be ideal for homes with light to moderate networking demands.
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -127,10 +135,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Around 100 bucks**
 
  The TP-Link Archer C80 sells for $100, which is a reasonable price for the unit considering it offers fast speeds, dual-band connectivity, and technologies like MU-MIMO to enhance performance.
@@ -144,10 +148,6 @@ Lifewire / Erika Rawes
 **Fast speeds and an exceptionally long range.**
 
  Even though it lacks a USB port, the Archer C80 puts out impressive speeds over a long range in homes with light to medium networking capacity. For homes that have several people streaming, gaming, and working on cloud applications, they’ll want something more high octane.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -184,18 +184,22 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-key-to-smooth-segments-crossfade-logic-pro-steps/"><u>[New] 2024 Approved The Key to Smooth Segments Crossfade Logic Pro Steps</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unveiling-the-perfect-gaming-experience-kinemaster-on-android/"><u>[New] Unveiling the Perfect Gaming Experience KineMaster on Android</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-editors-face-off-which-is-superior-filmora-or-democreator/"><u>2024 Approved Editors Face-Off Which Is Superior, Filmora or Democreator?</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-your-blueprint-for-downloading-youtube-srt-in-3-steps/"><u>2024 Approved Your Blueprint for Downloading YouTube SRT in 3 Steps</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apples-latest-showdown-iphone-15-plus-versus-pro-max/"><u>Apple's Latest Showdown: IPhone 15 Plus Versus Pro Max</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/assessing-the-best-handheld-console-experience-with-the-nintendo-switch/"><u>Assessing the Best Handheld Console Experience with the Nintendo Switch</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/breakdown-of-apples-latest-entry-in-smart-speakers-the-homepod-mini-reviewed-from-melodies-to-ai-interactions/"><u>Breakdown of Apple's Latest Entry in Smart Speakers – The HomePod Mini Reviewed: From Melodies to AI Interactions</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1725288399715-digiarty-winxdvd-faq/"><u>Digiarty WinXDVDソフトウェアの使用方法と一般的なトラブルシューティング - FAQ</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-optimizing-titles-and-tags-for-improved-youtube-visibility/"><u>In 2024, Optimizing Titles and Tags for Improved YouTube Visibility</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/what-to-look-for-in-a-gaming-pc/"><u>What to Look For in a Gaming PC</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/x-chair-x4-unveiled-why-its-a-solid-investment-for-your-business-seating-needs/"><u>X-Chair X4 Unveiled: Why It's a Solid Investment for Your Business Seating Needs</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/your-go-to-hubs-for-viewing-top-movies-sneak-peeks-a-list-of-7-chosen-gems/"><u>Your Go-To Hubs for Viewing Top Movies' Sneak Peeks: A List of 7 Chosen Gems</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-what-is-a-watermark-how-to-watermark-your-facebook-photosvideos/"><u>[New] What Is a Watermark? How to Watermark Your Facebook Photos/Videos</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-strategies-for-seamless-green-screening-in-kinemaster/"><u>2024 Approved Expert Strategies for Seamless Green Screening in KineMaster</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/5-solutions-for-tecno-phantom-v-fold-unlock-without-password-by-drfone-android/"><u>5 Solutions For Tecno Phantom V Fold Unlock Without Password</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-security-discovering-the-remobell-reviews-and-features-for-less-than-100/"><u>Affordable Security: Discovering the RemoBell Reviews and Features for Less Than $100</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/conquering-the-skies-a-thorough-examination-of-the-blade-blh4100-rc-helicopter-your-ultimate-guide-to-ready-to-fly-fun/"><u>Conquering the Skies: A Thorough Examination of the Blade BLH4100 RC Helicopter - Your Ultimate Guide to Ready To Fly Fun</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cutting-edge-charging-solutions-reviewed-the-omnicharge-omni-similar-problem-for-stories/"><u>Cutting Edge Charging Solutions Reviewed - The Omnicharge Omni # Similar Problem for Stories</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/cutting-edge-techniques-quickly-developing-quality-captions-for-facebook-posts-for-2024/"><u>Cutting-Edge Techniques Quickly Developing Quality Captions for Facebook Posts for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-evaluation-of-the-netatmo-weather-station-the-ultimate-gadget-for-mobile-device-lovers/"><u>Expert Evaluation of the Netatmo Weather Station: The Ultimate Gadget For Mobile Device Lovers</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-xiaomi-redmi-note-12-proplus-5g-easily-by-drfone-android/"><u>How To Unlock a Xiaomi Redmi Note 12 Pro+ 5G Easily?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/hp-stream-11-laptop-ultimate-portable-tech-essentials/"><u>HP Stream 11 Laptop: Ultimate Portable Tech Essentials</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-nokia-c12-plus-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Nokia C12 Plus Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-portable-storage-solutions-your-2024-essential-list/"><u>Leading Portable Storage Solutions: Your 2024 Essential List</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reviewing-the-thermopro-tp67-strikes-a-balance-between-price-and-dependability/"><u>Reviewing the ThermoPro TP67: Strikes a Balance Between Price and Dependability</u></a></li>
+<li><a href="https://techidaily.com/solutions-to-restore-deleted-files-from-motorola-razr-40-ultra-by-fonelab-android-recover-data/"><u>Solutions to restore deleted files from Motorola Razr 40 Ultra</u></a></li>
+<li><a href="https://techidaily.com/the-best-electronic-signature-way-to-sign-wps-file-documents-online-by-ldigisigner-sign-a-word-sign-a-word/"><u>The best electronic signature way to sign .wps file documents online</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-prime-day-discounts-save-big-on-benq-screens-and-projectors/"><u>Top Prime Day Discounts: Save Big on BenQ Screens and Projectors</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/k-the-secrets-to-increasing-views-in-60-second-youtube-shorts/"><u>Unlock the Secrets to Increasing Views in 60-Second YouTube Shorts</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Creative Sound Blaster ZXR Review - A Comprehensive Look at the Top 2013 Gaming Audio Card.
-date: 2024-12-09T13:41:38.400Z
-updated: 2024-12-10T05:47:52.645Z
+date: 2024-12-09T16:18:26.270Z
+updated: 2024-12-16T16:46:23.729Z
 categories:
   - BestProducts
 description: This Article Describes Creative Sound Blaster ZXR Review - A Comprehensive Look at the Top 2013 Gaming Audio Card.
@@ -12,10 +12,6 @@ thumbnail: https://www.lifewire.com/thmb/oysvXoWtBz3gRul9Gd8iFe2bHWg=/400x300/fi
 ## Creative Sound Blaster ZXR Review - A Comprehensive Look at the Top 2013 Gaming Audio Card
 
 2.8
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Creative Sound Blaster ZxR
 
@@ -43,13 +39,13 @@ Lifewire / Emily Ramirez
 
 2.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -77,10 +73,6 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
@@ -93,6 +85,10 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process/Installation: Easy install, irritating setup**
 
  To install the hardware, we popped open our mid-size PC tower and inserted the sound card and daughter board into two available PCIe slots. Creative Labs had the foresight to build the main card with a PCIe 1x slots, giving the user flexibility in where they connect their cards to the motherboard. Once the cards were secured, we plugged the headphones and microphone into the corresponding jacks.
@@ -102,10 +98,6 @@ Lifewire / Emily Ramirez
  Unfortunately, configuring Creative Labs’ drivers and software suite was a much less intuitive process. The ZxR’s outputs are controlled via the Sound Blaster Z-series Software, where users can select whether they’re listening with their headphones or their speakers, apply EQ effects, and more. By default, the software is set to output to speakers with several different EQ effects turned on. We had to manually switch it to headphone output and turn off EQ; the software does not automatically detect which jacks are in use.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -117,11 +109,11 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
- Lifewire / Emily Ramirez
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Emily Ramirez
 
 ## **Software: Lots of options with mixed utility**
 
@@ -131,12 +123,16 @@ Lifewire / Emily Ramirez
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
@@ -163,6 +159,10 @@ Lifewire / Emily Ramirez
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -202,24 +202,19 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-elevate-your-typography-with-affects-best-in-class-plug-ins-for-2024/"><u>[New] Elevate Your Typography with Affects' Best-in-Class Plug-Ins for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-unveiling-the-best-metaverse-vr-headsets-and-wearables/"><u>[Updated] Unveiling the Best Metaverse VR Headsets & Wearables</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-review-on-the-high-capacity-27000mah-chargetech-power-bank-for-on-the-go-charging/"><u>Expert Review on the High-Capacity 27000mAh ChargeTech Power Bank for On-the-Go Charging</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-review-unveiling-the-pros-and-cons-of-samsungs-galaxy-tab-s7plus/"><u>Expert Review: Unveiling the Pros and Cons of Samsung's Galaxy Tab S7+</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-leading-non-microsoft-office-solutions-of-2024/"><u>Exploring the Leading Non-Microsoft Office Solutions of 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-pinnacle-of-weather-monitoring-the-wifi-enabled-ws-1002-station-exceptional-performance-for-a-steep-investment/"><u>Exploring the Pinnacle of Weather Monitoring: The WiFi Enabled WS-1002 Station - Exceptional Performance for a Steep Investment</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-vast-horizons-of-x-plane-11-how-it-elevates-flight-gaming-with-high-quality-visuals/"><u>Exploring the Vast Horizons of X-Plane 11 - How It Elevates Flight Gaming With High-Quality Visuals</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/high-performance-low-cost-the-benefits-of-a-tp-link-archer-c9-wireless-router/"><u>High Performance, Low Cost: The Benefits of a TP-Link Archer C9 Wireless Router</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/holy-stones-toy-racer-the-ultimate-family-friendly-review-for-cartoon-race-cars/"><u>Holy Stone's Toy Racer: The Ultimate Family-Friendly Review for Cartoon Race Cars</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-get-your-windows-11-audio-devices-working-again-fixes-included/"><u>How To Get Your Windows 11 Audio Devices Working Again [FIXES INCLUDED]</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Honor Magic 5 Lite | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-to-upgrade-your-computer-from-windows-8-to-windows-11/"><u>How to Upgrade Your Computer From Windows 8 to Windows 11</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/hunt-for-the-best-prime-day-bargains-save-big-on-your-favorite-samsung-devices/"><u>Hunt for the Best Prime Day Bargains: Save Big on Your Favorite Samsung Devices</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fast-and-furious-the-prime-5-video-clipping-tools-in-chromes/"><u>In 2024, Fast & Furious The Prime 5 Video Clipping Tools in Chromes</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-filmora-guide-efficiently-convert-avi-files-to-gifs-on-both-operating-systems/"><u>In 2024, Filmora Guide Efficiently Convert AVI Files to GIFs on Both Operating Systems</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-leverage-social-platforms-for-vimeo-video-sharing/"><u>In 2024, Leverage Social Platforms for Vimeo Video Sharing</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-top-popular-meme-ideas-for-every-occasion/"><u>In 2024, Top Popular Meme Ideas for Every Occasion</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/navigating-the-world-of-computers-with-tom-essential-hardware-guides/"><u>Navigating the World of Computers with Tom: Essential Hardware Guides</u></a></li>
-<li><a href="https://fox-info.techidaily.com/ultimate-clearer-eliminate-backgrounds-effectively/"><u>Ultimate Clearer Eliminate Backgrounds Effectively</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-essential-list-of-gratuitous-online-photo-enhancement-suites/"><u>[New] Essential List of Gratuitous Online Photo Enhancement Suites</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-showdown-unveiling-the-contrasts-between-ipad-pro-and-macbook-pro/"><u>Apple Showdown: Unveiling the Contrasts Between IPad Pro & MacBook Pro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-and-performance-combined-expert-analysis-of-the-tp-link-archer-a6-ac1200-wireless-router/"><u>Budget and Performance Combined: Expert Analysis of the TP-Link Archer A6 AC1200 Wireless Router</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/complete-guide-transferring-your-entire-iphone-address-book-to-ipad-or-another-iphone-via-airdrop/"><u>Complete Guide: Transferring Your Entire iPhone Address Book to iPad or Another iPhone via AirDrop</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Infinix Hot 40i | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-the-netgear-nighthawk-ax8-mesh-range-extender-shapes-up-in-the-era-of-wi-fi-6-an-essential-review/"><u>How the Netgear Nighthawk AX8 Mesh Range Extender Shapes Up in the Era of Wi-Fi 6 – An Essential Review</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-fix-speaker-distortion-on-windows-117-a-step-by-step-guide/"><u>How to Fix Speaker Distortion on Windows 11/7: A Step-by-Step Guide</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/passos-essenciais-para-aplicacao-de-maquiagem-fotografica-tecnicas-do-melhor-visualizador-profissional/"><u>Passos Essenciais Para Aplicação De Maquiagem Fotográfica: Técnicas Do Melhor Visualizador Profissional</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/say-it-like-an-aussie-quick-lessons/"><u>Say It Like an Aussie: Quick Lessons</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ideal-pocket-wi-fi-hotspot-explore-the-world-with-tp-links-wr902-ac-travel-router/"><u>The Ideal Pocket Wi-Fi Hotspot: Explore the World with TP-Link's WR902 AC Travel Router</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-transformed-amazon-echo-dot-gen-4-review-an-overview-of-upgrades-and-aesthetics/"><u>The Transformed Amazon Echo Dot Gen 4 Review: An Overview of Upgrades and Aesthetics</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-convert-mts-for-redmi-12-5g-by-aiseesoft-video-converter-play-mts-on-android/"><u>The way to convert MTS for Redmi 12 5G</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-rechargeable-battery-chargers-the-ultimate-guide/"><u>Top-Rated Rechargeable Battery Chargers: The Ultimate Guide</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-vivo-y200e-5g-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Vivo Y200e 5G FRP Bypass</u></a></li>
 </ul></div>
 

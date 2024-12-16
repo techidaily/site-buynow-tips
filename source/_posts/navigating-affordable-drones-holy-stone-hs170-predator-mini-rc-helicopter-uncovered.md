@@ -1,7 +1,7 @@
 ---
 title: Navigating Affordable Drones - Holy Stone HS170 Predator Mini RC Helicopter Uncovered
-date: 2024-12-04T01:31:10.597Z
-updated: 2024-12-10T11:49:48.635Z
+date: 2024-12-12T17:00:49.835Z
+updated: 2024-12-16T16:30:56.518Z
 categories:
   - BestProducts
 description: This Article Describes Navigating Affordable Drones - Holy Stone HS170 Predator Mini RC Helicopter Uncovered
@@ -14,7 +14,7 @@ thumbnail: https://www.lifewire.com/thmb/QZz-CxdzNsxSs74LM7PrAw1PBmA=/400x300/fi
 3.8
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Escort Passport S55
@@ -22,7 +22,7 @@ thumbnail: https://www.lifewire.com/thmb/QZz-CxdzNsxSs74LM7PrAw1PBmA=/400x300/fi
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
@@ -44,6 +44,10 @@ Lifewire / Todd Braylor
 [View On Amazon $280](https://www.amazon.com/dp/B019HF60EI/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7CB019HF60EI) [View On Walmart $140](https://www.walmart.com/ip/Escort-Passport-S55-High-Performance-Pro-Radar-and-Laser-Detector-w-DSP/49140972)
 
 3.8
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Escort Passport S55
 
@@ -70,6 +74,10 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -86,10 +94,6 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Range: Impressive detection**
 
  The Passport S55 features Enhanced Radar Protection that delivers long-distance range for laser and radar bands, including K and Ka bands, widely used microwave frequencies for police radar guns. It reliably delivers on its promise of long-distance sensitivity. While testing the S55 in Highway mode I received Ka-band alerts over a mile and a half out from where I approached a highway patrol parked on the median of the interstate. This range was on par with much more expensive models.
@@ -104,15 +108,15 @@ Lifewire / Todd Braylor
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: You get what you pay for**
 
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
@@ -125,10 +129,6 @@ Lifewire / Todd Braylor
  **A basic radar detector that's ideal for beginners or anyone on a budget.**
 
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -159,18 +159,14 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ssential-banner-design-rules-for-top-youtube-channels-for-2024/"><u>[New] Essential Banner Design Rules for Top YouTube Channels for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-lost-legacies-found-revelations-from-the-canon-of-classical-works/"><u>[New] In 2024, Lost Legacies Found Revelations From the Canon of Classical Works</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-preparing-to-engage-in-googles-video-meetings-for-2024/"><u>[New] Preparing to Engage in Google's Video Meetings for 2024</u></a></li>
-<li><a href="https://discover-data.techidaily.com/comprehensive-instructional-post-disabling-iphone-contact-exchange-features/"><u>Comprehensive Instructional Post: Disabling iPhone Contact Exchange Features</u></a></li>
-<li><a href="https://techtrends.techidaily.com/grundliche-anleitung-zur-dvd-in-avi-konvertierung-best-practices-und-tools-des-jahres-2023/"><u>Gründliche Anleitung Zur DVD in AVI Konvertierung: Best Practices Und Tools Des Jahres 2023</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-do-realme-c67-5g-screen-sharing-drfone-by-drfone-android/"><u>How To Do Realme C67 5G Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/outdoor-adventures-upgraded-with-powerful-romer-charge-capable-spotlight-review/"><u>Outdoor Adventures Upgraded with Powerful Romer Charge-Capable Spotlight Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/practical-guide-using-the-versatile-msi-pro-mp161e2-portable-display/"><u>Practical Guide: Using the Versatile MSI Pro MP161E2 Portable Display</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/propel-your-device-into-the-future-win7-to-10-update-strategy/"><u>Propel Your Device Into the Future: Win7 to 10 Update Strategy</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/quick-guide-on-the-go-testing-amazon-basics-portable-tablet-support-system/"><u>Quick Guide on the Go: Testing Amazon Basics' Portable Tablet Support System</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/razer-blade-stealth-13-analysis-next-level-enhancements-in-sleek-laptop-design/"><u>Razer Blade Stealth 13 Analysis: Next-Level Enhancements in Sleek Laptop Design</u></a></li>
-<li><a href="https://fox-pages.techidaily.com/step-by-step-tutorial-safeguard-phone-numbers-and-emails-by-transferring-contacts-to-google-drive-latest-version/"><u>Step-by-Step Tutorial: Safeguard Phone Numbers and Emails by Transferring Contacts to Google Drive (Latest Version)</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1722995701230-tackle-steams-error-code-130-head-on-with-proven-fixes-get-back-to-gaming-now/"><u>Tackle Steam's Error Code 130 Head-On with Proven Fixes - Get Back to Gaming Now</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-androids-facetime-essentials-explained/"><u>2024 Approved Android's FaceTime Essentials Explained</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/2024-approved-crafting-seamless-tiktok-videos-through-stitching/"><u>2024 Approved Crafting Seamless TikTok Videos Through Stitching</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/alienware-aurora-r7-examined-exceptional-power-meets-high-expense/"><u>Alienware Aurora R7 Examined: Exceptional Power Meets High Expense</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/asus-vivobook-11-analysis-portable-and-economical-versatile-computer/"><u>Asus Vivobook 11 Analysis: Portable & Economical Versatile Computer</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/discover-the-ultimate-holiday-shopping-list-scoring-amazing-discounts-on-apple-devices-smart-tvs-pcs-and-beyond-get-insights/"><u>Discover the Ultimate Holiday Shopping List: Scoring Amazing Discounts on Apple Devices, Smart TVs, PCs, and Beyond | Get Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-disarray-of-chromeos-in-pixel-slate-critique/"><u>Exploring the Disarray of ChromeOS in Pixel Slate Critique</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/make-money-with-facebook-a-practical-roadmap/"><u>Make Money with Facebook A Practical Roadmap</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximizing-productivity-and-health-how-the-cubefit-terramat-keeps-you-fit-while-stationary/"><u>Maximizing Productivity and Health: How the CubeFit TerraMat Keeps You Fit While Stationary</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/transform-your-audio-files-into-mp3-with-easy-steps-expert-advice-by-yl-computing/"><u>Transform Your Audio Files Into MP3 with Easy Steps - Expert Advice by YL Computing</u></a></li>
 </ul></div>
 

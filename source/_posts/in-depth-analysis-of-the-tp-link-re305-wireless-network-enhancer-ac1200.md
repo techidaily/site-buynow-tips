@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of the TP-Link RE305 Wireless Network Enhancer (AC1200)
-date: 2024-12-04T17:22:28.745Z
-updated: 2024-12-10T00:52:38.183Z
+date: 2024-12-10T16:04:05.100Z
+updated: 2024-12-16T17:45:28.612Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of the TP-Link RE305 Wireless Network Enhancer (AC1200)
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/u5Qf7KbfeDnZm8gfCxaxy8baBY0=/400x300/fi
 ## TP-Link RE305 AC1200 Wi-Fi Range Extender
 
 ![TP-Link AC1200 Wi-Fi Range Extender RE305](https://www.lifewire.com/thmb/JNtLTx9_CWWq4Wy4WH2D2pMI1qw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4LW4043312-0cb211cf35c746879e5136b3f9d62b63.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Claire Cohen
 
@@ -37,12 +41,16 @@ Lifewire / Claire Cohen
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## TP-Link RE305 AC1200 Wi-Fi Range Extender
 
 ![TP-Link AC1200 Wi-Fi Range Extender RE305](https://www.lifewire.com/thmb/C8f1R4cMjb3MUZ1ViPdvQ67Q7tE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4LW4043312-0cb211cf35c746879e5136b3f9d62b63.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Claire Cohen
 
@@ -87,10 +95,6 @@ Lifewire / Claire Cohen
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/PS8-Iywv5MsnOo99Fir-jNOiPF8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-4-5c924206c9e77c0001ff0bb8.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Claire Cohen
 
  You'll create a password, let the device scan your network for an applicable router, and then enter the SSID and password to your current wireless network from there. There are options to change the extender network’s SSID and password if you so choose, but otherwise, it’ll remain the same as your default network. Once completed, the 2.4 GHz and/or 5GHz lights on the device should come on, depending on[your router's functionality](https://www.lifewire.com/what-is-a-router-2618162) . The entire process from unboxing to surfing the web took about 7 minutes.
@@ -109,6 +113,10 @@ Lifewire / Claire Cohen
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/Lyz1QcuQDPYlUp5pPBJiL0YKSag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-2-5c9241dcc9e77c0001a92785.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Claire Cohen
 
 ## **Software: Clean and easy to understand**
@@ -117,21 +125,17 @@ Lifewire / Claire Cohen
 
  It's a bit bereft of some functionality for veteran extender users who may want to fiddle with settings and skip the "easy mode" setup, but it does its job particularly well. It even includes a[QR code](https://www.lifewire.com/scan-qr-codes-on-smartphone-4154658) to scan for users to download the wireless management app straight from the setup page. It doesn't take any real doing to reach this website either, and can be accessed at any time from the network.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: A deal at any price**
 
  At a list price of $59.99, the RE305 is a fantastic deal, considering it's typically on sale for much cheaper, often $10 to $15 less than retail. It isn't TP-Link's lowest-end option, but the performance and speeds offered for the price are certainly more than your money's worth, especially if you live in a larger home and pay for higher internet speeds. It’s important to keep in mind that it won’t include all the features you’ll get with pricier extenders like multiple ethernet ports or additional antennas, but this basic setup is just about all the average user needs, anyway.
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/bG-oXoYxR83gVSUH4vzz37hfYxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-1-5c92424b46e0fb000172f127.jpg)
 
- Lifewire / Claire Cohen
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Claire Cohen
 
 ## **Competition: More of the same**
 
@@ -144,10 +148,6 @@ Lifewire / Claire Cohen
 **A no-frills option for smaller homes.**
 
  The TP-Link AC1200 Wi-Fi Range Extender RE305 is a no-frills extender with supports dual-band Wi-Fi support and an Ethernet port for wired connectivity. It won’t fare well in homes beyond 2,000 square feet, but it's a value-priced extender that can be relied on at shorter ranges.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -182,16 +182,16 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-enhance-igtv-posts-with-best-video-edit-apps-for-2024/"><u>[New] Enhance IGTV Posts with Best Video Edit Apps for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-decoding-youtubes-legal-framework-for-video-creators/"><u>[New] In 2024, Decoding YouTube's Legal Framework for Video Creators</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-unveiling-content-wizards-streamlined-steps-to-launch-channels-via-mobile-apps/"><u>[Updated] 2024 Approved Unveiling Content Wizards Streamlined Steps to Launch Channels via Mobile Apps</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-turning-viewers-into-valuables-a-creators-guide-to-youtube-monetization/"><u>2024 Approved Turning Viewers Into Valuables A Creator’s Guide to YouTube Monetization</u></a></li>
-<li><a href="https://win-great.techidaily.com/resolving-common-issues-with-windows-control-panel-a-step-by-step-guide-tips-and-strategies-by-yl-computing/"><u>Resolving Common Issues with Windows Control Panel: A Step-by-Step Guide - Tips & Strategies by YL Computing</u></a></li>
-<li><a href="https://win11.techidaily.com/reviving-your-notepad-on-windows-quick-fixes-guide/"><u>Reviving Your Notepad on Windows: Quick Fixes Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/surviving-blackouts-in-esports-apgs-top-picks-for-a-secure-and-stable-pc-power-source/"><u>Surviving Blackouts in Esports: APG's Top Picks for a Secure and Stable PC Power Source</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-aphaca-bt6-groovy-a-detailed-look-at-the-best-wireless-fm-transmitter-with-bluetooth-technology/"><u>The Aphaca BT6 Groovy? - A Detailed Look at the Best Wireless FM Transmitter with Bluetooth Technology</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-rexing-v1-dashcam-balancing-cost-concealment-and-trustworthiness-your-comprehensive-review/"><u>The Rexing V1 DashCam: Balancing Cost, Concealment & Trustworthiness – Your Comprehensive Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-tp-link-deo-p9-mesh-wifi-system-features-performance-and-ease-of-use-revealed/"><u>The Ultimate Guide to the TP-LInk Deo P9 Mesh WiFi System: Features, Performance, & Ease of Use Revealed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-showdown-in-depth-analysis-of-lg-gram-17s-stellar-speed-and-portability/"><u>The Ultimate Showdown: In-Depth Analysis of LG Gram 17'S Stellar Speed & Portability</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-reducing-decibels-smoothly-with-advanced-mixing-tools-for-2024/"><u>[New] Reducing Decibels Smoothly with Advanced Mixing Tools for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-top-5-methods-to-record-high-quality-audio-on-windows/"><u>[New] Top 5 Methods to Record High-Quality Audio on Windows</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-embark-on-a-wanderlust-adventure-becoming-a-professional-travel-vlogger/"><u>[Updated] In 2024, Embark on a Wanderlust Adventure Becoming A Professional Travel Vlogger</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-mastering-windows-identifying-top-5-cutting-tools/"><u>[Updated] Mastering Windows Identifying Top 5 Cutting Tools</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-latest-in-wearables-why-apple-watch-series-6-still-reigns-supreme-despite-minor-tweaks/"><u>Exploring the Latest in Wearables: Why Apple Watch Series 6 Still Reigns Supreme Despite Minor Tweaks</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-the-vcruntime1dle140dll-cannot-find-error-on-windows-step-by-step-solutions/"><u>Fixing the 'VCRUNTIME1ˈdle'140.dll Cannot Find Error on Windows: Step-by-Step Solutions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/gadgetgurus-ultimate-review-of-noco-genius-boost-pro-does-the-89month-get-you-what-it-promises-in-audio-magic-techtalk-314-characters/"><u>GadgetGuru's Ultimate Review of NoCo Genius Boost Pro - Does the $89/Month Get You What It Promises in Audio Magic? | TechTalk 🎶(314 Characters)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/master-the-art-of-coding-while-gaming-in-djis-innovative-robomaster-s1-tank-drone-review/"><u>Master the Art of Coding While Gaming in DJI's Innovative RoboMaster S1 Tank Drone Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-buying-the-right-device-roku-or-fire-tv-stick-explored/"><u>The Ultimate Guide to Buying the Right Device: Roku or Fire TV Stick Explored</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-toshibe-55lf711u20-smart-tv-a-must-have-for-amazon-prime-users/"><u>The Ultimate Guide to the Toshibe 55LF711U20 Smart TV - A Must-Have for Amazon Prime Users</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-correcting-iphoneipad-detection-failures-in-icue/"><u>Troubleshooting Guide: Correcting iPhone/iPad Detection Failures in ICUE</u></a></li>
 </ul></div>
 

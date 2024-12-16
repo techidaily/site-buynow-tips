@@ -1,7 +1,7 @@
 ---
 title: 5 Important Points for Buyers of Previously Owned Apple iPads
-date: 2024-12-05T11:55:07.855Z
-updated: 2024-12-09T22:25:48.758Z
+date: 2024-12-10T17:01:56.705Z
+updated: 2024-12-16T16:25:54.215Z
 categories:
   - BestProducts
 description: This Article Describes 5 Important Points for Buyers of Previously Owned Apple iPads
@@ -14,16 +14,12 @@ thumbnail: https://thmb.techidaily.com/b5dfde40e2a9ad5275b840b5f0fbb161aac4de7d7
 3.8
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/JA3JlwOuidCKxo4M92FWCfYUoI4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -44,13 +40,13 @@ Lifewire / Kelsey Simon
 
 3.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/8XGs9qzQ6hLIBySEKXEvBMfEkq4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -82,10 +78,6 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Plot: A huge world with loads to explore**
 
  First, let’s just take a moment to mention that this review covers The Elder Scrolls V: Skyrim―a game that was originally released in November of 2011 for PC, Xbox 360, and PlayStation 3\. That’s right, the game is now over seven years old. In 2016, Skyrim released for PlayStation 4 and Xbox One. They even released a VR version of the game last year, shortly after releasing the Switch version.
@@ -105,10 +97,6 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/1fxH7ty_kqxpugJDk2tIQndKvI0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546078-6bdc67e56311473f9c1edeab00d2caa5.jpg)
 
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Gameplay: Not as smooth as on other platforms**
 
@@ -134,10 +122,6 @@ Lifewire / Kelsey Simon
 
  The graphics in Skyrim aren’t awful, but they haven't progressed much since 2011\. If you’ve played any other version of Skyrim, you can overlook it, simply because you know what you’re getting into. Bethesda attempted to make Skyrim look realistic, likely in their desire to give you a fully immersive experience. But these days, Skyrim’s graphics just aren’t as realistic as what other, more recent games have accomplished. In places, the mountains look blocky and the grass a little patchy. Character’s faces sometimes seem deeply sunken around the eyes, with the skin looking more like leather than flesh. It’s not that the graphics are overly bad, they’re just not as good as what you can get with better hardware on the PC.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Platform: Take Skyrim on the go**
 
  Considering The Elder Scrolls V: Skyrim is available on so many other devices, it raises the question of whether or not it’s worth getting for the Switch. First, let’s talk about the negatives. We mentioned our issues with the controls earlier. If you're used to playing the game with a mouse and keyboard, the controls on the Switch just aren't as easy to use.
@@ -150,6 +134,10 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/Iik6f_7RIRMWo5R6zGYxgGeL4n0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546076-8fb741faa7144fa6bafe386d2b7d8296.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 ## **Price: A tad expensive**
@@ -159,6 +147,10 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Other action RPGs**
 
@@ -170,11 +162,19 @@ Lifewire / Kelsey Simon
 
  Even though The Elder Scrolls V: Skyrim is a great game and the Switch is an amazing platform, our advice is only to buy Skyrim for the Switch if you’re looking to play on the go. Otherwise, we’d suggest purchasing Skyrim for the PC, where you’ll really be able to enjoy superior graphics and customization options.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [The Legend of Zelda: Breath of the Wild](https://www.lifewire.com/the-legend-of-zelda-breath-of-the-wild-review-4685759)
 * [Mario Kart 8 Deluxe](https://www.lifewire.com/mario-kart-8-deluxe-review-4688951)
 * [Splatoon 2](https://www.lifewire.com/splatoon-2-review-4688940)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -198,15 +198,22 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-critical-selection-of-1-5-best-snippers-for-windows/"><u>[Updated] 2024 Approved Critical Selection of #1-5 Best Snippers for WINDOWS</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-the-quick-guide-to-mobile-devices-becoming-virtual-reality-hubs/"><u>2024 Approved The Quick Guide to Mobile Devices Becoming Virtual Reality Hubs</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/2024s-leading-portable-wi-fi-routers-for-on-the-go-connectivity/"><u>2024'S Leading Portable Wi-Fi Routers for On-the-Go Connectivity</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/choosing-your-console-a-review-of-the-nintendo-switch-lite-and-oled-variants/"><u>Choosing Your Console: A Review of the Nintendo Switch Lite and OLED Variants</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/compare-and-contrast-what-sets-echo-pop-apart-from-echo-dot/"><u>Compare & Contrast: What Sets Echo Pop Apart From Echo Dot?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comparing-apple-laptops-the-key-distinctions-between-macbook-air-and-macbook-pro/"><u>Comparing Apple Laptops: The Key Distinctions Between MacBook Air and MacBook Pro</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/snapchat-and-skype-meet-their-matches-an-ai-review/"><u>Snapchat and Skype Meet Their Matches: An AI Review</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/understanding-wifi-protocols-a-comprehensive-guide-to-80211be-ax-ac-bgn-and-a/"><u>Understanding WiFi Protocols: A Comprehensive Guide to 802.11Be, Ax, Ac, B/G/N & A</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-generating-the-nut-button-meme/"><u>Updated 2024 Approved Generating the Nut Button Meme</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/your-go-to-guide-10-best-public-domain-image-resources/"><u>Your Go-To Guide 10 Best Public Domain Image Resources</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-top-picks-essential-products-every-entrepreneur-must-own/"><u>[New] 2024 Approved Top Picks Essential Products Every Entrepreneur Must Own</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-short-sensation-keywords-for-enhancing-video-shows-virality/"><u>[Updated] 2024 Approved Short Sensation Keywords for Enhancing Video Shows' Virality</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-achieving-professional-hdr-images-with-adobe-ps/"><u>2024 Approved Achieving Professional HDR Images with Adobe PS</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-seamless-integration-getting-snapchat-on-macos/"><u>2024 Approved Seamless Integration Getting Snapchat on macOS</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-closer-look-at-oppression-in-tropico-6-a-review-of-political-intrigue-on-a-dream-island/"><u>A Closer Look at Oppression in Tropico 6: A Review of Political Intrigue on a Dream Island</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/crucial-aspects-navigating-the-world-of-dash-cam-purchases/"><u>Crucial Aspects: Navigating the World of Dash Cam Purchases</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/exclusive-insiders-pick-best-open-world-games/"><u>Exclusive Insider's Pick Best Open World Games</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-performance-and-features-professional-review-of-the-openwrt-firmware-on-the-linksys-wrt1900acs-router/"><u>Exploring Performance and Features: Professional Review of the OpenWRT Firmware on the Linksys WRT1900ACS Router</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-top-tier-tech-marvel-a-review-on-asus-zephyrus-g1-groper-no-compromises-here/"><u>Exploring the Top-Tier Tech Marvel - A Review on Asus Zephyrus G1 Groper: No Compromises Here</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-xs-to-other-iphone-15-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone XS to other iPhone 15 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-the-best-funny-fictional-frequencies/"><u>In 2024, The Best Funny Fictional Frequencies</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/locate-and-choose-from-leading-phone-retailers-in-your-area/"><u>Locate and Choose From Leading Phone Retailers in Your Area</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-online-destinations-to-find-your-ideal-television-screen/"><u>Navigating Online Destinations to Find Your Ideal Television Screen</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/k-vs-youtube-shorts-best-platform-for-individual-use-for-2024/"><u>TikTok vs YouTube Shorts Best Platform for Individual Use for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/titaniumbass-noise-isolation-earplug-tests/"><u>TitaniumBass Noise Isolation Earplug Tests</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-notch-bargains-unmissable-discounts-on-tribit-audio-devices-during-prime-shopping-days/"><u>Top-Notch Bargains: Unmissable Discounts on Tribit Audio Devices During Prime Shopping Days</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unlock-the-power-of-narration-with-chatgpt-a-comprehensive-guide-to-excellence/"><u>Unlock the Power of Narration with ChatGPT: A Comprehensive Guide to Excellence</u></a></li>
 </ul></div>
 

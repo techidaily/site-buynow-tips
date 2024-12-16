@@ -1,7 +1,7 @@
 ---
 title: Unboxing and Testing the Ultimate Tablet - Samsung Galaxy Tab S^4 Review
-date: 2024-08-09T00:56:02.533Z
-updated: 2024-08-10T00:56:02.533Z
+date: 2024-12-09T17:40:26.072Z
+updated: 2024-12-16T17:27:30.654Z
 categories:
   - BestProducts
 description: This Article Describes Unboxing and Testing the Ultimate Tablet - Samsung Galaxy Tab S^4 Review
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/SKBzbW3M9cP9PJV_qf5PRLUfhPo=/400x300/fi
 ## Unboxing Fortnite Season XLVII: The Most Fun and Engaging Update Yet
 
 4.8
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Epic Games Fortnite Battle Royale
 
@@ -41,9 +45,6 @@ thumbnail: https://www.lifewire.com/thmb/SKBzbW3M9cP9PJV_qf5PRLUfhPo=/400x300/fi
 
 4.8
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Epic Games Fortnite Battle Royale
 
 ![Fortnite Battle Royale](https://www.lifewire.com/thmb/yKnzys72tFvgGQZW2fK7TCAspSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fortnite_Battle-Royale_Standard-Mode_HeroSquare-2f7eb4d812104cb290c513cb5db717fd.jpg)
@@ -73,6 +74,10 @@ thumbnail: https://www.lifewire.com/thmb/SKBzbW3M9cP9PJV_qf5PRLUfhPo=/400x300/fi
 
 ![Fortnite Battle Royale](https://www.lifewire.com/thmb/Z5kydB0kP2A67yJxqmRGCP6KuT8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fortnite_BattleRoyale_StandardMode_04-f788a639837845a9aead0db474cbc72d.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
 ## **Plot: None, but it’s better that way**
@@ -81,9 +86,6 @@ thumbnail: https://www.lifewire.com/thmb/SKBzbW3M9cP9PJV_qf5PRLUfhPo=/400x300/fi
 
  These include new explorable areas, changes to existing areas, weapon buffs, and new in-game mechanics, such as fishing or the addition of boats. Past seasons have included airplanes, snowboards, mechs and more—so who knows what future seasons will hold. The Battle Royale mode can become a little repetitive over time, but that's why new seasons are important. They change up the pace of the game and reinvigorate the interest of players. The one guarantee is that each new season brings change, and with the dawn of Chapter 2, it’s clear that Epic Games hasn’t lost their touch for re-imagining their game.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Fortnite Battle Royale](https://www.lifewire.com/thmb/u0p3ac203yN2fyC3DvKLcXMqdAY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fornite_BattleRoyale_StandardMode_02-8da4487c33dc4aed81eabc862664a1f8.jpg)
 
  Lifewire / Emily Isaacs
@@ -98,25 +100,20 @@ thumbnail: https://www.lifewire.com/thmb/SKBzbW3M9cP9PJV_qf5PRLUfhPo=/400x300/fi
 
  The storm is an ever-encroaching threat that closes over set intervals and deals damage that increases over time to players trapped within its boundaries, forcing everyone closer together as the safe zone shrinks. The last team standing will claim the Victory Royale for themselves.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Graphics: Good, campy fun**
 
  Fortnite’s graphics are campy, oversaturated, and brightly-colored fun making them a treat to look at. Unlike competitors such as PUBG or Apex Legends, Fortnite’s graphics trade realism for cartoonish, exaggerated features. When combined with the emotes and skins earned throughout the game, these can create some very entertaining in-game visuals.
 
  It’s worth noting that DirectX 12 support is officially here for PC users, which means that people playing on higher quality graphics cards should see a more consistent gameplay experience thanks to an increased and more stable frame rate. If your system is older, you can play on reduced settings, but it does make the picture choppy and difficult to follow. It’ll get the job done, but we wouldn’t recommend it.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ![Fortnite Battle Royale](https://www.lifewire.com/thmb/1EGFvaMlK-nV8KKnng7WcI-X7iI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fortnite_BattleRoyale_StandardMode_03-aff88589c9a04d05a9663f5a75975706.jpg)
 
  Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Building Mechanics: Build, build and build some more**
 
  A battle royale it may be, but Fortnite’s unique building mechanics truly set the game apart and turn the heat up a notch. All that harvesting you’re doing will pay off, because for every 10 stacks of a material such as wood or stone you have, you can build a structure. Be aware that durability and build time will vary based on the selected material, so take time to experiment and find what techniques work best for you.
@@ -124,6 +121,10 @@ thumbnail: https://www.lifewire.com/thmb/SKBzbW3M9cP9PJV_qf5PRLUfhPo=/400x300/fi
  Building is as important as shooting, so it’s essential to learn the basics. Players can build floors, stairs, roofs, and walls, which can be used either in defense or, for the imaginative player, in offense. These structures help players gain the higher ground on the battlefield, access hard-to-reach map locations, and buy time for healing items or shielding potions. It seems counterintuitive to be building anything in a battle royale game, but within moments structures will cobble itself together before a player’s eyes.
 
  For the more casual player, these building controls can be found on the keyboard, but binding the building keys to unused mouse buttons can quickly become an asset on the battlefield where every second counts. A seamless defense can be the difference between victory and defeat.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Seasons: The down and dirty on the Battle Pass**
 
@@ -137,11 +138,16 @@ thumbnail: https://www.lifewire.com/thmb/SKBzbW3M9cP9PJV_qf5PRLUfhPo=/400x300/fi
 
 ![Fortnite Battle Royale](https://www.lifewire.com/thmb/Ock_qOb167XfWuEIuPpuFC0DpUQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fortnite_Battle-Royale_Standard-Mode_05-95fe04b07a934bdbbcf8ae58496c736c.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Modes: Limited-time and alternative game modes for variety**
 
  As if the game mechanics and the cosmetics weren’t thrilling enough, Epic Games takes the shake-ups a step further by offering alternative modes, limited-time game modes, and events with unique rewards.
@@ -150,9 +156,6 @@ thumbnail: https://www.lifewire.com/thmb/SKBzbW3M9cP9PJV_qf5PRLUfhPo=/400x300/fi
 
  If you love earning a variety of rewards, are intrigued by building mechanics, or just appreciate a casual game you can pick up and play, Fortnite’s Battle Royale is the clear winner.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Free to play**
 
  The only decision players need to make is whether or not they want to pick up the Battle Pass, which retails for 950 V-Bucks ($9.50). Otherwise,[Fortnite Battle Royale](https://www.lifewire.com/game-play-and-streaming-4781449) is free and available on almost every major platform: PC/Mac, Xbox One, PS4, iOS, Android, and Nintendo Switch. What’s better—cross-platform gameplay is also supported, so you can pick up and play with friends anywhere, anytime.
@@ -175,9 +178,6 @@ thumbnail: https://www.lifewire.com/thmb/SKBzbW3M9cP9PJV_qf5PRLUfhPo=/400x300/fi
 
  Fortnite has taken the world by storm, and with over 250 million players worldwide, it’s easy to see why it’s so beloved. If you’re a fan of campy fun, vibrant graphics, third-person shooters, or battle royale games, Fortnite’s Battle Royale is well worth a look—and best of all, it is free to play. Combined with Epic Games’ continuous ability to reinvent Fortnite season after season, Fortnite Battle Royale a sure-fire winner in our books.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Fortnite Battle Royale
@@ -190,14 +190,11 @@ thumbnail: https://www.lifewire.com/thmb/SKBzbW3M9cP9PJV_qf5PRLUfhPo=/400x300/fi
 * Platforms  PC/Mac, Xbox One, PS4, iOS, Android, and Nintendo Switch
 * Languages Supported  English, French, German, Italian, Japanese, Korean, Polish, Portuguese (Brazil), Russian, Spanish (Latin America, Spain), Turkish
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -205,3 +202,27 @@ thumbnail: https://www.lifewire.com/thmb/SKBzbW3M9cP9PJV_qf5PRLUfhPo=/400x300/fi
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-aiming-for-the-stars-select-7-top-shooter-experiences-for-2024/"><u>[Updated] Aiming for the Stars Select 7 Top Shooter Experiences for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-green-screen-ease-crafting-effective-youtube-ctas/"><u>[Updated] In 2024, Green Screen Ease Crafting Effective YouTube CTAs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-mastering-youtube-seo-boost-your-video-popularity/"><u>2024 Approved Mastering YouTube SEO Boost Your Video Popularity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-powerhouse-an-examination-of-nikon-sb-700/"><u>Affordable Powerhouse: An Examination of Nikon SB-700</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/assessing-my-needs-versus-the-offerings-in-ios-17/"><u>Assessing My Needs Versus the Offerings in iOS 17</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/asus-rt-ac68u-test-drive-fast-and-safe-5g-home-networking/"><u>Asus RT-AC68U Test Drive: Fast & Safe 5G Home Networking</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/before-you-invest-the-five-key-points-for-buying-used-ipads-evaluated/"><u>Before You Invest: The Five Key Points for Buying Used iPads Evaluated</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-apple-watch-series-an-in-depth-evaluation/"><u>Budget-Friendly Apple Watch Series - An In-Depth Evaluation</u></a></li>
+<li><a href="https://fox-that.techidaily.com/cant-track-heres-what-to-do-when-your-device-appears-offline-on-find-my-iphone/"><u>Can't Track? Here's What to Do When Your Device Appears Offline on Find My iPhone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-the-playstation-5-slim-and-original-which-ones-right-for-you/"><u>Comparing the PlayStation 5 Slim and Original: Which One's Right for You?</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-not-responding-errors-in-minecraft-on-your-computer/"><u>Fixing 'Not Responding' Errors in Minecraft on Your Computer</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-amplify-your-tiktok-impact-with-these-30-captivating-nicknames/"><u>In 2024, Amplify Your TikTok Impact with These 30 Captivating Nicknames</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-powerhouse-of-marketing-top-8-benefits-for-business-pages-vs-individuals/"><u>The Powerhouse of Marketing: Top 8 Benefits for Business Pages vs Individuals</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/transform-education-with-confidence-explore-8-reasons-why-teachers-should-embrace-ai-not-fear-it/"><u>Transform Education with Confidence - Explore 8 Reasons Why Teachers Should Embrace AI, Not Fear It</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/upgrading-your-gpu-a-step-by-step-guide/"><u>Upgrading Your GPU: A Step-by-Step Guide</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/win-the-ultimate-prize-exclusive-wonderfox-pro-hd-ripper-for-free-this-summer-sweepstakes/"><u>Win the Ultimate Prize – Exclusive WonderFox Pro HD Ripper for Free This Summer Sweepstakes!</u></a></li>
+<li><a href="https://common-error.techidaily.com/windows-10-restarts-uninvited/"><u>Windows 10 Restarts Uninvited</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/x-153/"><u>X=-15/3</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/your-guide-to-premier-savings-on-electronics-during-amazons-2024-prime-day-event/"><u>Your Guide to Premier Savings on Electronics During Amazon's 2024 Prime Day Event</u></a></li>
+</ul></div>
+

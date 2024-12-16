@@ -1,7 +1,7 @@
 ---
 title: "Expert Evaluation: Unveiling the Intelligence of Ring Video Doorbell Pro"
-date: 2024-12-03T13:06:57.883Z
-updated: 2024-12-10T05:48:17.942Z
+date: 2024-12-10T16:31:09.948Z
+updated: 2024-12-16T17:20:17.252Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Evaluation: Unveiling the Intelligence of Ring Video Doorbell Pro"
@@ -13,13 +13,13 @@ thumbnail: https://thmb.techidaily.com/b38051c9d12a2b8d1315fdc2f1d84dde69fd749e0
 
 4.4
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/F035WaL3U8Q-n4fK2WBE6844lMo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -46,7 +46,7 @@ Lifewire / Emily Isaacs
 4.4
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Microsoft Sculpt Ergonomic Keyboard
@@ -87,10 +87,6 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
@@ -98,16 +94,12 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
@@ -124,6 +116,10 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
@@ -148,6 +144,10 @@ Lifewire / Emily Isaacs
  **A secure, mid-priced wireless keyboard with lots of customization options.**
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -179,19 +179,14 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-golden-collection-classic-ringtones-at-your-fingertips/"><u>[New] 2024 Approved Golden Collection Classic Ringtones at Your Fingertips</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-capture-the-world-from-your-mobile-height-for-2024/"><u>[New] Capture the World From Your Mobile Height for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-master-snapchat-essential-strategies-for-snappy-snaps/"><u>[New] In 2024, Master Snapchat Essential Strategies for Snappy Snaps</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-transform-your-content-game-with-creator-studio-insight/"><u>[New] Transform Your Content Game with Creator Studio Insight</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-audiences-delighted-best-editors-to-transform-youtube-shorts/"><u>[Updated] 2024 Approved Audiences Delighted Best Editors to Transform Youtube Shorts</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-navigating-the-essentials-of-av1-coders/"><u>[Updated] 2024 Approved Navigating the Essentials of AV1 Coders</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/complete-guide-to-iphone-notes-recovery-regain-all-deleted-content/"><u>Complete Guide to iPhone Notes Recovery - Regain All Deleted Content</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-itel-a05s-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Itel A05s Back to Operation | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/iphone-clones-meet-the-motorola-one-stunning-style-for-less-money/"><u>IPhone Clones? Meet the Motorola One: Stunning Style for Less Money</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lenovo-tab-m1n-hd-2020-revealed-your-ultimate-guide-to-budget-friendly-web-surfing-and-media-entertainment/"><u>Lenovo Tab M1n HD 2020 Revealed: Your Ultimate Guide to Budget-Friendly Web Surfing and Media Entertainment</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maximize-your-budget-holy-stone-hs170s-predator-mini-revealed-rc-helicopter-for-the-savvy-shopper/"><u>Maximize Your Budget: Holy Stone HS170's Predator Mini Revealed - RC Helicopter for the Savvy Shopper</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/motorolas-moto-g-play-a-closer-look-at-its-extended-battery-life-with-robust-operational-prowess/"><u>Motorola's Moto G Play - A Closer Look at Its Extended Battery Life with Robust Operational Prowess</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-alert-the-monoprice-sketch-pad-delivers-big-features-minimal-cost/"><u>Review Alert! The Monoprice Sketch Pad Delivers Big Features, Minimal Cost</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/sony-ps5-insights-a-game-changing-leap-in-gaming-technology/"><u>Sony PS5 Insights: A Game-Changing Leap in Gaming Technology</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/comparing-image-formats-which-is-superior-png-or-jpeg-quality/"><u>Comparing Image Formats: Which Is Superior - PNG or JPEG Quality?</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/essential-huion-tablet-drivers-free-downloads-for-windows-computers/"><u>Essential Huion Tablet Drivers: Free Downloads for Windows Computers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-samsung-galaxy-tab-s7-the-perfect-choice-for-android-enthusiasts/"><u>Expert Analysis of the Samsung Galaxy Tab S7 - The Perfect Choice for Android Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/high-performance-heat-management-or-costly-overkill-a-review-of-thermaltake-massive-tm-for-laptops/"><u>High-Performance Heat Management or Costly Overkill? A Review of Thermaltake Massive TM for Laptops</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-nokia-c300-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Nokia C300 Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Motorola Edge 2023 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/softwares-evolution-the-art-of-small-tweaks-vs-bold-changes/"><u>Software's Evolution: The Art of Small Tweaks vs Bold Changes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-paradox-of-the-microsoft-surface-go-unpacking-its-attractive-price-tag-and-perplexing-role-conflict/"><u>The Paradox of the Microsoft Surface Go: Unpacking Its Attractive Price Tag and Perplexing Role Conflict.</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-oppo-a78-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Oppo A78? Fixed | Dr.fone</u></a></li>
 </ul></div>
 
