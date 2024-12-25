@@ -1,7 +1,7 @@
 ---
 title: "OnePlus 6T Smartphone Review: Superior Specs for an Unparalleled Price"
-date: 2024-12-13T17:26:12.380Z
-updated: 2024-12-16T16:54:00.368Z
+date: 2024-12-18T16:48:12.548Z
+updated: 2024-12-24T17:50:58.698Z
 categories:
   - BestProducts
 description: "This Article Describes OnePlus 6T Smartphone Review: Superior Specs for an Unparalleled Price"
@@ -37,13 +37,13 @@ Lifewire / Todd Braylor
 
 3.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -66,10 +66,6 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -81,7 +77,7 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easy installation**
@@ -90,11 +86,19 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Range: Impressive detection**
 
  The Passport S55 features Enhanced Radar Protection that delivers long-distance range for laser and radar bands, including K and Ka bands, widely used microwave frequencies for police radar guns. It reliably delivers on its promise of long-distance sensitivity. While testing the S55 in Highway mode I received Ka-band alerts over a mile and a half out from where I approached a highway patrol parked on the median of the interstate. This range was on par with much more expensive models.
 
  It reliably delivers on its promise of long-distance sensitivity.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Not exactly enhanced**
 
@@ -104,15 +108,15 @@ Lifewire / Todd Braylor
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: You get what you pay for**
 
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
@@ -125,10 +129,6 @@ Lifewire / Todd Braylor
  **A basic radar detector that's ideal for beginners or anyone on a budget.**
 
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -159,24 +159,21 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-a-step-by-step-guide-to-including-vimeo-on-instagram/"><u>[Updated] In 2024, A Step-by-Step Guide to Including Vimeo on Instagram</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-linux-screenshot-the-most-acclaimed-applications/"><u>[Updated] In 2024, Linux Screenshot The Most Acclaimed Applications</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-meditative-playlist-top-10-free-tracks-for-serenity/"><u>[Updated] In 2024, Meditative Playlist Top 10 Free Tracks for Serenity</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/avoid-the-hassle-unveiling-the-top-key-reunification-tools-of-2024/"><u>Avoid the Hassle: Unveiling the Top Key Reunification Tools of 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/dealing-with-pdhdll-errors-tips-and-solutions-for-windows-users/"><u>Dealing with Pdh.dll Errors: Tips and Solutions for Windows Users</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-the-insignia-ns-43df710na19-fire-tv-with-alexa-and-4k-capability-without-breaking-your-wallet/"><u>Experience the Insignia NS-43DF710NA19 Fire TV with Alexa & 4K Capability Without Breaking Your Wallet</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-the-lenovo-yoga-a940-in-depth-product-assessment-and-recommendation/"><u>Expert Insights on the Lenovo Yoga A940 – In-Depth Product Assessment and Recommendation</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/fun-meets-functionality-in-the-ddpai-mini3-dashcam-a-refreshing-road-companer/"><u>Fun Meets Functionality in the DDPai Mini3 Dashcam - A Refreshing Road Companer</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-fix-iphone-xr-could-not-be-activatedreached-issue-by-drfone-ios/"><u>How To Fix iPhone XR Could Not Be Activated/Reached Issue</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Realme C67 5G? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-locked-out-of-apple-iphone-se-2020-5-ways-to-get-into-a-locked-apple-iphone-se-2020-drfone-by-drfone-ios/"><u>In 2024, Locked Out of Apple iPhone SE (2020)? 5 Ways to get into a Locked Apple iPhone SE (2020) | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lenovo-ideapad-flex-5-in-depth-review-of-the-latest-2-in-1-laptop/"><u>Lenovo IdeaPad Flex 5: In-Depth Review of the Latest 2-in-1 Laptop</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/linksys-velop-examined-ultimate-insights-into-advanced-mesh-router-technology/"><u>Linksys Velop Examined: Ultimate Insights Into Advanced Mesh Router Technology</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/next-gen-methods-for-breathtaking-android-time-lapses-for-2024/"><u>Next-Gen Methods for Breathtaking Android Time-Lapses for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/the-art-of-iphone-photography-shadow-techniques/"><u>The Art of iPhone Photography Shadow Techniques</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-riding-the-gotrax-gxl-v2-for-commuting-in-urban-spaces/"><u>The Ultimate Guide to Riding the Gotrax GXL V2 for Commuting in Urban Spaces</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-user-friendly-manual-how-to-erase-temporary-internet-files-on-top-browsers/"><u>The User-Friendly Manual: How to Erase Temporary Internet Files on Top Browsers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-keyboard-comfort-grips-the-ultimate-guide-for-2e24/"><u>Top-Rated Keyboard Comfort Grips - The Ultimate Guide for 2E24</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveil-professional-photography-potential-get-yn560iv-now-at-a-savings/"><u>Unveil Professional Photography Potential: Get YN560IV Now at a Savings</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-watch-over-instagrams-friendship-shifts/"><u>[Updated] Watch Over Instagram's Friendship Shifts</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/exploring-superior-security-systems-with-yl-softwares-reviews-and-comparisons/"><u>Exploring Superior Security Systems with YL Software's Reviews & Comparisons</u></a></li>
+<li><a href="https://techidaily.com/how-to-change-display-language-in-windows-7/"><u>How to Change Display Language in Windows 7</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-samsung-galaxy-s23plus-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Samsung Galaxy S23+ Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-crafting-the-ideal-voice-over-soundtrack/"><u>In 2024, Crafting the Ideal Voice Over Soundtrack</u></a></li>
+<li><a href="https://fox-that.techidaily.com/iphone-screen-not-functioning-discover-quick-fixes-here/"><u>Iphone Screen Not Functioning? Discover Quick Fixes Here!</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/resolving-helperdll-unavailable-errors-on-windows-computers-effectively/"><u>Resolving 'Helper.dll Unavailable' Errors on Windows Computers Effectively</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-exercise-monitors/"><u>Top Rated Exercise Monitors</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-halo-bolt-jump-starter-and-portable-charger-top-reviews/"><u>Ultimate Guide to Halo Bolt Jump Starter & Portable Charger - Top Reviews</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unboxing-the-google-pixel-4a-perfect-balance-of-features-and-value/"><u>Unboxing the Google Pixel 4a - Perfect Balance of Features and Value</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlocking-the-secrets-of-elgoog-a-thorough-review-of-the-official-google-mirror-site/"><u>Unlocking the Secrets of elgooG – A Thorough Review of the Official Google Mirror Site</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-performance-and-features-a-deep-dive-into-the-remote-control-ford-galaxy-f-150-truck/"><u>Unveiling Performance & Features: A Deep Dive Into the Remote Control Ford Galaxy F-150 Truck</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-potential-of-apple-books-app-through-a-thorough-review/"><u>Unveiling the Potential of Apple Books App Through a Thorough Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-continuous-activity-tracking-with-fitbit-inspire-hr-a-full-evaluation/"><u>Unveiling the Power of Continuous Activity Tracking with Fitbit Inspire HR - A Full Evaluation</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-combine-videos-without-branding-7-essential-tools-for-2024/"><u>Updated Combine Videos Without Branding 7 Essential Tools for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-realme-11-proplus-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Realme 11 Pro+ Auto Does Not Work | Dr.fone</u></a></li>
 </ul></div>
 

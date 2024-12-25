@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive SML385BTBK Karaoke Machine Analysis: Ultimate User-Friendly & Vibrant Singing Experience"
-date: 2024-12-15T17:47:41.295Z
-updated: 2024-12-16T16:43:48.918Z
+date: 2024-12-17T16:47:39.335Z
+updated: 2024-12-25T10:27:44.798Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive SML385BTBK Karaoke Machine Analysis: Ultimate User-Friendly & Vibrant Singing Experience"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/0c851aeff0505f93ab9210c28e47cf3dc2d613689
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/HYgHMUDMFh7JI98Hj0JMbI2wcpw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -35,6 +39,10 @@ Lifewire / Kelsey Simon
 [View On Amazon](https://www.amazon.com/Techland-Torment-Tides-Numenera-PlayStation-4/dp/B01N2VISUC/?tag=lifewire-onsite-prod-20&ascsubtag=5077302%7Cnac6eb02defc3413da4da5d4ed0dc77ea21%7CB01N2VISUC) [View On Steampowered.com](https://store.steampowered.com/app/272270/Torment%5FTides%5Fof%5FNumenera/) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/torment-tides-of-numenera/141986.html)
 
 2.7
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## inXile Entertainment Torment: Tides of Numenera
 
@@ -65,7 +73,7 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -75,10 +83,6 @@ Lifewire / Kelsey Simon
  I did continue forward, even though I was already disinterested, hoping the game would become more gripping. After the memory room, you’ll wake to another platform where a being tells you you’ve suffered a great injury and they are in your mind. He tries to explain who you are but before he gets too far, you’ll be attacked by something called the Sorrow. Eventually, you’ll wake in the real world, enter the game’s main city, and be able to talk to the wealth of characters living there. You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
 
  You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Gameplay: Dialogue prompts and effort**
 
@@ -100,6 +104,10 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -108,15 +116,7 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Only worth it if you’re keen on the story**
 
@@ -139,7 +139,7 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -165,19 +165,21 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-comprehensible-selection-the-10-affordable-video-conferencing-tools/"><u>[Updated] In 2024, Comprehensible Selection The 10 Affordable Video Conferencing Tools</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-smart-tagging-amplifying-your-youtube-presence/"><u>[Updated] In 2024, Smart Tagging Amplifying Your YouTube Presence</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-pixelpatchwork-android-and-ios-instagram-collage/"><u>[Updated] PixelPatchwork Android & iOS Instagram Collage</u></a></li>
-<li><a href="https://win-bits.techidaily.com/1-eficientes-tecnicas-para-transferir-correos-de-yahoo-mail-a-otros-perfiles/"><u>1. Eficientes Técnicas Para Transferir Correos De Yahoo Mail a Otros Perfiles</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/analyzing-how-the-wii-u-became-a-winning-game-console-choice/"><u>Analyzing How the Wii U Became a Winning Game Console Choice</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/best-lesbian-gay-bisexual-and-transgender-movies-to-binge-watch-on-netflix-in-july-2024/"><u>Best Lesbian, Gay, Bisexual & Transgender Movies to Binge-Watch on Netflix in July 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/capture-more-spend-less-explore-kodak-fz53/"><u>Capture More, Spend Less - Explore Kodak FZ53</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-arlo-video-doorbell-analysis-featuring-a-dual-camera-and-security-alert/"><u>Comprehensive Arlo Video Doorbell Analysis: Featuring a Dual Camera and Security Alert</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/exploring-lyrx-version-14-a-complete-guide-to-the-revamped-karaokenet-platform-video-walkthrough/"><u>Exploring LYRX Version 1.4: A Complete Guide to the Revamped Karaoke.net Platform - Video Walkthrough</u></a></li>
-<li><a href="https://driver-download.techidaily.com/how-to-get-the-latest-canon-tr1620-driver-update-for-your-printer-windows-friendly/"><u>How to Get the Latest Canon TR1620 Driver Update for Your Printer (Windows Friendly)</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/netgear-nighthawk-c7000-an-authoritative-review-for-unparalleled-wi-fi-experience/"><u>Netgear Nighthawk C7000: An Authoritative Review for Unparalleled Wi-Fi Experience</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-top-10-free-video-stabilization-tools-to-smooth-out-your-footage/"><u>New Top 10 Free Video Stabilization Tools to Smooth Out Your Footage</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-of-havit-egpu-and-docking-station-bundle-with-havit-5-fan-cooling-pad-for-optimal-laptop-temperature-control/"><u>Review of HAVIT eGPU & Docking Station Bundle with HAVIT 5-Fan Cooling Pad for Optimal Laptop Temperature Control</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/visual-tray-metrics-reflecting-ram-and-processor-stats/"><u>Visual Tray Metrics: Reflecting RAM and Processor Stats</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-unlocking-full-potential-zdsoft-screen-recorder/"><u>[Updated] 2024 Approved Unlocking Full Potential ZDSoft Screen Recorder</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-harmonizing-your-device-importing-to-inshot-app/"><u>[Updated] In 2024, Harmonizing Your Device Importing to InShot App</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-spotlight-10-anonymous-story-gazers/"><u>[Updated] Spotlight 10 Anonymous Story Gazers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-pixelpop-complete-examination-and-manual-24/"><u>2024 Approved PixelPop Complete Examination & Manual '24</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-top-choice-portable-consoles-for-gamers-on-the-go/"><u>2024'S Top Choice Portable Consoles for Gamers On-the-Go</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-comprehensive-tutorial-for-setting-up-a-nintendo-network-profile-on-nintendo-3ds/"><u>A Comprehensive Tutorial for Setting Up a Nintendo Network Profile on Nintendo 3DS</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/affordable-anc-ankers-innovative-life-q30-sound-review/"><u>Affordable ANC: Anker's Innovative Life Q30 Sound Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-high-speed-wifi-with-tp-link-archer-c9-top-value-router-comparison/"><u>Affordable High-Speed WiFi with TP-Link Archer C9 - Top Value Router Comparison</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/all-in-one-security-solution-comprehensive-arlo-video-doorbell-evaluation/"><u>All-in-One Security Solution: Comprehensive Arlo Video Doorbell Evaluation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/beyond-expectations-an-in-depth-review-of-motorolas-stellar-mid-range-device-the-one-hyper/"><u>Beyond Expectations: An In-Depth Review of Motorola's Stellar Mid-Range Device, The One Hyper</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-dreame-bot-l10-pro-the-smart-mopping-and-vacuuming-robot/"><u>Comprehensive Review of the Dreame Bot L10 Pro: The Smart Mopping and Vacuuming Robot</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cost-vs-benefit-of-replacing-apple-device-batteries/"><u>Cost Vs. Benefit of Replacing Apple Device Batteries</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/low-end-pc-visual-recorders-for-2024/"><u>Low-End PC Visual Recorders for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/optimize-your-android-experience-with-these-top-5-auto-clicker-tools-no-root-access-needed/"><u>Optimize Your Android Experience with These Top 5 Auto-Clicker Tools (No Root Access Needed)</u></a></li>
+<li><a href="https://solve-help.techidaily.com/1726027159690-pc/"><u>PC画面、音声を記録して保存するための総合ガイド</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/tips-for-purging-past-chatgpt-exchanges/"><u>Tips for Purging Past ChatGPT Exchanges</u></a></li>
 </ul></div>
 

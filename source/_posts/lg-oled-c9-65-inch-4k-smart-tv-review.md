@@ -1,7 +1,7 @@
 ---
 title: LG OLED C9 65-Inch 4K Smart TV Review
-date: 2024-12-15T16:10:54.176Z
-updated: 2024-12-16T17:13:00.348Z
+date: 2024-12-20T02:24:17.724Z
+updated: 2024-12-24T17:38:27.753Z
 categories:
   - BestProducts
 description: This Article Describes LG OLED C9 65-Inch 4K Smart TV Review
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/h4mYT7VL-X6RJKwH3PfeLjmFscg=/400x300/fi
 ## Maximize Your Gaming Performance with the HAVIT 5 Laptop Fan Cooler Reviewed Here
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## HAVIT 5 Fan Laptop Cooler
 
@@ -43,6 +47,10 @@ Lifewire / Rebecca Isaacs
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/Oc__n9cXABeKwLweBvavtYWeE9M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_HeroSquare-e793f085fe42447396899e6edb8c57b0.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
 
 [View On Amazon $30](https://www.amazon.com/dp/B0713PHFRW/?tag=lifewire-onsite-prod-20&ascsubtag=5193438%7Cnd13615e1c9e546a090a2f2a2949c313a15%7CB0713PHFRW)
@@ -64,10 +72,6 @@ _Our reviewer already owned this product._
  Back in 2019, I bought my very first gaming laptop, and I’ve been sold on the idea of a portable writing and gaming computer ever since. As much as I love my gaming laptops, both of my models, an Eluktronics and an MSI, both feel like they’re about to catch fire whenever I’m playing a heavy-hitting game like Division or[Destiny 2](https://www.lifewire.com/destiny-2-4158011) .
 
  A couple gaming sessions later, and I realized I needed a[laptop cooling pad](https://www.lifewire.com/best-laptop-cooling-pads-4149823) . After taking a look at various models, I decided to try out the HAVIT 5 Gaming Laptop Cooling Pad. It boasts five fans and an adjustable rollout switch to customize my cooling experience. And it offers anti-slip baffles so my curious cat can't knock it off my laptop. After over a year of use, I still use this almost every day for my gaming needs. Read on for our final verdict, as well as thoughts on its specs.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Design: Looks like a gamer’s cooling pad
 
@@ -93,17 +97,9 @@ Lifewire / Rebecca Isaacs
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/l2nDOOm1dGSmniJBqJPn708DnK8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_03-71babed64c14425184604e4825680aac.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
 
  That’s not to say that this laptop cooling pad doesn’t help cool it down. Since my Eluktronics is getting some much-needed TLC in the shop, I tested the MSI’s internal temps while running[Tropico Six](https://www.lifewire.com/tropico-6-review-5077604) on my laptop. Without the laptop cooling pad, I was running around 187 degrees Fahrenheit. With the cooling pad, it adjusted to around 169 degrees. It’s not much, but it’s enough to make a difference.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Baffles: Adjustable for gaming and typing
 
@@ -115,13 +111,13 @@ Lifewire / Rebecca Isaacs
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/hXjExslBR5KBA1RSMPFlkkvF1uQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_02-f065f40118184391b6f1ba1bffa763bd.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
 
  And, if you’re on-the-go and travelling, the HAVIT 5 also packs quite nicely into a suitcase. Be sure to play it safe like I did and pack it around clothes. But if you need to go across country and want to take your gaming laptop with you, this is a good one that will hold up well in luggage.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Price: Ouch
 
@@ -130,6 +126,10 @@ Lifewire / Rebecca Isaacs
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/lItC7F6Ja8RbBfTaNXh5l9ufFqY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_05-07577b69f7d04de5a7904e798681ba02-6b3615a38d584594b89077eaf51228b2.jpg)
 
 Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## HAVIT 5 vs. Kootak Laptop Cooling Pad
 
@@ -143,15 +143,15 @@ Lifewire / Rebecca Isaacs
 
  It’s not the best out there, but so long as it cools the internal laptop core temperatures by about 20 degrees, it’s a worthy investment. Props go to HAVIT for giving it a roller switch for ultimate adjustability and an LED light that will show how high the fans are blowing. The fans could be stronger, but quieter fans over more power is preferable.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/urban-armor-gear-macbook-pro-case-review-4689954)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -182,19 +182,20 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-unraveling-youtubes-monetization-policy-overhaul/"><u>[New] 2024 Approved Unraveling YouTube’s Monetization Policy Overhaul</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-digital-portraits-proven-the-science-of-social-snap-validation/"><u>[New] In 2024, Digital Portraits Proven The Science of Social Snap Validation</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-preserving-quality-while-quickening-spotify-auditory-experience/"><u>[New] Preserving Quality While Quickening Spotify Auditory Experience</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-beginning-with-tweets-your-new-twitter-journey/"><u>[Updated] Beginning with Tweets Your New Twitter Journey</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-secure-and-store-linkedin-videos-with-these-6-high-quality-apps/"><u>[Updated] Secure and Store LinkedIn Videos with These 6 High-Quality Apps</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-comprehensive-look-at-the-clunky-microsoft-surface-duo-features-vs-flaws/"><u>A Comprehensive Look at the Clunky Microsoft Surface Duo: Features Vs. Flaws</u></a></li>
-<li><a href="https://extra-information.techidaily.com/comparing-core-titles-oculus-htc-vive-and-ps-vr-in-gaming-for-2024/"><u>Comparing Core Titles Oculus, HTC Vive & PS VR in Gaming for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discovering-the-motorola-one-5g-ace-accelerated-5g-speed-and-superior-battery-capacity-analysis/"><u>Discovering the Motorola One 5G Ace - Accelerated 5G Speed & Superior Battery Capacity Analysis.</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-the-value-proposition-of-samsung-galaxy-a2-groovyphone-a-feature-packed-affordable-choice/"><u>Evaluating the Value Proposition of Samsung Galaxy A2 Groovyphone - A Feature-Packed Affordable Choice</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/interrupting-real-time-recording-on-quicktime/"><u>Interrupting Real-Time Recording on QuickTime</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-fitness-trackers-features-and-reviews-compared/"><u>Leading Fitness Trackers : Features and Reviews Compared</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/small-size-big-impact-review-of-the-mp3-clip-jam/"><u>Small Size, Big Impact: Review of the MP3 Clip Jam</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-redmi-k70-by-fonelab-android-recover-video/"><u>The way to get back lost videos from Redmi K70</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-2024-picks-ultimate-gadgets-for-runners-perfect-journey/"><u>Top 2024 Picks: Ultimate Gadgets for Runners' Perfect Journey</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-achieving-seamless-group-discussions-in-google-chat/"><u>[New] Achieving Seamless Group Discussions in Google Chat</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-charting-the-path-to-previous-imagery-a-facebook-centric-guide-for-2024/"><u>[New] Charting the Path to Previous Imagery A Facebook-Centric Guide for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nhancing-youtube-content-via-finalcut-pro-techniques-for-2024/"><u>[New] Enhancing YouTube Content via FinalCut Pro Techniques for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-immersive-play-samsung-vr-classics/"><u>[New] Immersive Play Samsung VR Classics</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/eclipse-antenna-by-clearstream-exceptional-signal-clarity-in-a-user-friendly-design/"><u>Eclipse Antenna by ClearStream: Exceptional Signal Clarity in a User-Friendly Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/effortless-productivity-on-the-go-with-the-hp-stream-11-notebook/"><u>Effortless Productivity on the Go with the HP Stream 11 Notebook</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ensuring-quality-streams-finding-the-best-spot-for-your-ps4-camera/"><u>Ensuring Quality Streams: Finding the Best Spot for Your PS4 Camera</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-2020-samsung-galaxy-tab-a-spotlight-on-one-key-feature-gone-awry/"><u>Evaluating the 2020 Samsung Galaxy Tab A - Spotlight on One Key Feature Gone Awry</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-exquisite-design-elements-in-rayman-legends-a-2d-gaming-experience/"><u>Evaluating the Exquisite Design Elements in Rayman Legends, a 2D Gaming Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exceptional-value-in-depth-review-of-the-acer-aspire-e-15-for-savvy-shoppers/"><u>Exceptional Value: In-Depth Review of the Acer Aspire E 15 for Savvy Shoppers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-unmatched-e-reader-performance-a-review-of-the-new-kindle-paperwhite-7th-gen/"><u>Experience Unmatched E-Reader Performance: A Review of the New Kindle Paperwhite 7Th Gen</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-top-5-nubia-red-magic-8s-pro-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Nubia Red Magic 8S Pro Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/jamboree-the-most-entertaining-youtubers-to-watch-for-2024/"><u>Jest Jamboree The Most Entertaining YouTubers to Watch for 2024</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/mastering-twitch-broadcasts-essential-strategies-for-high-quality-pc-stream-recording/"><u>Mastering Twitch Broadcasts: Essential Strategies for High-Quality PC Stream Recording</u></a></li>
+<li><a href="https://common-error.techidaily.com/solution-for-power-fluctuations-detected-in-the-hub-terminal-port/"><u>Solution for Power Fluctuations Detected in the Hub Terminal Port</u></a></li>
 </ul></div>
 

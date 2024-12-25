@@ -1,7 +1,7 @@
 ---
 title: Evaluating Mirari Kids' Alarm Clock - An In-Depth Product Review
-date: 2024-12-09T17:20:18.152Z
-updated: 2024-12-16T16:15:30.457Z
+date: 2024-12-22T20:38:45.463Z
+updated: 2024-12-24T18:16:04.342Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating Mirari Kids' Alarm Clock - An In-Depth Product Review
@@ -38,7 +38,7 @@ Lifewire / Jonno Hill
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Mohu Leaf 30
@@ -46,7 +46,7 @@ Lifewire / Jonno Hill
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
@@ -72,6 +72,10 @@ Lifewire / Jonno Hill
 
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Basic but effective**
 
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
@@ -88,16 +92,12 @@ Lifewire / Jonno Hill
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Range: Fairly limited**
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Excellent for the performance**
@@ -105,6 +105,10 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
 
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
 
@@ -114,10 +118,6 @@ Lifewire / Jonno Hill
 
 **No fuss, good value.**
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -146,22 +146,17 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-crafting-professional-focus-mastering-teamblend-background-artistry-for-2024/"><u>[New] Crafting Professional Focus Mastering Teamblend Background Artistry for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-legal-pathways-for-youtube-to-mp4-file-downloading/"><u>[Updated] In 2024, Legal Pathways for YouTube to MP4 File Downloading</u></a></li>
-<li><a href="https://windows11.techidaily.com/activating-telnet-on-windows-3-key-methods/"><u>Activating Telnet on Windows: 3 Key Methods</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/beaming-performance-spk10-037-light-kit-sets-standard-high/"><u>Beaming Performance: SPK10-037 Light Kit Sets Standard High</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/best-big-mouse-pads-for-comfortable-computing-ranked/"><u>Best Big Mouse Pads for Comfortable Computing, Ranked!</u></a></li>
-<li><a href="https://games-able.techidaily.com/bluetooth-pairing-ps5-and-headphones/"><u>Bluetooth Pairing: PS5 & Headphones</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/decoding-the-mystery-insider-knowledge-on-story-watchers-for-2024/"><u>Decoding the Mystery Insider Knowledge on Story Watchers for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-assassins-creed-valhalla-the-ultimate-viking-experience-through-medieval-europe/"><u>Exploring Assassin's Creed: Valhalla – The Ultimate Viking Experience Through Medieval Europe</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-to-choose-a-leading-netgear-wireless-router/"><u>How to Choose a Leading Netgear Wireless Router</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/pix-star-fotoconnect-xd-review/"><u>Pix-Star FotoConnect XD Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-of-motorola-edgeplus-does-it-really-deliver-elite-phone-experience/"><u>Review of Motorola Edge+ - Does It Really Deliver Elite Phone Experience?</u></a></li>
-<li><a href="https://win-popular.techidaily.com/schritt-fur-schritt-anleitung-erfolgreiches-wiederaufspielen-von-2tb-externer-datentrager/"><u>Schritt-Für-Schritt-Anleitung: Erfolgreiches Wiederaufspielen Von 2TB Externer Datenträger</u></a></li>
-<li><a href="https://win-dash.techidaily.com/seamless-printing-with-konica-minolta-drivers-for-windows-operating-systems-11-10-8-and-ebit/"><u>Seamless Printing with Konica Minolta Drivers for Windows Operating Systems (11, 10, 8, & Ebit)</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/the-definitive-guide-to-upgrades-and-peripherals-by-toms-tech-insights/"><u>The Definitive Guide to Upgrades and Peripherals by Tom’s Tech Insights</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlocking-the-amazfit-helio-ring-details-costs-launch-timeline-and-technical-specifications/"><u>Unlocking the Amazfit Helio Ring Details: Costs, Launch Timeline & Technical Specifications</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-gimp-a-thorough-review-of-its-features-on-multiple-operating-systems/"><u>Unveiling the Power of GIMP: A Thorough Review of Its Features on Multiple Operating Systems</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-bringing-your-memories-to-life-a-guide-to-creating-video-slideshows-in-final-cut-pro/"><u>Updated 2024 Approved Bringing Your Memories to Life A Guide to Creating Video Slideshows in Final Cut Pro</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-stepwise-strategy-creating-effective-youtube-subscriber-buttons/"><u>[Updated] Stepwise Strategy Creating Effective YouTube Subscriber Buttons</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-ultimate-guide-premium-plugins-boosting-ae-projects/"><u>2024 Approved Ultimate Guide Premium Plugins Boosting AE Projects</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elevate-your-digital-art-game-with-the-xp-pen-artist-16-pro-a-thorough-assessment-of-its-drawing-tablet-functionality/"><u>Elevate Your Digital Art Game with the XP-Pen Artist 16 Pro – A Thorough Assessment of Its Drawing Tablet Functionality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/embark-on-a-thrilling-historical-odyssey-with-assassins-creed-valhalla-the-ultimate-viking-experience/"><u>Embark on a Thrilling Historical Odyssey with 'Assassin's Creed: Valhalla' - The Ultimate Viking Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-features-of-microsofts-expensive-all-in-one-desktop-the-surface-studio-2-review/"><u>Exploring the Features of Microsoft's Expensive All-in-One Desktop - The Surface Studio #2 Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/getting-to-grips-with-star-wars-squadrons-an-immersive-journey-through-galactic-warfare/"><u>Getting to Grips with Star Wars: Squadrons - An Immersive Journey Through Galactic Warfare</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/guide-to-streaming-fandango-movies-on-your-apple-tv/"><u>Guide to Streaming Fandango Movies On Your Apple TV</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/high-definition-protection-on-a-budget-our-comprehensive-guide-to-the-pruveeo-f5-camera/"><u>High Definition Protection on a Budget: Our Comprehensive Guide to the Pruveeo F5 Camera</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-hide-location-on-apple-iphone-x-and-android-without-others-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, Hide location on Apple iPhone X and Android without others knowing | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-xiaomi-redmi-note-13-5g-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Xiaomi Redmi Note 13 5G Device</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/solve-your-streaming-problems-what-to-do-when-netflix-titles-wont-play/"><u>Solve Your Streaming Problems – What To Do When Netflix Titles Won't Play</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-tutorial-for-acquiring-digital-books-on-iphoneipad-with-apple-books/"><u>Ultimate Tutorial for Acquiring Digital Books on iPhone/iPad with Apple Books</u></a></li>
 </ul></div>
 

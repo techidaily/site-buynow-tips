@@ -1,7 +1,7 @@
 ---
 title: "The Economical Choice: In-Depth Review of the TP-Link Archer C5([email Protected](tp-Link)"
-date: 2024-08-09T00:56:05.445Z
-updated: 2024-08-10T00:56:05.445Z
+date: 2024-12-22T09:06:12.729Z
+updated: 2024-12-24T20:13:29.930Z
 categories:
   - BestProducts
 description: "This Article Describes The Economical Choice: In-Depth Review of the TP-Link Archer C5([email Protected](tp-Link)"
@@ -15,10 +15,11 @@ thumbnail: https://thmb.techidaily.com/93e8b8eb6bc88169936766a6461fe23e663eb5979
 
 ## TP-Link Archer C50 Dual Band Wi-Fi Router
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![TP-Link Archer C50](https://www.lifewire.com/thmb/e7HPSZZPrP9qXUble5RJ1tNdrOw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4038590-4_Hero-5c9107c7c9e77c00014a9e1d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jordan Provost
 
@@ -68,28 +69,29 @@ Lifewire / Jordan Provost
 
  We tested the TP-Link Archer C50 for a week, and while its an affordable router, it might not be worth the investment, especially if you live with several people that need access to the internet at the same time.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Small and nondescript**
 
  The Archer C50’s small, lightweight plastic build makes it feel kind of flimsy in the hand. But at its price point you can’t expect a heavy-duty body. Luckily, it's not an eyesore—the router is all black, with the body having a sectioned design and glossy finish. Because it’s so small, the bright green LEDs in the front are its more prominent feature.
 
  That said, it’s decent looking and you won’t feel compelled to obscure it. That’s a good thing because this is one router you don’t want to hold it back. Overall, we can’t really ask more out of a cheap router like the TP-Link Archer C50.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ![TP-Link Archer C50](https://www.lifewire.com/thmb/-HYK_pePWFqPtoMcwpzZF4gi5fs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4038590-4_1-5c91126ec9e77c00010e9758.jpg)
 
  Lifewire / Jordan Provost
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ## **Setup: Simple and breezy**
 
  Realizing that most of the people buying the Archer C50 likely haven’t bought routers too many times in the past, TP-Link made setup extremely easy. The instructions are printed on the side of the box, rather than in an easily-lost pamphlet.
 
  There’s a QR code printed on the side of the box, and all you’ll have to do is scan it with your smartphone, download the app it links to, and follow the on-screen instructions. We set it up in our home with Xfinity 250Mbps service, and the entire process was done within two minutes. We were then able to log into the management portal and change our[SSID](https://www.lifewire.com/definition-of-service-set-identifier-816547) and password.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Just enough**
 
@@ -103,9 +105,6 @@ Lifewire / Jordan Provost
 
  You can download Tether, TP-Link’s mobile app, but it’s pretty limited. You can view you your network map, change your Wi-Fi password and enable your guest network. There is an option to troubleshoot your network, as well, but you can’t test speeds, like some other routers’ mobile apps.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Connectivity: The bare essentials**
 
  When it comes to physical ports, the TP-Link Archer C50 features 4[LAN ports](https://www.lifewire.com/what-is-lan-4684071) and a[USB 2.0](https://www.lifewire.com/what-is-usb-2-0-2626037) port, for external devices like hard drives or printers. That’s a pretty limited list of ports, but with such a small router, there’s not really any room for more, so it’s hard to complain.
@@ -116,11 +115,12 @@ Lifewire / Jordan Provost
 
 ![TP-Link Archer C50](https://www.lifewire.com/thmb/X-q2WxHfjSPahb1HivfWcvx6LmI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4038590-4_2-5c9113c2c9e77c0001eb1cd6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jordan Provost
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Network Performance: Don’t expect a miracle**
 
  In our testing, the TP-Link Archer C50 just couldn’t reach its rated speeds. We already mentioned that we tested this router over a 250Mbps connection, but we couldn’t get more than 85Mbps_over a wired connection_ . When we tested the wireless strength, we weren’t able to break past 65Mbps. At first, we thought Xfinity was having some trouble, but repeated tests throughout the day kept coming up with the same results.
@@ -138,22 +138,21 @@ Lifewire / Jordan Provost
  Frankly, we were surprised at how great the Archer C50’s range was.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Affordability over performance**
 
  The TP-Link Archer C50’s main saving grace is the price. You can pick it up for $59.99 MSRP, though at the time of this writing it’s sitting at $39 on Amazon. That’s an extraordinarily low price for a wireless router, but you get what you pay for. Spending just an extra $10-$20 will drastically improve your experience, especially if you’re using broadband. But, again, for DSL users that need to supply their own router, the range alone is worth the 40 bucks.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![TP-Link Archer C50](https://www.lifewire.com/thmb/7XO9AlL7doeyciw0X33vk6MLWpk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4038590-4_6-5c911347c9e77c0001ff0b7f-c3e8a53350f74b9682d94e49bc0116f9.jpg)
 
 Lifewire / Jordan Provost
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **TP-Link Archer C50 vs. Netgear R6230**
 
  For just a few dollars more at the time of this writing, you can pick up the Netgear R6230 AC1200 router ($74.99 MSRP). For the most part, the specs are identical, but the Netgear R6230 has one feature that the Archer C50 is lacking: QoS, or Quality of Service. This feature will allow you to prioritize bandwidth to certain devices or applications, so you won’t have your stream interrupted by your roommate downloading a game.
@@ -201,11 +200,23 @@ Lifewire / Jordan Provost
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-a-stepwise-approach-to-successfully-posting-srt-files-in-new-media/"><u>[New] A Stepwise Approach to Successfully Posting SRT Files in New Media</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-flashlight-free-photos-under-100-worth-it/"><u>2024'S Flashlight-Free Photos Under $100 Worth It?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-critical-look-at-google-stadia-navigating-through-room-for-progress/"><u>A Critical Look at Google Stadia - Navigating Through Room for Progress</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-htc-u23-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On HTC U23? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-ice-skates-and-epochs-a-look-at-beijings-olympic-saga-2022/"><u>In 2024, Ice Skates & Epochs A Look at Beijing's Olympic Saga, 2022</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/understanding-the-reasons-behind-your-disc-drives-failure-to-recognize-cdsdvds-insights-from-yl-computing/"><u>Understanding the Reasons Behind Your Disc Drive's Failure to Recognize CDs/DVDs - Insights From YL Computing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-masterpiece-yakuza-like-a-dragon-review-essential-rpg-gaming-must-have/"><u>Unveiling the Masterpiece: Yakuza: Like a Dragon Review - Essential RPG Gaming Must-Have</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-shadows-of-the-nikon-coolpix-l340/"><u>Unveiling the Shadows of the Nikon Coolpix L340</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-free-music-recording-software-the-ultimate-list-of-11-top-picks/"><u>Updated Free Music Recording Software The Ultimate List of 11 Top Picks</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: Get Free, Crisp TV Channels with AmazonBasics' Flat Antenna – The Savvy Shopper’s Guide
-date: 2024-12-14T16:25:52.877Z
-updated: 2024-12-16T16:26:45.919Z
+date: 2024-12-22T23:25:36.998Z
+updated: 2024-12-25T10:56:10.300Z
 categories:
   - BestProducts
 description: This Article Describes Get Free, Crisp TV Channels with AmazonBasics' Flat Antenna – The Savvy Shopper’s Guide
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/f8ecdc6c33144a8756139b14ccc37972ba5fac512
 ## Get Free, Crisp TV Channels with AmazonBasics' Flat Antenna – The Savvy Shopper’s Guide
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## AmazonBasics Ultra-Thin Antenna
 
@@ -36,6 +40,10 @@ Lifewire / Erika Rawes
 [View On Amazon](https://www.amazon.com/dp/B075ZQXB26/?tag=lifewire-onsite-prod-20&ascsubtag=4845569%7Cn4bcb8b1996c24cd3b14f62e195599b0615%7CB075ZQXB26)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## AmazonBasics Ultra-Thin Antenna
 
@@ -62,10 +70,6 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -86,10 +90,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: Almost two dozen channels (in a rural area)**
 
  So many things[affect an antenna’s performance](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) —location, household electronics, tree cover, tower location, and more. The antenna displays channels of high quality. However, sometimes the channels would take a few seconds to load, and other times, I’d see a pixelated effect when I first changed the channel that would clear up after a few seconds. Once the picture was fully loaded, it was in clear high definition. The antenna is capable of displaying a clear HD picture, so I couldn’t tell the difference between the antenna’s picture and the picture from streaming services like Hulu or Netflix.
@@ -97,6 +97,10 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Range: 35 miles**
 
@@ -106,20 +110,20 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
@@ -131,10 +135,6 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -167,18 +167,20 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-navigating-to-facebooks-story-archives-quickly/"><u>[New] In 2024, Navigating to Facebook's Story Archives Quickly</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/etting-up-your-youtube-standings-from-beginner-to-beneficial-businesses/"><u>[New] Setting Up Your YouTube Standings From Beginner to Beneficial Businesses</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-unveiling-xstream-studios-complete-exploration-in-156-words/"><u>2024 Approved Unveiling XStream Studios Complete Exploration in 156 Words</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apples-latest-titans-clash-a-review-of-iphone-15-pro-vs-pro-max-features/"><u>Apple's Latest Titans Clash: A Review of iPhone 15 Pro Vs. Pro Max Features</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discovering-the-superior-vision-and-acoustics-with-the-huawei-mediapad-m5/"><u>Discovering the Superior Vision and Acoustics with the Huawei MediaPad M5</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-marvels-avengers-balancing-outstanding-features-and-average-flaws/"><u>Evaluating Marvel's Avengers: Balancing Outstanding Features and Average Flaws</u></a></li>
-<li><a href="https://games-able.techidaily.com/fashion-meets-function-trendy-cases-for-the-latest-tech/"><u>Fashion Meets Function: Trendy Cases for the Latest Tech</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-lock-from-iphone-6-plus-by-drfone-ios/"><u>How to Bypass iCloud Lock from iPhone 6 Plus</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-use-chromecast-for-seamless-pc-screen-mirroring-on-your-home-television-setup/"><u>How to Use Chromecast for Seamless PC Screen Mirroring on Your Home Television Setup</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-netgear-routers-to-look-out-for/"><u>Leading Netgear Routers to Look Out For</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/nba-2k19-dive-into-professional-level-basketball-gaming-like-never-before/"><u>NBA 2K19: Dive Into Professional-Level Basketball Gaming Like Never Before</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-evaluation-of-logitechs-c920-hd-webcam-in-depth-performance-analysis/"><u>Ultimate Evaluation of Logitech's C920 HD Webcam: In-Depth Performance Analysis</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/unleashing-creativity-with-vn-video-editor-on-pc-a-review/"><u>Unleashing Creativity with VN Video Editor on PC A Review</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-instagram-story-straightforward-recording-tips/"><u>[New] In 2024, Instagram Story Straightforward Recording Tips</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-alternative-views-to-googles-ar-sticker-experience/"><u>[Updated] In 2024, Alternative Views to Google's AR Sticker Experience</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-step-by-step-producing-youtube-trailers-using-filmora/"><u>[Updated] Step-by-Step Producing YouTube Trailers Using Filmora</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-quick-fix-guide-successful-transmission-of-videos-on-the-social-networking-app-messenger/"><u>2024 Approved Quick Fix Guide Successful Transmission of Videos on the Social Networking App Messenger</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/android-call-history-recovery-recover-deleted-call-logs-from-realme-11x-5g-by-fonelab-android-recover-call-logs/"><u>Android Call History Recovery - recover deleted call logs from Realme 11X 5G</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/step-by-step-tutorial-on-recording-premium-quality-google-hangout-sessions/"><u>Step-by-Step Tutorial on Recording Premium-Quality Google Hangout Sessions</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-new-frontier-for-windows-ventures-past-11/"><u>The New Frontier for Windows: Ventures Past 11</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/ultimate-guide-update-your-nvidia-geforce/"><u>Ultimate Guide: Update Your NVIDIA GeForce</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleash-high-performance-a-thorough-evaluation-of-the-netgear-nighthawk-rax120s-superior-speed-capabilities/"><u>Unleash High Performance: A Thorough Evaluation of the Netgear Nighthawk RAX120's Superior Speed Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-hisense-40h5590f-screen-marvel-a-comprehensive-analysis-of-a-cost-effective-smart-tv-option/"><u>Unveiling the Hisense 40H5590F Screen Marvel - A Comprehensive Analysis of a Cost-Effective Smart TV Option</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-issues-how-the-pixel-slate-struggles-with-chromeos-integration/"><u>Unveiling the Issues: How the Pixel Slate Struggles with ChromeOS Integration</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-monoprice-graphic-tablet-premium-functions-meet-budget-friendly-pricing/"><u>Unveiling the Monoprice Graphic Tablet - Premium Functions Meet Budget-Friendly Pricing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-apples-impressive-m1-technology-in-the-new-macbook-air-13-inch-laptop-a-detailed-review/"><u>Unveiling the Power of Apple's Impressive M1 Technology in the New MacBook Air 13-Inch Laptop - A Detailed Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-future-ready-connectivity-with-netgear-nighthawk-ax8-wi-fi-6-expansion-our-in-depth-review/"><u>Unveiling the Power of Future-Ready Connectivity with Netgear Nighthawk AX8 Wi-Fi 6 Expansion: Our In-Depth Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-secrets-behind-sony-playstation-5s-superior-might/"><u>Unveiling the Secrets Behind Sony PlayStation 5'S Superior Might</u></a></li>
 </ul></div>
 

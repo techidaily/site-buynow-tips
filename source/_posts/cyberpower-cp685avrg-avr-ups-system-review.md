@@ -1,7 +1,7 @@
 ---
 title: Cyberpower CP685AVRG AVR UPS System Review
-date: 2024-12-12T17:25:02.472Z
-updated: 2024-12-16T17:50:17.409Z
+date: 2024-12-23T20:02:15.058Z
+updated: 2024-12-25T06:06:37.159Z
 categories:
   - BestProducts
 description: This Article Describes Cyberpower CP685AVRG AVR UPS System Review
@@ -18,7 +18,7 @@ thumbnail: https://www.lifewire.com/thmb/wtXsun69DD8udLlpyE2hV3wzITA=/400x300/fi
 ![Anker](https://www.lifewire.com/thmb/lNQbd16pbRC0R9DGxN2t8vYzL7o=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_HEROWebSQUARE-5c90fd70c9e77c0001eb1cc6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
@@ -40,6 +40,10 @@ Lifewire / Gannon Burgett
 [View On Amazon $100](https://www.amazon.com/dp/B07XRJZXKY?tag=lifewire-onsite-prod-20&ascsubtag=4589459%7Cne013ed3beb0f470caee172c55826658d22%7CB07XRJZXKY)
 
 4.8
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Anker PowerCore+ 26800 Battery Pack
 
@@ -73,6 +77,10 @@ Lifewire / Gannon Burgett
 
 ![Anker](https://www.lifewire.com/thmb/brfc42RYlVrJLOHjyc0IbNzEQ0k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_5Web-5c90fc18c9e77c0001ac191d.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
 
  The PowerCore+ 26800 features a single button on the top of the device to show remaining battery life and three ports on one of the two flat sides: two 5V/3A PowerIQ USB ports (Power IQ is Anker's proprietary smart-charging standard) and a power delivery[USB Type-C](https://www.lifewire.com/usb-c-4149490) port. It's a no-frills design that gets to the point without any unnecessary details or frills and it looks great when paired with any clean, modern device if you care about form as much as function.
@@ -83,15 +91,15 @@ Lifewire / Gannon Burgett
 
 ![Anker](https://www.lifewire.com/thmb/Ps-fDFicjMGSS8OppN-xw5yn_mg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_1-Web-5c90fc3dc9e77c0001eb1cc5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Gannon Burgett
 
  Our device came approximately 50% charged based on the battery life indicator lights on the top. We immediately burned through what battery life it had so we could start fresh with testing to see how quickly the 30W wall charger could fill the 26800mAh capacity.
 
  It's a no-frills design that looks great when paired with any clean, modern device if you care about form as much as function.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Charging Speed and Battery: Slow and steady wins this race**
 
@@ -104,10 +112,6 @@ Lifewire / Gannon Burgett
  For the smartphones, we made sure the PowerCore+ 26800 was charged up entirely and ran both the iPhone XS and Samsung Galaxy S8 Active through complete battery cycles until the battery pack was out of juice. The iPhone XS was charged six and a half times with an average time of an hour and a half using the PowerIQ USB port with a Lightning cable. The Samsung Galaxy S8 Active, on the other hand, managed seven and a half charges with an average charge time of an hour and fifteen minutes using the included USB Type-C to USB Type-C cable.
 
 ![Anker](https://www.lifewire.com/thmb/tJwshohQXfV-U0_iKVTCkHEhFLU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_6Web-5c90fcc6c9e77c0001a92733.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -132,7 +136,7 @@ Lifewire / Gannon Burgett
  Yes, it's a little more expensive than its RAVPower contemporary, but considering the included accessories and more thoughtful design, it makes it worth it to spring the extra cash, especially when you take into account the 18-month warranty Anker offers.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -140,10 +144,6 @@ Lifewire / Gannon Burgett
 * [MaxOak 185Wh/50000mAh Battery Pack](https://www.lifewire.com/maxoak-185wh-50000mah-battery-pack-review-4589398)
 * [Jackery PowerBar Battery Pack](https://www.lifewire.com/jackery-powerbar-battery-pack-review-4589480)
 * [ChargeTech 27000mAh Battery Pack](https://www.lifewire.com/chargetech-27000mah-battery-pack-review-4589409)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -175,17 +175,18 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-brief-basslines-video-music-mosaics/"><u>[New] 2024 Approved Brief Basslines Video Music Mosaics</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-unlock-retro-classics-on-android-choose-the-best-ps2-emulators/"><u>[Updated] 2024 Approved Unlock Retro Classics on Android – Choose the Best PS2 Emulators</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-blissful-family-nights-the-top-10-classics-for-summertime-for-2024/"><u>[Updated] Blissful Family Nights The Top 10 Classics for Summertime for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-navigating-devices-for-google-meet-session/"><u>[Updated] In 2024, Navigating Devices for Google Meet Session</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723202193273-bypass-and-resolve-unity-graphics-error-during-launch-successfully-now/"><u>Bypass and Resolve Unity Graphics Error During Launch Successfully Now!</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/1723262423867-discover-which-prebuilt-desktop-for-gamers-matches-your-needs-best/"><u>Discover Which Prebuilt Desktop for Gamers Matches Your Needs Best!</u></a></li>
-<li><a href="https://win-deluxe.techidaily.com/identifying-and-restoring-corrupted-email-messages-with-massmail-tech-tools/"><u>Identifying and Restoring Corrupted Email Messages with MassMail Tech Tools</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/life-q30-headphones-with-anc-a-cost-effective-review/"><u>Life Q30 Headphones with ANC - A Cost-Effective Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/master-chefs-in-mayhem-a-detailed-breakdown-of-overcooked-2s-scorching-gameplay/"><u>Master Chefs in Mayhem: A Detailed Breakdown of Overcooked! 2'S Scorching Gameplay</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-online-education-ranking-the-top-10-digital-learning-platforms/"><u>Mastering Online Education: Ranking the Top 10 Digital Learning Platforms</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/skagen-falster-2-analysis-elegant-competition-to-the-apple-series/"><u>Skagen Falster 2 Analysis: Elegant Competition to the Apple Series</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-why-the-xbox-one-elite-series-2-controller-is-a-historic-gaming-breakthrough/"><u>Unveiling Why the Xbox One Elite Series 2 Controller Is a Historic Gaming Breakthrough</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-push-more-viewers-to-your-channel-with-easy-tricks-2/"><u>2024 Approved Push More Viewers to Your Channel with Easy Tricks (2)</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-messages-files-on-moto-g-stylus-2023-by-fonelab-android-recover-messages/"><u>Complete guide for recovering messages files on Moto G Stylus (2023)</u></a></li>
+<li><a href="https://program-issues.techidaily.com/half-life-alyx-pc-optimization-guide-fixes-for-tackling-frame-drops-and-jittery-playback/"><u>Half-Life: Alyx PC Optimization Guide – Fixes for Tackling Frame Drops and Jittery Playback</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-enable-camera-and-microphone-in-application-guard-for-edge-in-windows-11/"><u>How to Enable Camera and Microphone in Application Guard for Edge in Windows 11</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-lava-yuva-3-pro-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Lava Yuva 3 Pro to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-uncovering-hidden-wellsprings-of-free-graphic-designs/"><u>In 2024, Uncovering Hidden Wellsprings of Free Graphic Designs</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ring-youtube-shorts-templates-a-complete-guide-for-2024/"><u>Mastering YouTube Shorts Templates A Complete Guide for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/pazera-unchained-master-your-music-extraction-techniques-for-2024/"><u>Pazera Unchained Master Your Music Extraction Techniques for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-list-of-leading-rechargeable-laptop-docks-and-adapters-2024-edition/"><u>Ultimate List of Leading Rechargeable Laptop Docks and Adapters - 2024 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-xbox-one-elite-series-2-controller-analysis-top-gaming-performer-unveiled/"><u>Ultimate Xbox One Elite Series 2 Controller Analysis - Top Gaming Performer Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unboxing-the-imo-communication-tool-expert-review-and-opinions/"><u>Unboxing the IMo Communication Tool – Expert Review & Opinions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-future-x15d-digital-frames-for-immersive-viewing/"><u>Unveiling the Future: X15D Digital Frames for Immersive Viewing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-marvels-of-samsung-galaxy-watch-an-epitome-of-smart-and-stylish-tech-gadgetry/"><u>Unveiling the Marvels of Samsung Galaxy Watch: An Epitome of Smart & Stylish Tech Gadgetry</u></a></li>
 </ul></div>
 

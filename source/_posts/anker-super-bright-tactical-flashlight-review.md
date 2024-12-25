@@ -1,7 +1,7 @@
 ---
 title: Anker Super Bright Tactical Flashlight Review
-date: 2024-08-09T00:56:04.389Z
-updated: 2024-08-10T00:56:04.389Z
+date: 2024-12-19T16:14:01.796Z
+updated: 2024-12-24T17:45:10.190Z
 categories:
   - BestProducts
 description: This Article Describes Anker Super Bright Tactical Flashlight Review
@@ -13,12 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/6LT3niV6b8rxfFzKUOSGiOSPwO4=/400x300/fi
 
 4.9
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Jaco SmartPro Digital Tire Inflator Pump
 
 ![Jaco SmartPro Digital Tire Inflator](https://www.lifewire.com/thmb/Zen4KJ79dgFOiAoxcIwd-DLRfas=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/JacoTireInflator_HeroSquare-3363a32b2cad4c91b4662ed6f6a93ce1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -41,12 +42,13 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.9
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ## Jaco SmartPro Digital Tire Inflator Pump
 
 ![Jaco SmartPro Digital Tire Inflator](https://www.lifewire.com/thmb/fTLjCd9CqbSCdmXD-XxJjBhyfSw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/JacoTireInflator_HeroSquare-3363a32b2cad4c91b4662ed6f6a93ce1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -71,14 +73,9 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design and Features: Simple, compact, intuitive**
 
  At just 7.5 inches wide, 2.5 inches tall and 6 inches long, this is the smallest, most compact portable tire inflator we tested. When it’s in its carrying case, it only weighs 2 pounds, 31 ounces. Even small children should be able to carry it. If you need a portable tire inflator but don't have a lot of space, this pump is exactly what you want.
@@ -103,6 +100,10 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Up and running in less than three minutes**
 
  Jaco provides a brief, but informative user manual tucked in the carrying case. Despite how intuitive this pump is to use, you should take five minutes to read the whole thing. During testing, we timed how long it takes to get out of your driver’s seat, retrieve the pump from the trunk, connect it to power, attach it to an under-inflated tire, set the pressure and start the pump. On average, the whole process took about 1 minute, 30 seconds.
@@ -111,10 +112,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## **Performance: Reliable across the highways of America**
 
  In order to recreate the situations that you’re most likely to use a portable tire inflator, we took the models we tested on a long road trip through the states of Nevada, Utah, and Wyoming. When we stopped at rural rest areas and gas stations along the way, we deflated the tires on our car to 20 PSI—the point where they are dangerously low to drive on.
@@ -129,15 +126,16 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  That also shouldn’t be an issue because the pump automatically cycles down after 30 minutes of continuous use, and you’ll have to wait until it cools down to use it again. This shouldn't be a problem, since you can conceivably fill all four of your car’s tires in under 10 minutes. You’d have to inflate something exceptionally large to run this pump for that long.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: On the expensive end, but worth it for the peace of mind**
 
  With a list price of $90, this is the most expensive portable tire inflator we tested, but it’s typically on sale for half the price. That makes it more reasonable, especially if you need a portable compressor but are really tight on space. Or if you want to ensure maximum safety and visibility at night. But it certainly isn’t a budget model like the Audew Portable Air Compressor Pump.
 
  It’s impossible to predict how long a product will last after just a few days or using it, however, the warranty period is a good indicator of the long-term durability. Jaco offers a lifetime warranty on this compressor, so it should last a really long time, or at least until you forget it’s still under warranty.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Jaco SmartPro Digital Tire Inflator vs. Kensun Portable Tire Inflator**
 
  We tested this the SmartPro Digital Tire Inflator side-by-side with the Kensun Portable Tire Inflator. Although the Kensun is about twice as large as the Jaco, they’re designed to do the same thing. For example, they both draw power from your car’s 12V socket, but if you want to get away from your car, the Kensun comes with an AC power cord that you can plug into a wall socket. This makes the Kensun a much more versatile pump. And while the built-in light on the Kensun provides great illumination at night, it lacks the hazard and emergency lights you get with Jaco.
@@ -150,9 +148,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  The Jaco SmartPro Digital Tire Inflator is a great addition to the jumper cables and triangle reflectors in your trunk. Its focus on safety, portability, and accuracy makes it very attractive for people looking to be prepared, and you can usually find it on sale for a reasonable price.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  SmartPro Digital Tire Inflator Pump
@@ -170,11 +165,33 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-keyboard-warriors-guide-games-similar-to-gta-v-for-2024/"><u>[New] Keyboard Warriors' Guide Games Similar to GTA V for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-crafting-charts-with-a-click-youtube-short-tunes-made-easy/"><u>[Updated] 2024 Approved Crafting Charts with a Click YouTube Short Tunes Made Easy</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/acer-xfa240-assessment-where-practicality-prevails/"><u>Acer XFA240 Assessment: Where Practicality Prevails</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/advanced-health-monitoring-on-your-wrist-how-fitbit-sense-outshines-the-apple-watch/"><u>Advanced Health Monitoring on Your Wrist - How Fitbit Sense Outshines the Apple Watch</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-innovation-or-confused-device-the-microsoft-surface-go-evaluated/"><u>Affordable Innovation or Confused Device? The Microsoft Surface Go Evaluated</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/brief-introduction-to-streamlined-czech-learning-online/"><u>Brief Introduction to Streamlined Czech Learning Online</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-vivo-x100-pro-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Vivo X100 Pro Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-6-proven-ways-to-unlock-itel-p55plus-phone-when-you-forget-the-password-by-drfone-android/"><u>In 2024, 6 Proven Ways to Unlock Itel P55+ Phone When You Forget the Password</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-essential-techniques-5-audio-recording-tools-in-windows-11/"><u>In 2024, Essential Techniques 5 Audio Recording Tools in Windows 11</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/legally-capture-calls-with-your-iphone-find-out-how-here-zdnet-insights/"><u>Legally Capture Calls with Your iPhone? Find Out How Here - ZDNet Insights</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/m1s-impact-on-video-editing-software-performance-for-2024/"><u>M1's Impact on Video Editing Software Performance for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/streaming-dickens-classic-on-smartphones-guide-to-enjoy-a-christmas-carol-on-apple-and-android-gadgets/"><u>Streaming Dickens' Classic on Smartphones: Guide to Enjoy 'A Christmas Carol' On Apple and Android Gadgets</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-no-8-visionary-photomontage-creator-app-for-2024/"><u>The No. 8 Visionary Photomontage Creator App for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-usb-wireless-network-adapters/"><u>Top Rated USB Wireless Network Adapters</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/toshiba-55lf711u20-in-depth-evaluation-the-ultimate-choice-for-streaming-enthusiasts/"><u>Toshiba 55LF711U20 In-Depth Evaluation: The Ultimate Choice for Streaming Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-apple-airtag-guide-top-gadget-for-tracking-your-belongings/"><u>Ultimate Apple AirTag Guide: Top Gadget for Tracking Your Belongings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleash-creativity-with-the-dynamic-and-educational-dash-toy-from-wonder-workshop/"><u>Unleash Creativity with the Dynamic and Educational Dash Toy From Wonder Workshop</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-compact-computing-power-of-raspberry-pi-400-desktop-meets-laptop-functionality-in-one-device/"><u>Unveiling the Compact Computing Power of Raspberry Pi 400 - Desktop Meets Laptop Functionality in One Device</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-features-of-samsung-galaxy-fit-a-must-have-wearable-device-for-a-dynamic-lifestyle/"><u>Unveiling the Features of Samsung Galaxy Fit: A Must-Have Wearable Device for a Dynamic Lifestyle</u></a></li>
+</ul></div>
+

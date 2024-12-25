@@ -1,7 +1,7 @@
 ---
 title: Codename 47'S Final Mission - Evaluating Hitman N3
-date: 2024-12-11T16:10:55.271Z
-updated: 2024-12-16T17:01:51.604Z
+date: 2024-12-22T01:20:02.502Z
+updated: 2024-12-25T08:33:32.774Z
 categories:
   - BestProducts
 description: This Article Describes Codename 47'S Final Mission - Evaluating Hitman N3
@@ -16,10 +16,6 @@ thumbnail: https://www.lifewire.com/thmb/AwbntFgVtLSySFxBHhfpOAZftYc=/400x300/fi
 ## Amazon Luna
 
 ![Amazon Luna](https://www.lifewire.com/thmb/D9MecP2109T2iYhabM0CPBRirFA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_Hero_Square-cced3e5a3d3e4d24af1b85a59c76932d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -45,7 +41,7 @@ Lifewire / Jeremy Laukkonen
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazon Luna
@@ -53,7 +49,7 @@ Lifewire / Jeremy Laukkonen
 ![Amazon Luna](https://www.lifewire.com/thmb/NT3lnZ3hOwaGUbS2tHARE7zRT1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_Hero_Square-cced3e5a3d3e4d24af1b85a59c76932d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -88,7 +84,7 @@ Lifewire / Jeremy Laukkonen
 ![Amazon Luna](https://www.lifewire.com/thmb/c10USyUEVgaFrdeWRUBgX6MNpOQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_05-7314cf2ae25a4f428d93f40cc56fb5d1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -112,10 +108,6 @@ Lifewire / Jeremy Laukkonen
  In terms of ports, the Luna controller includes a USB-C port for charging and connectivity and a 3.5mm port for plugging in your favorite set of headphones or earbuds. At the back, you’ll find a removable battery cover, as the controller is powered by two AA batteries.
 
  Overall, the Luna controller has quickly become one of my favorite alternatives to the Xbox One or Xbox Series X/S controller; the only real issues being the mushy d-pad and the texture of the analog sticks. I ended up snapping on some performance thumb grips, which worked great.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Setup Process: Quick and easy
 
@@ -169,11 +161,19 @@ Lifewire / Jeremy Laukkonen
 
  It’s clear that Amazon is working to bring a nice mix of games to the service, but the depth and breadth of the titles you can access with a basic subscription remain the biggest question as Luna moves through beta and toward general launch.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Price: Affordable fee reflects the thin library
 
  Luna comes with a price tag of $4.95 per month during the beta period, with the insinuation that it will increase later on. It’s uncertain as to whether or not the price will actually go up, but right now it’s a pretty good deal. The only real caveat is that the attractive price tag is balanced by a somewhat thin library. Go ahead and check the library before you sign up. If you see more than a handful of games you’re interested in, then Luna is absolutely worth the price of admission.
 
  The Luna controller has a heftier price tag of $50, but that’s actually pretty reasonable if you compare it to other wireless controllers. It’s cheaper than a lot of the other options, and you can use it via Wi-Fi with Luna, or via Bluetooth or USB-C to play non-Luna games on your PC. All in all, it’s a good controller that’s priced competitively.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Amazon Luna vs. Microsoft Game Pass Ultimate
 
@@ -193,15 +193,15 @@ Lifewire / Jeremy Laukkonen
 
  Amazon Luna is an impressive game streaming service that works surprisingly well whether or not you buy the optional controller. It isn’t perfect, and you’re likely to experience hiccups here and there, but it’s an extremely affordable way to experience dozens of games, many of which would otherwise require an expensive gaming PC or console, without any kind of initial investment. The future of the service remains uncertain, and the precedent of locking Ubisoft games behind an expensive additional paywall isn’t a great sign, but Amazon has a chance to make a real splash in the gaming world with Luna.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Xbox Series X|S Controller](https://www.lifewire.com/xbox-series-x-or-s-controller-review-5113227)
 * [Sony DualSense Wireless Controller](https://www.lifewire.com/sony-dualsense-wireless-controller-review-feel-the-quality-5101639)
 * [Xbox One Elite Controller](https://www.lifewire.com/xbox-one-elite-controller-review-4770957)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -233,16 +233,21 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-premier-video-capture-systems-for-online-streaming/"><u>[Updated] 2024 Approved Premier Video Capture Systems for Online Streaming</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-celebratory-closures-from-bare-bones-to-full-featured/"><u>[Updated] Celebratory Closures From Bare-Bones to Full-Featured</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024anddvd5/"><u>「2024年におすすめのトップランク入るパーソナルコンピュータ向けライティング&DVD記録ソフトウェアベスト5」</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/conquer-the-battlefield-in-style-the-inside-scoop-on-the-all-new-mavix-memail-protected/"><u>Conquer the Battlefield in Style: The Inside Scoop on the All-New Mavix M^[email Protected]</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/deciphering-the-investment-in-apple-tv/"><u>Deciphering the Investment in Apple TV</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/fixing-browser-security-alerts-steps-to-make-your-connections-secure-again/"><u>Fixing Browser Security Alerts: Steps to Make Your Connections Secure Again</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Oppo Find X6? | Dr.fone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-secrets-to-seamless-overwatch-game-captures-unveiled/"><u>In 2024, Secrets to Seamless Overwatch Game Captures Unveiled</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maximize-functionality-with-windows-11-pro-upgrade/"><u>Maximize Functionality with Windows 11 Pro Upgrade</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-lgs-stunning-65-4k-oled-c9-smart-tv-a-must-have-for-home-theater-buffs/"><u>Ultimate Guide to LG's Stunning 65 4K OLED C9 Smart TV - A Must-Have for Home Theater Buffs</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/why-the-samsung-galaxy-note-9-reigns-as-top-large-display-mobile-device/"><u>Why the Samsung Galaxy Note 9 Reigns as Top Large-Display Mobile Device</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-navigating-through-pc-hdr-content-watch-edit-enjoy-for-2024/"><u>[New] Navigating Through PC HDR Content Watch, Edit, Enjoy for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-essential-aspect-ratio-tips-for-social-media-videos-for-2024/"><u>[Updated] Essential Aspect Ratio Tips for Social Media Videos for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-free-pc-sound-capturing-software-x-recorder-version-for-2024/"><u>[Updated] Free Pc Sound Capturing Software - X-Recorder Version for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-inauguration-setting-up-a-twitter-profile/"><u>[Updated] Inauguration Setting Up a Twitter Profile</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-extensive-evaluation-every-detail-of-the-bublcam-360-camera/"><u>2024 Approved Extensive Evaluation Every Detail of the Bublcam 360 Camera</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-googles-revolutionary-voice-calling-feature/"><u>Comprehensive Analysis: Google's Revolutionary Voice Calling Feature</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-arlo-video-doorbell-analysis-uniting-security-and-convenience/"><u>Comprehensive Arlo Video Doorbell Analysis: Uniting Security and Convenience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/creative-precision-unleashed-discover-the-best-drawing-tablet-reviews/"><u>Creative Precision Unleashed: Discover the Best Drawing Tablet Reviews</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-best-value-batteries-speed-up-your-electric-vehicle-with-budget-friendly-powerdrive-solutions/"><u>Discover the Best Value Batteries – Speed Up Your Electric Vehicle with Budget-Friendly PowerDrive Solutions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-perks-of-starting-with-an-amazfit-bip-smartwatch-a-thorough-assessment-for-new-users/"><u>Discover the Perks of Starting with an Amazfit Bip Smartwatch: A Thorough Assessment for New Users</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-why-the-newly-released-apple-mac-mini-with-m1-chip-is-dominating-the-market/"><u>Discover Why the Newly Released Apple Mac Mini with M1 Chip Is Dominating the Market</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-delight-unveiling-the-joy-of-pokemon-shining-pearl/"><u>Discovering Delight: Unveiling the Joy of Pokémon Shining Pearl</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/earning-through-online-beauty-networks/"><u>Earning Through Online Beauty Networks</u></a></li>
+<li><a href="https://driver-download.techidaily.com/ensure-smooth-operation-hp-elitebook-x360-103-update-guide-for-device-drivers/"><u>Ensure Smooth Operation: HP EliteBook X360 103 Update Guide for Device Drivers</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/ultimate-guide-to-2023s-top-value-zero-cost-live-broadcasting-tools-for-2024/"><u>Ultimate Guide to 2023'S Top Value, Zero-Cost Live Broadcasting Tools for 2024</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/windows-server-2008-r2-mastering-bare-metal-restoration-through-two-methods/"><u>Windows Server 2008 R2: Mastering Bare Metal Restoration Through Two Methods</u></a></li>
 </ul></div>
 

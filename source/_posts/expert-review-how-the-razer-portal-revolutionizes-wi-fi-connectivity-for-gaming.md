@@ -1,7 +1,7 @@
 ---
 title: "Expert Review: How the Razer Portal Revolutionizes Wi-Fi Connectivity for Gaming"
-date: 2024-12-15T16:58:14.035Z
-updated: 2024-12-16T17:45:21.180Z
+date: 2024-12-19T18:45:28.537Z
+updated: 2024-12-24T23:32:48.448Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Review: How the Razer Portal Revolutionizes Wi-Fi Connectivity for Gaming"
@@ -16,10 +16,6 @@ thumbnail: https://thmb.techidaily.com/8ce47f0b6f9813f5bc22a10ae1035723a396d6df9
 ## Clearstream ECLIPSE
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/C1hoQetKMx7bAHqwsQ9gt0Fz_S0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -39,10 +35,6 @@ Lifewire / Jonno Hill
 [View On Amazon $35](https://www.amazon.com/dp/B01HQ4BRIG/?tag=lifewire-onsite-prod-20&ascsubtag=4843098%7Cnd0143d72158b4d609e6ef9a213c7445e18%7CB01HQ4BRIG) [View On Walmart $33](https://www.walmart.com/ip/Antennas-Direct-ECL-Clear-Stream-Eclipse-Sure-Grip-Indoor-HDTV-Antenna/146091443?slfpid=3)
 
 4.4
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Clearstream ECLIPSE
 
@@ -74,12 +66,16 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Inoffensive but unexceptional**
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup: Simple and easy**
 
@@ -88,6 +84,10 @@ Lifewire / Jonno Hill
  The ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones.
 
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Above average**
 
@@ -100,7 +100,7 @@ Lifewire / Jonno Hill
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
@@ -108,10 +108,6 @@ Lifewire / Jonno Hill
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
 
@@ -122,6 +118,10 @@ Lifewire / Jonno Hill
 **The best unpowered indoor antenna.**
 
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -150,21 +150,21 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-prodigious-plotlines-in-audio-playwriting/"><u>[Updated] 2024 Approved Prodigious Plotlines in Audio Playwriting</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/caixuns-value-proposition-the-75-inch-android-tv-4k-budget-series-reviewed/"><u>Caixun's Value Proposition: The 75-Inch Android TV 4K Budget Series Reviewed!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/chargetech-27000mah-battery-pack-in-depth-analysis-for-long-lasting-charges/"><u>ChargeTech 27000mAh Battery Pack: In-Depth Analysis for Long-Lasting Charges</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/decoding-digital-wallets-for-cryptocurrencies-with-expert-guidance-from-yl-computing-pioneers-in-software-innovation/"><u>Decoding Digital Wallets for Cryptocurrencies with Expert Guidance From YL Computing | Pioneers in Software Innovation</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/digitally-preserved-the-ultimate-guide-for-saving-twitter-vids/"><u>Digitally Preserved The Ultimate Guide for Saving Twitter Vids</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-lightning-fast-connectivity-with-our-comprehensive-review-of-the-google-nest-wi-fi-system/"><u>Experience Lightning Fast Connectivity with Our Comprehensive Review of the Google Nest Wi-Fi System</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-lava-yuva-3-pro-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Lava Yuva 3 Pro Like A Pro 5 Easy Ways</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6s-without-passcode-4-easy-methods-drfone-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 6s Without Passcode? 4 Easy Methods | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/inside-scoop-on-vive-cosmos-exceptional-vr-performance-despite-stiff-market-challenges/"><u>Inside Scoop on Vive Cosmos: Exceptional VR Performance Despite Stiff Market Challenges</u></a></li>
-<li><a href="https://fox-http.techidaily.com/lightning-speed-view-for-windows-photos/"><u>Lightning Speed View for Windows Photos</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/petsafes-revolutionary-feeding-system-a-dependable-routine-for-your-furry-friends/"><u>PetSafe's Revolutionary Feeding System: A Dependable Routine for Your Furry Friends</u></a></li>
-<li><a href="https://fox-info.techidaily.com/pioneering-cinematic-language-for-2024/"><u>Pioneering Cinematic Language for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-ultimate-guide-to-harnessing-snapchat-spotlight/"><u>The Ultimate Guide to Harnessing Snapchat Spotlight</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-cellular-signal-amplifiers-a-comprehensive-guide/"><u>Top Cellular Signal Amplifiers : A Comprehensive Guide</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/transforma-tus-videos-sin-costo-alguno-guia-paso-a-paso-para-convertir-desde-mka-a-avi-usando-movavi-online/"><u>Transforma Tus Vídeos Sin Costo Alguno: Guía Paso a Paso Para Convertir Desde MKA a AVI Usando Movavi Online</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/understanding-components-a-primer-on-game-pc-building/"><u>Understanding Components: A Primer on Game PC Building</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-master-list-of-8-gratis-cutting-edge-video-players-for-pcmac-os/"><u>[New] 2024 Approved Master List of 8 Gratis, Cutting-Edge Video Players for PC/Mac OS</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-exclusive-sneak-peek-at-apples-finest-facebook-video-extractor-apps/"><u>[New] Exclusive Sneak Peek at Apple's Finest Facebook Video Extractor Apps</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-how-to-change-voice-on-instagram-story-and-reels-in-2024/"><u>[New] How to Change Voice on Instagram Story and Reels, In 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebots-magic-touch-in-enhancing-your-websites-visibility-unveiling-the-secrets-behind-successful-seo/"><u>Cookiebot's Magic Touch in Enhancing Your Website's Visibility - Unveiling the Secrets Behind Successful SEO!</u></a></li>
+<li><a href="https://fox-that.techidaily.com/discover-9-warning-signs-your-iphone-might-be-water-logged/"><u>Discover 9 Warning Signs Your iPhone Might Be Water-Logged</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-correct-the-green-boot-failure-screen-in-windows-10-and-11/"><u>How to Correct the Green Boot Failure Screen in Windows 10 & 11</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Realme Narzo N53 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tech-meets-tomorrow-with-starlink-top-4-motivations-for-switching/"><u>Tech Meets Tomorrow with Starlink: Top 4 Motivations for Switching</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-art-of-arranging-youtube-video-elements-for-2024/"><u>The Art of Arranging YouTube Video Elements for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-complete-guide-to-choosing-the-right-portable-charger-zmi-powerpack-2000amperes-rated/"><u>The Complete Guide to Choosing the Right Portable Charger: ZMI PowerPack 20,00Amperes Rated</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-definitive-verdict-on-samsung-galaxy-s2ebeam-and-is-used-to-create-a-beamforming-effect-which-can-help-improve-signal-quality-and-range/"><u>The Definitive Verdict on Samsung Galaxy S2ebeam and Is Used to Create a Beamforming Effect, Which Can Help Improve Signal Quality and Range.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-fitbit-charge-4-combining-elegance-with-performance/"><u>The Ultimate Guide to the Fitbit Charge 4: Combining Elegance with Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-netgear-orbi-rbs50y-transforming-backyard-wi-fi-experience/"><u>The Ultimate Review: Netgear Orbi RBS50Y - Transforming Backyard Wi-Fi Experience</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-poco-f5-pro-5g-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Poco F5 Pro 5G for Streaming | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-value-for-money-acer-gadgets-to-grab-this-prime-day-2024-edition/"><u>Top Value-For-Money Acer Gadgets to Grab This Prime Day, 2024 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-lg-gram-156-laptop-analysis-unveiling-an-exceptionally-portable-and-long-lasting-device-from-2018/"><u>Ultimate LG Gram 15.6 Laptop Analysis - Unveiling an Exceptionally Portable & Long-Lasting Device From 2018!</u></a></li>
 </ul></div>
 

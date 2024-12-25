@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
-date: 2024-12-15T16:10:39.530Z
-updated: 2024-12-16T16:49:38.289Z
+date: 2024-12-21T04:55:34.900Z
+updated: 2024-12-25T12:45:56.950Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
@@ -13,13 +13,13 @@ thumbnail: https://thmb.techidaily.com/e0be33554f7e808cbb9defb5e44d8742371f9f0a4
 
 4
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## HP Omen Obelisk
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Szj7RCNucny4rfZ6uBlIf8pdeiE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_HP-OMEN-Obelisk-Gaming-Desktop-Computer-1-56ba747009334162a328f46d8b4743af.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -41,13 +41,13 @@ Lifewire / Jonno Hill
 
 4
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## HP Omen Obelisk
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/ltgwwtDrSkLcZMSVU6VX1rKcbaA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_HP-OMEN-Obelisk-Gaming-Desktop-Computer-1-56ba747009334162a328f46d8b4743af.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -77,10 +77,14 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/OXMiCXvzh8P7esVvbjPoSorzoxM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-2-7b14850c2ca84af39d5fd116ab483d5d.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design** : **Nice looks and small footprint, with many reservations**
@@ -116,7 +120,7 @@ Lifewire / Jonno Hill
  The Omen comes equipped with a 1TB[NVMe SSD](https://www.lifewire.com/what-is-m2-833453) and 32GB of DDR4 2666 memory. This is definitely more RAM than games alone will call for, but it’s merely an adequate amount of RAM for some creative professionals working with more demanding software like Adobe After Effects. Keep in mind though, even those that don’t normally need a lot of RAM can still benefit from having more. Among other things, it gives you the luxury of keeping all of your browser tabs and background applications running without having to start juggling applications on and off, which can be helpful from a productivity standpoint.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Gaming** :**Great for the most demanding titles**
@@ -141,10 +145,6 @@ Lifewire / Jonno Hill
 
  I made a point to try out the Network Booster software found in the OMEN Command Center and didn’t see anything tremendously useful, unfortunately. I tried setting the priority of Steam to “Low” and downloading a game, but the game still downloaded at my maximum internet speed. I took it one step further and toggled the “Block” option for Steam, and tried to resume the download, but Steam kept on downloading at the maximum speed. The software was successful in blocking Chrome when that option was switched on, however.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Software: Just enough options**
 
  The HP OMEN Obelisk comes with the OMEN Command Center, which is used to manage your desktop as well as any other OMEN products such as headsets, keyboards, and mice. From here, you have the option to click on your desktop and start managing your PC or choose from one of the various other options such as rewards, coaching, remote play, and My Games (a game launcher).
@@ -166,7 +166,7 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **HP OMEN Obelisk vs Corsair One Pro**
@@ -215,21 +215,24 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-cost-effective-subscriber-growth-hundreds-at-a-bargain-price/"><u>[New] 2024 Approved Cost-Effective Subscriber Growth - Hundreds at a Bargain Price</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-expert-recommendations-for-downloading-snapchat-tunes/"><u>[Updated] Expert Recommendations for Downloading Snapchat Tunes</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-purefocuserase-professionally-crafted-photo-editor/"><u>[Updated] In 2024, PureFocusErase Professionally Crafted Photo Editor</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-samsung-galaxy-watch-active-enhancing-your-wellbeing-journey/"><u>Comprehensive Review of the Samsung Galaxy Watch Active - Enhancing Your Wellbeing Journey</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-next-level-gaming-with-corsair-one-pro-an-expert-take/"><u>Experience Next-Level Gaming with Corsair One Pro – An Expert Take</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/explore-the-potential-of-wonder-workshops-dash-a-full-review/"><u>Explore the Potential of Wonder Workshop's Dash: A Full Review</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/fun-flicks-online-must-see-comedy-streaming-stations-for-2024/"><u>Fun Flicks Online Must-See Comedy Streaming Stations for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/furbo-dog-camera-review-the-best-overall/"><u>Furbo Dog Camera Review: The Best Overall</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-chatgpt-overlooks-its-own-syntax/"><u>How ChatGPT Overlooks Its Own Syntax</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-premium-slideshow-tools-for-iphone-series-9-13-xr-ios13/"><u>In 2024, Premium Slideshow Tools For iPhone Series 9-13 (XR-iOS13)</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-the-noobs-manual-to-saving-streaming-radio-lines/"><u>In 2024, The Noob's Manual to Saving Streaming Radio Lines</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/singing-machine-sml385btbk-karaoke-review/"><u>Singing Machine SML385BTBK Karaoke Review</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/solutions-for-resolving-the-missing-msvcr80dll-file-problem/"><u>Solutions for Resolving the 'Missing MSVCR80.DLL' File Problem</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/test-drive-exploring-features-of-the-innovative-ampage-andes-1500-portable-generator/"><u>Test Drive: Exploring Features of the Innovative Ampage Andes 1500 Portable Generator</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshoot-and-solve-microsoft-edge-freezing-problems-in-windows-nt/"><u>Troubleshoot and Solve Microsoft Edge Freezing Problems in Windows nT</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-best-features-of-nokia-71-impressive-screen-clarity-superior-camera-quality-and-budget-friendly-price-point/"><u>Unveiling the Best Features of Nokia 7.1: Impressive Screen Clarity, Superior Camera Quality, and Budget-Friendly Price Point</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-complete-examination-screenflow-full-features-for-mac/"><u>[New] 2024 Approved Complete Examination ScreenFlow Full Features for Mac</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-simplicity-in-capturing-your-lenovo-pics/"><u>[New] 2024 Approved Simplicity in Capturing Your Lenovo Pics</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-speak-out-leverage-ai-gratis/"><u>[New] Speak Out, Leverage AI Gratis</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-the-evolutionary-saga-of-vr-worlds-for-2024/"><u>[Updated] The Evolutionary Saga of VR Worlds for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-visual-voyage-your-guide-to-broadcasting-vids-with-confidence-on-facebook/"><u>2024 Approved Visual Voyage Your Guide to Broadcasting Vids with Confidence on Facebook</u></a></li>
+<li><a href="https://article-tips.techidaily.com/a-guide-to-unwavering-visual-captures/"><u>A Guide to Unwavering Visual Captures</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-newest-hp-z440-workstation-graphics-driver-here/"><u>Get the Newest HP Z440 Workstation Graphics Driver Here</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-for-security-reasons-from-iphone-7-find-the-best-solution-here-by-drfone-ios/"><u>In 2024, Apple ID Locked for Security Reasons From iPhone 7? Find the Best Solution Here</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-unveiling-igtv-insights-key-measures-for-effective-content/"><u>In 2024, Unveiling IGTV Insights Key Measures for Effective Content</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-the-lg-k92-worth-your-money-just-based-on-its-5g-technology-our-review-explains/"><u>Is the LG K92 Worth Your Money Just Based on Its 5G Technology? Our Review Explains!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/jumpstart-your-win11-experience-with-a-pro-upgrade/"><u>Jumpstart Your Win11 Experience with a Pro Upgrade</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-cable-modemrouter-duos-the-ultimate-guide/"><u>Leading Cable Modem/Router Duos: The Ultimate Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/mastering-the-art-of-streaming-via-obs-into-social-networks-for-2024/"><u>Mastering the Art of Streaming via OBS Into Social Networks for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigate-with-ease-and-accuracy-using-sabrents-sleek-corded-travel-mouse/"><u>Navigate with Ease and Accuracy Using Sabrent's Sleek, Corded Travel Mouse</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/playstation-or-xbox-no-were-comparing-nintendos-switch-lite-to-oled/"><u>PlayStation or Xbox? No, We're Comparing Nintendo's Switch Lite to OLED</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/power-saving-hardware-longer-battery-life/"><u>Power-Saving Hardware: Longer Battery Life</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/powerline-performance-vs-aesthetics-in-the-tp-link-av2000-adapter-reviews-and-insights/"><u>Powerline Performance Vs. Aesthetics in the TP-Link AV2000 Adapter - Reviews and Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-the-romer-portable-charge-up-searchlight-a-reliable-and-high-powered-nighttime-beacon/"><u>Review of the Romer Portable Charge-Up Searchlight: A Reliable & High-Powered Nighttime Beacon</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/small-business-lifeline-finding-high-performance-meets-durability-in-laptops/"><u>Small Business Lifeline: Finding High Performance Meets Durability in Laptops</u></a></li>
 </ul></div>
 
