@@ -1,7 +1,7 @@
 ---
 title: 5 Important Points for Buyers of Previously Owned Apple iPads
-date: 2024-12-23T01:26:40.660Z
-updated: 2024-12-24T17:38:51.964Z
+date: 2024-12-29T17:26:52.510Z
+updated: 2025-01-03T16:21:22.907Z
 categories:
   - BestProducts
 description: This Article Describes 5 Important Points for Buyers of Previously Owned Apple iPads
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/b5dfde40e2a9ad5275b840b5f0fbb161aac4de7d7
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/JA3JlwOuidCKxo4M92FWCfYUoI4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -40,10 +44,6 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/8XGs9qzQ6hLIBySEKXEvBMfEkq4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Kelsey Simon
 
 [View On Amazon](https://www.amazon.com/dp/B075NFTX36/?tag=lifewire-onsite-prod-20&ascsubtag=4685718%7Cn0dc423de187c40659bf9fd9ffcd5e7ec22%7CB075NFTX36) [View On Walmart](https://www.walmart.com/ip/829171723)
@@ -66,6 +66,10 @@ Lifewire / Kelsey Simon
 
  The Elder Scrolls V: Skyrim is an action role-playing game focused on single-player immersion in a fantasy world. It was originally released in 2011 and has most recently been ported over to the Switch. We took a close look at this game on its newest platform, playing it on the go to test the handheld gameplay experience, along with the plot and graphics.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Simple for all users**
 
  As with other games on the Nintendo Switch, you’ll need to insert the cartridge into your device. Skyrim does take a while to launch, so be patient as it loads up. There shouldn’t be any special downloads required, like with other games, and as soon as things load you’ll be able to play.
@@ -73,6 +77,10 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/uXDVHaBrdIlv5tI-qRgiPK0Iig4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460721-e6a53664e7eb4e65a75bf5cceb928e28.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Plot: A huge world with loads to explore**
 
@@ -94,10 +102,6 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Gameplay: Not as smooth as on other platforms**
 
  The first real interactive thing you do with the game is to create your character, and true to other Elder Scrolls games, you can change your character’s appearance in the most minute way. Pick your race, gender, hairstyle, eye color, and even tweak the height of your cheekbones and brows if you want. This is the first sign of just how encompassing and involved the role-playing aspects of Skyrim are.
@@ -116,23 +120,15 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/2Fk-UTwglmoCdE7IXrXqlnXs9do=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460712-6cec58625d13430db671be3144451cbc.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Graphics: A bit outdated**
 
  The graphics in Skyrim aren’t awful, but they haven't progressed much since 2011\. If you’ve played any other version of Skyrim, you can overlook it, simply because you know what you’re getting into. Bethesda attempted to make Skyrim look realistic, likely in their desire to give you a fully immersive experience. But these days, Skyrim’s graphics just aren’t as realistic as what other, more recent games have accomplished. In places, the mountains look blocky and the grass a little patchy. Character’s faces sometimes seem deeply sunken around the eyes, with the skin looking more like leather than flesh. It’s not that the graphics are overly bad, they’re just not as good as what you can get with better hardware on the PC.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Platform: Take Skyrim on the go**
 
@@ -148,10 +144,6 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: A tad expensive**
 
  The Elder Scrolls V: Skyrim costs roughly $60 dollars for the Switch (MSRP). You might be able to find it on sale on Amazon for less, but it’s still on the more expensive side like other popular Switch games. This is disappointing since you can find Skyrim on other platforms for a fraction of the cost, even snatching it up for sale on Steam for $25 or less on PC. Considering the cost difference, the PC version of the game is the better deal, especially since the gameplay is better looking. But if you’re looking to take Skyrim on the go, or a Switch is your preferred gaming system, the price isn’t unreasonable.
@@ -159,6 +151,10 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Other action RPGs**
 
@@ -169,6 +165,10 @@ Lifewire / Kelsey Simon
 **Good if you want to play on the go.**
 
  Even though The Elder Scrolls V: Skyrim is a great game and the Switch is an amazing platform, our advice is only to buy Skyrim for the Switch if you’re looking to play on the go. Otherwise, we’d suggest purchasing Skyrim for the PC, where you’ll really be able to enjoy superior graphics and customization options.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -198,20 +198,19 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-liberate-yourself-with-free-movie-player-software/"><u>[New] Liberate Yourself with FREE MOVIE PLAYER Software</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-hassle-free-hd-video-on-your-device/"><u>[Updated] Hassle-Free HD Video on Your Device</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-streamlining-vimeo-uploads-from-moviemaker-projects/"><u>[Updated] In 2024, Streamlining Vimeo Uploads From Moviemaker Projects</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/10-athletic-free-front-rows-for-relaxing/"><u>10 Athletic-Free Front Rows for Relaxing</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/enhanced-analytics-and-conversion-rates-with-cookiebot-technology/"><u>Enhanced Analytics and Conversion Rates with Cookiebot Technology</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722957272192-get-the-latest-brother-mfc-7360n-drivers-now-compatible-with-windows-11-8-and-7-download-here/"><u>Get the Latest Brother MFC-7360N Drivers Now! Compatible with Windows 11, 8 & 7 - Download Here!</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-charismatic-captions-instagrams-animated-text-guide/"><u>In 2024, Charismatic Captions Instagram's Animated Text Guide</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-innovation-in-action-top-video-editing-strategies/"><u>In 2024, Innovation in Action Top Video Editing Strategies</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Oppo F25 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-and-review-of-the-lenovo-flex-5-laptop/"><u>In-Depth Analysis & Review of the Lenovo Flex 5 Laptop</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-marvels-spider-man-miles-morales-the-significance-behind-its-intimate-storyline/"><u>In-Depth Look at Marvel’s Spider-Man: Miles Morales - The Significance Behind Its Intimate Storyline</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-nokia-abuse-review-stunning-display-and-imaging-capabilities-at-an-unbeatable-value/"><u>In-Depth Nokia Abuse Review - Stunning Display & Imaging Capabilities at an Unbeatable Value</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-offworld-trading-company-dominate-galactic-trade-and-empires/"><u>In-Depth Review of Offworld Trading Company: Dominate Galactic Trade and Empires</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/is-chatgpt-plus-a-smart-choice-for-you-unveiling-5-convincing-reasons-to-upgrade/"><u>Is ChatGPT Plus a Smart Choice for You? Unveiling 5 Convincing Reasons to Upgrade</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/is-it-worth-it-a-thorough-review-of-the-expensive-samsung-un65nu8000fxza-smart-television-set/"><u>Is It Worth It? A Thorough Review of the Expensive Samsung UN65#NU8000FXZA Smart Television Set</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-top-notch-voice-alteration-for-valorant-players-available-at-zero-cost/"><u>[Updated] 2024 Approved Top Notch Voice Alteration for Valorant Players - Available at Zero Cost</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-metaverse-vs-multiverse-whats-the-difference/"><u>2024 Approved Metaverse vs Multiverse What's the Difference?</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/6-methods-for-switching-from-apple-iphone-se-2020-to-samsung-drfone-by-drfone-transfer-from-ios/"><u>6 Methods for Switching from Apple iPhone SE (2020) to Samsung | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-locked-oppo-a56s-5g-phone-by-drfone-android/"><u>How to Reset a Locked Oppo A56s 5G Phone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-13-pro-to-other-iphone-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 13 Pro to other iPhone? | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-mac-efficiency-a-step-by-step-guide-to-configuring-and-utilizing-hot-corners-in-macos-unveiled-by-zdnet/"><u>Mastering Mac Efficiency: A Step-by-Step Guide to Configuring & Utilizing Hot Corners in macOS - Unveiled by ZDNet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reviewing-the-thrills-of-online-gaming-in-nhl-2019/"><u>Reviewing the Thrills of Online Gaming in NHL 2019</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/riding-through-the-undead-chaos-critical-analysis-of-days-gone-video-game/"><u>Riding Through the Undead Chaos: Critical Analysis of 'Days Gone' Video Game</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/series-4-apple-watch-a-glimpse-into-cutting-edge-wearable-technology-reviewed/"><u>Series 4 Apple Watch: A Glimpse Into Cutting-Edge Wearable Technology Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/showcase-crystal-clear-4k-with-the-sturdy-high-definition-hdr-55-veranda-tv-by-sunbrite/"><u>Showcase Crystal Clear 4K with the Sturdy, High-Definition HDR 55 Veranda TV by SunBrite</u></a></li>
+<li><a href="https://windows11.techidaily.com/steps-to-tackle-stranded-error-on-xbox-app-windows-devices/"><u>Steps to Tackle 'Stranded' Error on Xbox App Windows Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-assessing-the-quality-and-performance-of-long-range-radar-devices-with-a-focus-on-the-uniden-r3/"><u>The Ultimate Guide to Assessing the Quality & Performance of Long-Range Radar Devices, with a Focus on the Uniden R3</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-choosing-a-macbook-case-spotlight-on-twelve-souths-bookbook-v2/"><u>The Ultimate Guide to Choosing a MacBook Case: Spotlight on Twelve South's BookBook V2</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/ultimate-list-of-the-hottest-gaming-laptop-bargains-find-your-perfect-holiday-sale/"><u>Ultimate List of the Hottest Gaming Laptop Bargains – Find Your Perfect Holiday Sale .</u></a></li>
 </ul></div>
 

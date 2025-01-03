@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of the TP-Link RE305 Wireless Network Enhancer (AC1200)
-date: 2024-12-23T05:32:42.191Z
-updated: 2024-12-25T01:52:05.490Z
+date: 2024-12-31T17:44:08.144Z
+updated: 2025-01-03T18:40:45.734Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of the TP-Link RE305 Wireless Network Enhancer (AC1200)
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/u5Qf7KbfeDnZm8gfCxaxy8baBY0=/400x300/fi
 ## TP-Link RE305 AC1200 Wi-Fi Range Extender
 
 ![TP-Link AC1200 Wi-Fi Range Extender RE305](https://www.lifewire.com/thmb/JNtLTx9_CWWq4Wy4WH2D2pMI1qw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4LW4043312-0cb211cf35c746879e5136b3f9d62b63.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Claire Cohen
 
@@ -35,10 +39,6 @@ Lifewire / Claire Cohen
 [View On Amazon $38](https://www.amazon.com/dp/B01N8ROH7G/?tag=lifewire-onsite-prod-20&ascsubtag=4589559%7Cn7c9facd8b2a7476ea5e744a63f18481911%7CB01N8ROH7G) [View On Walmart $38](https://www.walmart.com/ip/TP-Link-RE305-AC1200-Wi-Fi-Range-Extender-works-with-any-router-or-WiFi-system/981199634) [View On Best Buy $50](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Ftp-link-ac1200-dual-band-wi-fi-range-extender-white%2F6295316.p)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## TP-Link RE305 AC1200 Wi-Fi Range Extender
 
@@ -87,10 +87,6 @@ Lifewire / Claire Cohen
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/PS8-Iywv5MsnOo99Fir-jNOiPF8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-4-5c924206c9e77c0001ff0bb8.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Claire Cohen
 
  You'll create a password, let the device scan your network for an applicable router, and then enter the SSID and password to your current wireless network from there. There are options to change the extender network’s SSID and password if you so choose, but otherwise, it’ll remain the same as your default network. Once completed, the 2.4 GHz and/or 5GHz lights on the device should come on, depending on[your router's functionality](https://www.lifewire.com/what-is-a-router-2618162) . The entire process from unboxing to surfing the web took about 7 minutes.
@@ -101,6 +97,10 @@ Lifewire / Claire Cohen
 
  There is one important pain point, however, to keep in mind during setup. The extender's administrative password utilizes a default "admin/admin" login, so you'll want to change that to keep unauthorized users out. It can be changed via the TP-Link Tether app, which isn't clearly lined out in the instructions. It isn't required, but if you want to keep your network as secure as possible, it's an important part of setup.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Connectivity and Network Performance:** **Strong, multi-device connectivity**
 
  Several devices were connected to our wireless network, including a MacBook Pro,[iPhone X](https://www.lifewire.com/iphone-x-4150706) , iPad Pro,[Nintendo Switch](https://www.lifewire.com/what-is-the-nintendo-switch-4148184) , and[PlayStation 4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) . When testing the wireless extender's range, at 10 feet to around 70 or so feet away from the router in a 2,100 square foot home, its signal was quite strong, with full bars on an iPhone X and iPad Pro in most areas. One bathroom on the first floor did suffer from occasionally spotty connectivity at around 1,500 feet away from the router.
@@ -110,7 +110,7 @@ Lifewire / Claire Cohen
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/Lyz1QcuQDPYlUp5pPBJiL0YKSag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-2-5c9241dcc9e77c0001a92785.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
@@ -121,15 +121,15 @@ Lifewire / Claire Cohen
 
  It's a bit bereft of some functionality for veteran extender users who may want to fiddle with settings and skip the "easy mode" setup, but it does its job particularly well. It even includes a[QR code](https://www.lifewire.com/scan-qr-codes-on-smartphone-4154658) to scan for users to download the wireless management app straight from the setup page. It doesn't take any real doing to reach this website either, and can be accessed at any time from the network.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: A deal at any price**
 
  At a list price of $59.99, the RE305 is a fantastic deal, considering it's typically on sale for much cheaper, often $10 to $15 less than retail. It isn't TP-Link's lowest-end option, but the performance and speeds offered for the price are certainly more than your money's worth, especially if you live in a larger home and pay for higher internet speeds. It’s important to keep in mind that it won’t include all the features you’ll get with pricier extenders like multiple ethernet ports or additional antennas, but this basic setup is just about all the average user needs, anyway.
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/bG-oXoYxR83gVSUH4vzz37hfYxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-1-5c92424b46e0fb000172f127.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
 
@@ -146,7 +146,7 @@ Lifewire / Claire Cohen
  The TP-Link AC1200 Wi-Fi Range Extender RE305 is a no-frills extender with supports dual-band Wi-Fi support and an Ethernet port for wired connectivity. It won’t fare well in homes beyond 2,000 square feet, but it's a value-priced extender that can be relied on at shorter ranges.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -182,18 +182,24 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/updated-rhythm-on-rings-creating-tamil-ringtone-playlists-for-2024/"><u>[Updated] Rhythm on Rings Creating Tamil Ringtone Playlists for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-comprehensive-guide-to-using-your-blink-outdoor-multi-wireless-cameras-effectively/"><u>A Comprehensive Guide to Using Your Blink Outdoor Multi-Wireless Cameras Effectively</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-oppo-reno-10-5g-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Oppo Reno 10 5G Phone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unlocking-visual-treasures-without-cost/"><u>In 2024, Unlocking Visual Treasures Without Cost</u></a></li>
-<li><a href="https://win-answers.techidaily.com/jurassic-world-evolution-troubleshooting-how-to-stop-games-from-crashing/"><u>Jurassic World Evolution Troubleshooting: How to Stop Games From Crashing</u></a></li>
-<li><a href="https://ai-editing-video.techidaily.com/new-motion-blur-photo-with-gimp-step-by-step-guide-for-2024/"><u>New Motion Blur Photo With GIMP Step-By-Step Guide for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/stay-active-in-style-discover-how-the-garmin-vivomove-hr-enhances-daily-workouts/"><u>Stay Active in Style: Discover How the Garmin Vivomove HR Enhances Daily Workouts</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/understanding-and-fixing-invalid-response-errors-for-itunes-iphone-connections/"><u>Understanding and Fixing 'Invalid Response' Errors for iTunes-iPhone Connections</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unparalleled-performance-a-detailed-review-of-the-xbox-one-elite-series-2-controller-a-legendary-gamepad/"><u>Unparalleled Performance: A Detailed Review of the Xbox One Elite Series 2 Controller, a Legendary Gamepad</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-best-mid-range-tablet-experience-with-samsung-galaxy-tab-s7-for-android-users/"><u>Unveiling the Best Mid-Range Tablet Experience with Samsung Galaxy Tab S7 for Android Users</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-best-of-affordable-tech-in-depth-guide-to-pruveeos-1080p-full-hd-dash-cam/"><u>Unveiling the Best of Affordable Tech: In-Depth Guide to Pruveeo's 1080P Full HD Dash Cam</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-strengths-and-mobility-of-the-pioneer-bdr-xs0ebuilding-review-a-closer-look-at-its-blu-ray-writing-capabilities/"><u>Unveiling the Strengths & Mobility of the Pioneer BDR-XS0ebuilding Review: A Closer Look at Its Blu-Ray Writing Capabilities</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/wondering-about-chatgpt-plus-worth-unveil-5-compelling-advantages-to-upgrade-your-ai-experience/"><u>Wondering About ChatGPT Plus Worth? Unveil 5 Compelling Advantages to Upgrade Your AI Experience</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ransforming-youtube-content-for-igtv-success/"><u>[New] Transforming YouTube Content for IGTV Success</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-ultimate-tutorial-uploading-360-degree-footage-on-facebook/"><u>[New] Ultimate Tutorial Uploading 360-Degree Footage on Facebook</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/73266382-updated-2024-approved-enter-the-world-of-online-promotion-exclusive-free-youtube-banner-access/"><u>[Updated] 2024 Approved Enter the World of Online Promotion Exclusive Free YouTube Banner Access!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1-espn-launches-exclusive-joint-venture-in-sports-live-streaming-at-just-4299mo-get-ready/"><u>1) ESPN Launches Exclusive Joint Venture in Sports Live-Streaming at Just $42.99/Mo - Get Ready!</u></a></li>
+<li><a href="https://extra-information.techidaily.com/budget-drone-selection-the-ultimate-list-for-(100/"><u>Budget Drone Selection The Ultimate List for <$100</u></a></li>
+<li><a href="https://games-able.techidaily.com/enhancing-playstation-5-security-with-an-effective-password-system/"><u>Enhancing PlayStation 5 Security with an Effective Password System</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-xiaomi-redmi-12-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Xiaomi Redmi 12 to PC? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-audiovisual-harmony-adding-sounds-to-instagram-clips/"><u>In 2024, Audiovisual Harmony Adding Sounds to Instagram Clips</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-prime-techniques-converting-visual-content-on-pinterest-to-mp3s/"><u>In 2024, Prime Techniques Converting Visual Content on Pinterest To MP3s</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/simplify-your-social-media-uploading-multiple-photos-and-vids-on-ig/"><u>Simplify Your Social Media Uploading Multiple Photos and Vids on IG</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-apple-vision-pro-in-action-a-look-at-its-transformative-role-across-top-businesses-insights-from-zdnet/"><u>The Apple Vision Pro in Action: A Look at Its Transformative Role Across Top Businesses - Insights From ZDNet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-truth-behind-steam-deck-security-certification-should-you-doubt-it/"><u>The Truth Behind Steam Deck Security Certification – Should You Doubt It?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-how-game-controllers-elevate-your-pc-gaming-experience/"><u>The Ultimate Guide: How Game Controllers Elevate Your PC Gaming Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-reason-behind-my-decision-no-more-game-subscriptions/"><u>The Ultimate Reason Behind My Decision: No More Game Subscriptions!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/troubleshooting-ea-app-issues-quick-solutions-to-restore-functionality/"><u>Troubleshooting EA App Issues - Quick Solutions to Restore Functionality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/troubleshooting-your-fire-tv-stick-top-7-fixes-for-common-issues/"><u>Troubleshooting Your Fire TV Stick: Top 7 Fixes for Common Issues</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleashing-the-full-power-of-google-tv-top-10-features-every-user-needs-to-know/"><u>Unleashing the Full Power of Google TV: Top 10 Features Every User Needs to Know</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlock-epic-deals-for-iphone-gamers-shop-now-before-prime-day-ends/"><u>Unlock Epic Deals for iPhone Gamers – Shop Now Before Prime Day Ends!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlock-immediate-savings-drop-90-off-your-directtv-stream-subscription-with-our-promo/"><u>Unlock Immediate Savings: Drop $90 Off Your DIRECTTV Stream Subscription with Our Promo!</u></a></li>
 </ul></div>
 

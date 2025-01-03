@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Features of the New Kobo Clara Colour
-date: 2024-12-18T16:50:20.424Z
-updated: 2024-12-24T18:33:57.756Z
+date: 2024-12-29T16:28:04.574Z
+updated: 2025-01-03T18:14:06.290Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Features of the New Kobo Clara Colour
@@ -40,12 +40,16 @@ Lifewire / Emily Ramirez
 2.8
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -71,6 +75,10 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/U_vmwZDe5HbbungQ5L2hzf2LVto=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-4-b0d1cca56ec04a61b83e20d1cecf2aea.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
 ## **Design: Sleek and convenient**
@@ -85,10 +93,6 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process/Installation: Easy install, irritating setup**
 
  To install the hardware, we popped open our mid-size PC tower and inserted the sound card and daughter board into two available PCIe slots. Creative Labs had the foresight to build the main card with a PCIe 1x slots, giving the user flexibility in where they connect their cards to the motherboard. Once the cards were secured, we plugged the headphones and microphone into the corresponding jacks.
@@ -99,10 +103,6 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
 
 ## **Audio: Excellent sound**
@@ -112,6 +112,10 @@ Lifewire / Emily Ramirez
  Should you happen to own dynamic headphones, you should find their impedance curve. Dynamic headphones with a high impedance may be distorted by the ACM, thanks to the ACM’s high resistance. How your headphones will be affected depends on their impedance curve: for the HD800s, for example, there is a peak at 100Hz (this range captures electric bass and the lower octaves of guitars), so the upper bass range is boosted relative to the other frequencies in the audio. Increasing the volume on the ACM reduces its output resistance and in turn reduces the distortion, but it may be easier to plug equipment directly into the sound card and use the system volume instead.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -124,16 +128,12 @@ Lifewire / Emily Ramirez
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
 
@@ -155,14 +155,14 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -202,17 +202,20 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-the-definitive-guide-to-capturing-your-streams-netflix-mac-edition/"><u>2024 Approved The Definitive Guide to Capturing Your Streams Netflix Mac Edition</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-watch-without-limits-15plus-free-apps-to-save-your-favorite-content/"><u>2024 Approved Watch Without Limits 15+ Free Apps to Save Your Favorite Content</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/fun-and-educational-racing-with-holy-stone-rc-cars-for-kids-a-comprehensive-guide/"><u>Fun and Educational Racing with Holy Stone RC Cars for Kids: A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/hero9-black-review-cutting-edge-yet-pricey/"><u>HERO9 Black Review: Cutting-Edge, Yet Pricey</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/how-to-retrieve-accidentally-erased-notes-from-your-iphone-using-specialized-software/"><u>How to Retrieve Accidentally Erased Notes From Your iPhone Using Specialized Software</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/imperator-rome-strategy-review-mastery-or-downfall/"><u>Imperator: Rome Strategy Review - Mastery or Downfall?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-the-best-storytelling-techniques-to-grow-your-youtube-channel/"><u>In 2024, The Best Storytelling Techniques to Grow Your YouTube Channel</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-and-expert-insight-on-rings-smart-doorbell-pro-with-enhanced-battery/"><u>In-Depth Analysis and Expert Insight on Ring's Smart Doorbell Pro with Enhanced Battery</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-sumind-bt70b-bluetooth-transmitter-a-revolutionary-car-audio-solution/"><u>In-Depth Look at the Sumind BT70B Bluetooth Transmitter: A Revolutionary Car Audio Solution</u></a></li>
-<li><a href="https://article-tips.techidaily.com/learn-the-layers-of-photography-with-snapseed/"><u>Learn the Layers of Photography with Snapseed</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/the-quintessential-selection-5-must-have-mac-snipers-for-2024/"><u>The Quintessential Selection 5 Must-Have Mac Snipers for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/1723808032293-windows-10-wont-boot-or-start-try-easy-fixes/"><u>Windows 10 Won’t Boot or Start? Try Easy Fixes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-seamless-integration-of-titles-on-videos-using-windows-photos-for-2024/"><u>[New] Seamless Integration of Titles on Videos Using Windows Photos for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-guiding-adding-songs-to-your-yt-channel-for-2024/"><u>[Updated] Guiding Adding Songs to Your YT Channel for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/diagnosing-and-fixing-problems-with-your-inactive-samsung-soundbar-a-comprehensive-guide/"><u>Diagnosing and Fixing Problems with Your Inactive Samsung Soundbar: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/eco-effect-filmmaking-youtubes-guide-to-green-magic/"><u>Eco-Effect Filmmaking YouTube's Guide to Green Magic</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-the-two-factor-authentication-from-apple-iphone-13-pro-max-by-drfone-ios/"><u>In 2024, How To Remove the Two Factor Authentication From Apple iPhone 13 Pro Max</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagrams-most-reliable-grid-creation-tools-countdown-to-top-ten/"><u>Instagram's Most Reliable Grid Creation Tools, Countdown to Top Ten</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-the-art-of-imagery-on-macos-unveiling-previews-powerful-editing-capabilities/"><u>Mastering the Art of Imagery on macOS: Unveiling Preview's Powerful Editing Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/on-the-go-bibliophiles-rejoice-with-kobo-clara-hd-top-portable-e-reader-unveiled/"><u>On-the-Go Bibliophiles Rejoice with Kobo Clara HD - Top Portable E-Reader Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/overcooked-2-game-analysis-relishing-pandemonium-in-cooking-frenzy/"><u>Overcooked! 2 Game Analysis: Relishing Pandemonium in Cooking Frenzy</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/prime-position-tripod-essential-for-adventures/"><u>Prime Position Tripod: Essential for Adventures</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/star-wars-squadrons-gameplay-breakdown-a-riveting-journey-through-interstellar-combat/"><u>Star Wars: Squadrons Gameplay Breakdown - A Riveting Journey Through Interstellar Combat</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/swagtron-swagboard-t1-a-step-up-for-fitness-enthusiasts-despite-its-premium-price-point/"><u>Swagtron Swagboard T1 - A Step Up for Fitness Enthusiasts, Despite Its Premium Price Point</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-6-solutions-when-family-sharing-subscription-links-fail/"><u>Top 6 Solutions When Family Sharing Subscription Links Fail</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshoot-your-pcs-audio-problems-in-just-five-simple-steps/"><u>Troubleshoot Your PC's Audio Problems in Just Five Simple Steps!</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unparalleled-vr-game-setups-top-8-edition/"><u>Unparalleled VR Game Setups Top 8 Edition</u></a></li>
 </ul></div>
 

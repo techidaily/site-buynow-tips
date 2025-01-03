@@ -1,7 +1,7 @@
 ---
 title: "Holy Stone HS170 Predator Mini RC Helicopter Drone Review: A Drone on a Budget"
-date: 2024-12-19T20:21:49.895Z
-updated: 2024-12-25T11:06:58.368Z
+date: 2024-12-31T16:19:42.992Z
+updated: 2025-01-03T16:50:15.869Z
 categories:
   - BestProducts
 description: "This Article Describes Holy Stone HS170 Predator Mini RC Helicopter Drone Review: A Drone on a Budget"
@@ -13,17 +13,9 @@ thumbnail: https://thmb.techidaily.com/05c8c6fd73c6fec22a2f538188954b893a706bcf3
 
 3
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Netgear C3000 Cable Modem Router
 
 ![Netgear C3000](https://www.lifewire.com/thmb/r2nn71mNtfamPTZ4ju27N_m1tIk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-4_1-3b77a598c3cd4836b8b632578b3b437e.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Bill Thomas
 
@@ -48,6 +40,10 @@ Lifewire / Bill Thomas
 ## Netgear C3000 Cable Modem Router
 
 ![Netgear C3000](https://www.lifewire.com/thmb/Ga2OrNlpcgoBAByp_iB08VrN5h0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-4_1-3b77a598c3cd4836b8b632578b3b437e.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Bill Thomas
 
@@ -91,18 +87,18 @@ Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/8U-jHJ6otxXt5vRq8FVLubPNOpI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_2-a6aa93cceeaf4d9ca6bb0d989200b2ea.jpg)
 
- Lifewire / Bill Thomas
-
-![Netgear C3000](https://www.lifewire.com/thmb/7eGgp_5LZf8d-PMDe578GB4_hEI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_5-7c5c666203504b9ab932de0b70f14522.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
+![Netgear C3000](https://www.lifewire.com/thmb/7eGgp_5LZf8d-PMDe578GB4_hEI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_5-7c5c666203504b9ab932de0b70f14522.jpg)
+
+ Lifewire / Bill Thomas
+
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Setup Process: Exceptionally easy
@@ -117,11 +113,11 @@ Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/vmrfrWyvGROwVpR7Y2UQmaZOPEU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_6-e34bd6e4000f49c3b6a0d1653d23f6ff.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Bill Thomas
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Network Performance: Keep your expectations low
 
@@ -130,6 +126,10 @@ Lifewire / Bill Thomas
  The range was also an issue—in short, this will not suffice if you live in a mid-sized home or bigger. Just 300 feet away, behind a wall and a staircase, our wireless speeds dipped all the way down to 15 Mbps. This doesn’t really matter if you live in a studio apartment, but for everyone else, we’d recommend combining this modem with a[separate wireless router](https://www.lifewire.com/best-wireless-routers-4038590) .
 
  There is a silver lining: the wired performance is reliable. When connected this way, we consistently got our rated 250 Mbps speeds with little to no drops. We spent some time playing The Division 2 while hardwired into the Netgear C3000 and didn’t run into any lag. That’s surprising given that a 8x4 DOCSIS 3.0 modem is capable of just 343 Mbps download speeds. But Netgear delivered where it truly counts: modem performance.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Software: Pretty standard and easy to use
 
@@ -147,10 +147,6 @@ Lifewire / Bill Thomas
 
  Unless you’re dead-set on buying an all-in-one device, buying a separate modem and router is going to be the more economical option.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Netgear C3000 vs. TP-Link TC-W7960S
 
  In terms of competition, we looked at the TP-LINK TC-W7960S, which is almost identical spec-for-spec but more a bit more expensive. It will set you back $97 if you’re buying it full price. Fortunately, the TP-Link Modem has two more wired ports so you can have more devices hard-wired in, and you won’t have to rely so much on wireless. Either way, with so many devices these days needing wireless connections, picking up a dedicated wireless router is never a bad idea.
@@ -160,6 +156,10 @@ Lifewire / Bill Thomas
 **Only buy it if you can find it on sale.**
 
  The Netgear C3000 first hit the market more than five years ago, and it might have been worth the price of admission back then. These days, it’s hard to justify spending so much cash on a dated product. The modem gets the job done, but as soon as you rely on the built-in wireless router, you’re going to be in for a disappointment.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -200,19 +200,22 @@ Lifewire / Bill Thomas
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-revolutionizing-workouts-the-best-vr-treadmill-choices/"><u>[New] In 2024, Revolutionizing Workouts The Best VR Treadmill Choices</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-perfect-for-every-task-our-choice-in-8-5k-displays/"><u>[Updated] Perfect for Every Task Our Choice in 8 5K Displays</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-cut-to-the-chase-quick-background-blur-tricks-for-everyday-meets/"><u>2024 Approved Cut to the Chase Quick Background Blur Tricks for Everyday Meets</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-elevate-instagram-creativity-with-musical-elements/"><u>2024 Approved Elevate Instagram Creativity with Musical Elements</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-taking-control-the-hidden-tips-and-tricks-for-power-users-of-window-11/"><u>2024 Approved Taking Control The Hidden Tips and Tricks for Power Users of WINDOW 11</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/movavi-fixes-silent-skype-meeting-recordings-issue/"><u>Movavi Fixes Silent Skype Meeting Recordings Issue!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/nikons-z7-breakthrough-a-mirrorless-camera-of-unparalleled-quality/"><u>Nikon's Z7 Breakthrough: A Mirrorless Camera of Unparalleled Quality</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/nokia-71-assessment-stunning-display-and-imaging-capabilities-at-an-economical-cost/"><u>Nokia 7.1 Assessment: Stunning Display & Imaging Capabilities at an Economical Cost</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/peek-into-insta-stories-unseen-by-others/"><u>Peek Into Insta Stories Unseen by Others</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/redefining-efficiency-apple-macbook-air-m1-2020-a-thorough-analysis-of-the-groundbreaking-processor-technology/"><u>Redefining Efficiency: Apple MacBook Air (M1, 2020) - A Thorough Analysis of The Groundbreaking Processor Technology</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-assessing-the-velocity-and-stability-of-motorolas-mg7n-series/"><u>Review: Assessing the Velocity and Stability of Motorola's MG7n Series</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-s2-ultra-assessment-the-best-pick-in-the-world-of-android-devices/"><u>Samsung Galaxy S2 Ultra Assessment: The Best Pick in the World of Android Devices</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-resolution-for-correcting-error-0x800705b4-in-windows-10s-installation-and-update-process/"><u>Step-by-Step Resolution for Correcting Error 0X800705b4 in Windows 10'S Installation and Update Process</u></a></li>
-<li><a href="https://network-issues.techidaily.com/troubleshooting-c1900101-on-windows-11/"><u>Troubleshooting C1900101 on Windows 11</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-the-ultimate-rankings-best-9-web-based-mic-capture-options-for-2024/"><u>[New] The Ultimate Rankings Best 9 Web-Based Mic Capture Options for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-disabling-igtv-on-instagram-for-2024/"><u>[Updated] Disabling IGTV on Instagram for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/deep-dive-the-high-tech-world-of-dji-phantom-3-professional/"><u>Deep Dive The High-Tech World of DJI Phantom 3 Professional</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/efficient-iphone-information-retrieval-solutions-reliable-recovery-at-your-fingertips/"><u>Efficient iPhone Information Retrieval Solutions: Reliable Recovery at Your Fingertips</u></a></li>
+<li><a href="https://techtrends.techidaily.com/essential-guide-to-free-backup-systems-top-tier-picks-ratings-and-reviews-for-data-safety/"><u>Essential Guide to Free Backup Systems: Top-Tier Picks, Ratings & Reviews for Data Safety</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-navigating-new-design-horizons-the-leading-10-vector-apps/"><u>In 2024, Navigating New Design Horizons The Leading 10 Vector Apps</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mp3-to-wma-windows-10113/"><u>MP3 to WMA コンバータ: Windows 10/11でお薦めのフリーソフトトップ3</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/share-a-screen-double-the-fun-ultimate-selection-of-multiplayer-games-from-your-comfort-zone/"><u>Share a Screen, Double the Fun: Ultimate Selection of Multiplayer Games From Your Comfort Zone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/spotify-expands-with-a-surge-of-new-video-based-podcast-offerings/"><u>Spotify Expands with a Surge of New Video-Based Podcast Offerings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/starting-your-pc-gaming-journey-without-a-bulky-desktop-setup/"><u>Starting Your PC Gaming Journey Without a Bulky Desktop Setup</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/strategies-to-remove-youtube-trailers-and-clips/"><u>Strategies to Remove YouTube Trailers and Clips</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/stream-your-way-through-the-nfl-the-ultimate-guide-to-using-five-essential-services/"><u>Stream Your Way Through the NFL: The Ultimate Guide to Using Five Essential Services</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/streamline-your-exercise-routine-by-linking-spotify-to-fitbit-for-seamless-music-control/"><u>Streamline Your Exercise Routine by Linking Spotify to Fitbit for Seamless Music Control</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-tutorial-access-and-enjoy-twitch-live-streams-using-roku-tv/"><u>The Ultimate Tutorial: Access and Enjoy Twitch Live Streams Using Roku TV</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-10-stunning-classic-titles-to-test-the-limits-of-your-modern-gaming-rig/"><u>Top 10 Stunning Classic Titles to Test the Limits of Your Modern Gaming Rig</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-5-advantages-of-retro-gaming-handheld-devices-over-mobile-games/"><u>Top 5 Advantages of Retro Gaming Handheld Devices Over Mobile Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-secrets-private-facebook-exploration-guide/"><u>Unveiling Secrets: Private Facebook Exploration Guide</u></a></li>
 </ul></div>
 

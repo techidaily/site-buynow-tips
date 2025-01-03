@@ -1,7 +1,7 @@
 ---
 title: "Navigating the Stars with Offworld Trading Company: A Critical Guide to Dominating Intergalactic Commerce"
-date: 2024-12-19T23:10:28.168Z
-updated: 2024-12-25T05:21:52.819Z
+date: 2024-12-31T19:05:41.724Z
+updated: 2025-01-03T18:57:56.042Z
 categories:
   - BestProducts
 description: "This Article Describes Navigating the Stars with Offworld Trading Company: A Critical Guide to Dominating Intergalactic Commerce"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/b9ef13db0d4015b8f432338d38cc3c79dffc2187f
 ## Crafting a New Reality in Torment: A Comprehensive Guide to Science Fiction RPG and Its Unique Setting in Numenera
 
 2.7
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## inXile Entertainment Torment: Tides of Numenera
 
@@ -37,7 +41,7 @@ Lifewire / Kelsey Simon
 2.7
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## inXile Entertainment Torment: Tides of Numenera
@@ -62,10 +66,6 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
@@ -73,7 +73,7 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -114,6 +114,10 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Only worth it if you’re keen on the story**
 
  Torment: Tides of Numenera is still an expensive game, costing $50 on[Steam](https://www.lifewire.com/best-free-steam-games-4176308) when it’s not on sale. It’s a game created with a very specific type of player in mind―and I suspect most people are not going to like it.
@@ -121,10 +125,6 @@ Lifewire / Kelsey Simon
  That said, if role-playing games with a text-heavy focus are of interest to you, then the game does have a lot to offer for the cost. The world of Numenera is vast, and considering all the prompts that alter the story, the game also has a lot of replayability. While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else, and for those players, the $50 cost will be worth it.
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Other story focused RPGs**
 
@@ -139,7 +139,7 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -165,24 +165,16 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/dentify-the-best-8-services-to-enhance-youtube-engagement/"><u>[New] Identify the Best 8 Services to Enhance YouTube Engagement</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-novices-guide-to-photo-enhancements-with-photoshop/"><u>[Updated] In 2024, Novice's Guide to Photo Enhancements with Photoshop</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/convert-raw-photographs-with-darktable-complimentary-editing-tool-on-maclinux-systems/"><u>Convert RAW Photographs with Darktable - Complimentary Editing Tool on Mac/Linux Systems</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/corporate-decisions-five-momentous-reasons-against-gpt-deployment/"><u>Corporate Decisions: Five Momentous Reasons Against GPT Deployment</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/decoding-the-variations-understanding-ipad-against-ipad-air/"><u>Decoding the Variations: Understanding iPad Against iPad Air</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/eco-dot-and-homepod-mini-head-to-head-identifying-the-disparities/"><u>Eco Dot and HomePod Mini Head-to-Head: Identifying the Disparities</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ensure-that-the-tone-remains-supportive-and-encouraging-without-diminishing-any-treatment-options-value/"><u>Ensure that the Tone Remains Supportive and Encouraging without Diminishing Any Treatment Options' Value</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ergodriven-topo-mat-review-a-step-towards-a-comfortable-and-healthy-office-life-with-the-best-standing-desk-accessory/"><u>Ergodriven Topo Mat Review: A Step Towards a Comfortable and Healthy Office Life with the Best Standing Desk Accessory</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/essential-elements-to-evaluate-when-choosing-a-non-carrier-locked-phone/"><u>Essential Elements to Evaluate When Choosing a Non-Carrier Locked Phone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exclusive-savings-ultimate-cyber-monday-offers-for-tribit-audio-products/"><u>Exclusive Savings: Ultimate Cyber Monday Offers for Tribit Audio Products</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-top-performance-with-linksys-wrt3200acm-leading-open-source-wifi-router-comparison/"><u>Experience Top Performance with Linksys WRT3200ACM: Leading Open-Source WiFi Router Comparison</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/expert-choice-list-ultimate-streaming-audio-gear/"><u>Expert Choice List Ultimate Streaming Audio Gear</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-insights-into-the-latest-fitbit-charge-n-model-a-comprehensive-review/"><u>Expert Insights Into the Latest Fitbit Charge N Model - A Comprehensive Review</u></a></li>
-<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-xiaomi-redmi-k70-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/how-cookiebot-empowers-your-website-with-smart-tracking-solutions/"><u>How Cookiebot Empowers Your Website with Smart Tracking Solutions</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-oneplus-nord-3-5g-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on OnePlus Nord 3 5G</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-infinix-smart-8-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Infinix Smart 8 Like A Pro 5 Easy Ways</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-top-6-youtube-outro-makers-lots-of-free-options/"><u>In 2024, Top 6 YouTube Outro Makers-Lots of FREE Options!</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/solving-the-mystery-behind-a-suddenly-inoperative-car-radio-system/"><u>Solving the Mystery Behind a Suddenly Inoperative Car Radio System</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-tp-link-archer-c50-router-evaluation-cost-effective-features-and-value/"><u>Affordable TP-Link Archer C50 Router Evaluation: Cost-Effective Features and Value</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ai-assisted-zen-overcoming-stress/"><u>AI-Assisted Zen: Overcoming Stress</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-how-roku-express-offers-great-value-for-money-with-a-massive-library-of-entertainment/"><u>Discover How Roku Express Offers Great Value for Money with a Massive Library of Entertainment</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ting-your-youtube-content-selecting-professional-gear-for-2024/"><u>Elevating Your YouTube Content Selecting Professional Gear for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-messages-from-s17-by-fonelab-android-recover-messages/"><u>How to Rescue Lost Messages from S17</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Huawei Nova Y71 | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-top-notch-solutions-for-disabled-apple-id-from-iphone-12-making-it-possible-by-drfone-ios/"><u>In 2024, Top-Notch Solutions for Disabled Apple ID From iPhone 12 Making It Possible</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-extollo-lansocket-1500-next-level-data-rates-reduced-latency-and-efficient-energy-transfer/"><u>The Ultimate Review of Extollo LANSocket 1500: Next-Level Data Rates, Reduced Latency, and Efficient Energy Transfer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-moto-g-stylus-exceptional-specs-with-long-lasting-power-and-convenient-scribing-feature/"><u>The Ultimate Review of Moto G Stylus - Exceptional Specs with Long-Lasting Power & Convenient Scribing Feature</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshooting-mp4-format-compatibility-with-apple-tv-for-smooth-viewing-experience/"><u>Troubleshooting MP4 Format Compatibility with Apple TV for Smooth Viewing Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-why-the-microsoft-surface-laptop-4-reigns-supreme/"><u>Ultimate Guide: Why the Microsoft Surface Laptop 4 Reigns Supreme</u></a></li>
 </ul></div>
 

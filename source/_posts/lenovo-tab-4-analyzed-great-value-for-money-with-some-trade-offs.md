@@ -1,7 +1,7 @@
 ---
 title: "Lenovo Tab 4 Analyzed: Great Value for Money with Some Trade-Offs"
-date: 2024-12-21T02:11:11.291Z
-updated: 2024-12-25T09:14:18.280Z
+date: 2024-12-28T16:44:54.767Z
+updated: 2025-01-03T18:48:36.847Z
 categories:
   - BestProducts
 description: "This Article Describes Lenovo Tab 4 Analyzed: Great Value for Money with Some Trade-Offs"
@@ -13,12 +13,16 @@ thumbnail: https://thmb.techidaily.com/21ec111232ea695810b8b161c545d6d8dc411e7ee
 
 4.3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/NltNTWtb6Y6gHFCHDQXlLsrWKTI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
@@ -43,13 +47,13 @@ Lifewire / Andy Zahn
 
 4.3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -99,6 +103,10 @@ Lifewire / Andy Zahn
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
@@ -113,6 +121,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Autofocus: Blazing fast**
 
  We were shocked by how fast and consistent the autofocus is in the SX70 HS, even in low-light situations. It rarely fails to lock on to your intended subject, and focus tracking works flawlessly.
@@ -120,6 +132,10 @@ Lifewire / Andy Zahn
  The autofocus is really one of the standout features of the SX70 HS—it makes the camera ideal for anyone who will be photographing fast and erratic subjects. Whether you’re capturing precious family moments, sporting events, or wildlife, the SX70 HS will really help ensure you get the shot when it counts the most.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
 
@@ -137,10 +153,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -155,10 +167,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Video Quality: A mixed bag**
 
  The SX70 HS fumbles a bit when it comes to video. It’s no slouch by any means, but the footage is nothing to brag about. You can record up to 4K resolution, but unfortunately, the camera has to crop in to record at this resolution. Also, we found that footage is never especially sharp compared to other cameras.
@@ -172,10 +180,6 @@ Lifewire / Andy Zahn
  Time-lapse mode is where the SX70 HS really shines in terms of video. You can easily access this mode via the menu system, and there is a wide range of customizable options available. For those not experienced with time-lapse video, you can simply select from one of three subject-based settings. Time-lapses can be recorded at up to 4K resolution and truly excellent quality.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Software: Lots of options**
 
@@ -215,10 +219,6 @@ Lifewire / Andy Zahn
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  PowerShot SX70
@@ -253,24 +253,18 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-essential-guide-to-aiseesofts-screencasting-features/"><u>[New] Essential Guide to Aiseesoft's Screencasting Features</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-webinar-recording-tactics-zero-price-strategy/"><u>[New] In 2024, Webinar Recording Tactics Zero Price Strategy</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-easy-access-to-expert-tech-insights/"><u>2024 Approved Easy Access to Expert Tech Insights</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensively-upgrade-windows-10-from-home-to-pro/"><u>Comprehensively Upgrade Windows 10 From Home to Pro</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/digitale-zettelabfrage-in-munchens-hauptstadt-innovatives-wahlverfahren/"><u>Digitale Zettelabfrage in Münchens Hauptstadt - Innovatives Wahlverfahren</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discovering-elegance-and-innovation-unveiling-our-thoughtful-review-of-the-latest-lg-watch-style-with-wear-os-20/"><u>Discovering Elegance and Innovation: Unveiling Our Thoughtful Review of the Latest LG Watch Style with Wear OS 2.0</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/dive-deep-into-obs-advanced-techniques-for-game-capture/"><u>Dive Deep Into OBS Advanced Techniques for Game Capture</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-seamless-connectivity-with-our-amazon-basics-7-port-usb-30-hub-review-and-rankings/"><u>Experience Seamless Connectivity with Our Amazon Basics 7-Port USB 3.0 Hub Review and Rankings</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-using-and-rating-the-apple-books-platform/"><u>Expert Insights on Using & Rating the Apple Books Platform</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-google-pixel-5-modest-engine-with-flagship-advantages-unveiled/"><u>Exploring the Google Pixel 5: Modest Engine with Flagship Advantages Unveiled</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-pinnacle-of-performance-a-comprehensive-review-of-the-xbox-one-x-ruler-of-modern-consoles/"><u>Exploring the Pinnacle of Performance: A Comprehensive Review of the Xbox One X, Ruler of Modern Consoles</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/from-consumer-level-home-to-corporate-grade-pro-windows/"><u>From Consumer-Level Home to Corporate-Grade Pro Windows</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/get-up-close-with-the-brand-new-iphone-15-pro-an-insiders-guide/"><u>Get Up Close with the Brand New iPhone 15 Pro – An Insider’s Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/google-pixel-4a-5g-review-a-capable-affordable-5g-android-phone/"><u>Google Pixel 4a 5G Review: A Capable, Affordable 5G Android Phone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-youtube-studio-optimization-device-agnostic-approaches/"><u>In 2024, Youtube Studio Optimization Device-Agnostic Approaches</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/step-by-step-fixes-for-dealing-with-uncaught-system-thread-exceptions/"><u>Step-by-Step Fixes for Dealing with Uncaught System Thread Exceptions</u></a></li>
-<li><a href="https://win-news.techidaily.com/step-by-step-guide-complete-vmware-esxi-hypervisor-offline-backup-techniques/"><u>Step-by-Step Guide: Complete VMware ESXi Hypervisor Offline Backup Techniques</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-for-excessive-gpu-drain-by-the-desktop-window-manager-in-windows-1011/"><u>Troubleshooting Guide for Excessive GPU Drain by the Desktop Window Manager in Windows 10/11</u></a></li>
-<li><a href="https://change-location.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-vivo-y100t-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Vivo Y100t | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-crafting-engaging-facebook-reels-the-making-process-explained/"><u>[New] Crafting Engaging Facebook Reels The Making Process Explained</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-best-practices-for-documenting-ps4-gameplay/"><u>2024 Approved Best Practices for Documenting PS4 Gameplay</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/amplify-audience-response-with-innovative-instagram-questions/"><u>Amplify Audience Response with Innovative Instagram Questions</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/best-free-live-streaming-platforms-for-the-exciting-ncaa-basketball-march-madness-tournament/"><u>Best Free Live Streaming Platforms for the Exciting NCAA Basketball March Madness Tournament</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-examination-of-the-sony-playstation-5s-superiority-over-its-predecessor/"><u>Comprehensive Examination of the Sony PlayStation 5'S Superiority Over Its Predecessor</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-performance-and-user-experience-of-linksyss-universal-choice-ac1900-max-stream-router/"><u>Evaluating Performance & User Experience of Linksys's Universal Choice AC1900 Max-Stream Router</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-linksys-wrt1/"><u>Expert Analysis: Linksys WRT1</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-picks-for-the-ultimate-smart-speaker-comparison-of-2024/"><u>Expert Picks for the Ultimate Smart Speaker Comparison of 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-djis-phantom-4-pro-version-2-soaring-to-new-heights-in-drone-technology/"><u>Expert Review: DJI's Phantom 4 Pro Version 2 - Soaring to New Heights in Drone Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-cyberpower-685avrg-ups-effective-and-efficient-protection-for-your-devices/"><u>In-Depth Analysis of the Cyberpower 685AVRG UPS: Effective and Efficient Protection for Your Devices</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-solutions-for-microsoft-wireless-display-adapter-problems-on-windows-11/"><u>Step-by-Step Solutions for Microsoft Wireless Display Adapter Problems on Windows 11</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-picks-the-impressive-performance-of-ecoflow-river-a-leading-choice-for-beginners-as-revealed-by-our-comprehensive-testing-at-zdnet/"><u>Top Picks: The Impressive Performance of EcoFlow River Ⅲ - A Leading Choice for Beginners, As Revealed by Our Comprehensive Testing at ZDNET</u></a></li>
+<li><a href="https://driver-install.techidaily.com/update-your-win11-networking-setup-with-new-atheros-drivers/"><u>Update Your Win11 Networking Setup with New Atheros Drivers</u></a></li>
 </ul></div>
 

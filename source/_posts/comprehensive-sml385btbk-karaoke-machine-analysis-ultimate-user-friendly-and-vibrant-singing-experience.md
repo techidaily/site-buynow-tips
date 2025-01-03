@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive SML385BTBK Karaoke Machine Analysis: Ultimate User-Friendly & Vibrant Singing Experience"
-date: 2024-12-17T16:47:39.335Z
-updated: 2024-12-25T10:27:44.798Z
+date: 2024-12-30T16:19:46.523Z
+updated: 2025-01-03T20:15:10.379Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive SML385BTBK Karaoke Machine Analysis: Ultimate User-Friendly & Vibrant Singing Experience"
@@ -16,10 +16,6 @@ thumbnail: https://thmb.techidaily.com/0c851aeff0505f93ab9210c28e47cf3dc2d613689
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/HYgHMUDMFh7JI98Hj0JMbI2wcpw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -41,12 +37,16 @@ Lifewire / Kelsey Simon
 2.7
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -66,15 +66,15 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -90,6 +90,10 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
  Beyond this, the other major gameplay mechanic is a system of effort and inspiration. Every action you take will prompt you to use effort. This effort allows for your character to work harder at the chosen action, and thus gives your character a better chance of accomplishing their goal.
@@ -104,10 +108,6 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -115,6 +115,10 @@ Lifewire / Kelsey Simon
  The one positive is the originality in the world the developers have created. The setting feels unique―a mix of strange alien tech within a fantasy city. A wide range of characters will fill the game, and they respond and react in creative ways. It’s also a fun experience to run around and talk to these various characters and explore the game’s world and the lore of Numenera.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -137,10 +141,6 @@ Lifewire / Kelsey Simon
  **A text-heavy RPG that doesn’t live up to its predecessor.**
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -165,21 +165,20 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-unlocking-full-potential-zdsoft-screen-recorder/"><u>[Updated] 2024 Approved Unlocking Full Potential ZDSoft Screen Recorder</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-harmonizing-your-device-importing-to-inshot-app/"><u>[Updated] In 2024, Harmonizing Your Device Importing to InShot App</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-spotlight-10-anonymous-story-gazers/"><u>[Updated] Spotlight 10 Anonymous Story Gazers</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-pixelpop-complete-examination-and-manual-24/"><u>2024 Approved PixelPop Complete Examination & Manual '24</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/2024s-top-choice-portable-consoles-for-gamers-on-the-go/"><u>2024'S Top Choice Portable Consoles for Gamers On-the-Go</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-comprehensive-tutorial-for-setting-up-a-nintendo-network-profile-on-nintendo-3ds/"><u>A Comprehensive Tutorial for Setting Up a Nintendo Network Profile on Nintendo 3DS</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/affordable-anc-ankers-innovative-life-q30-sound-review/"><u>Affordable ANC: Anker's Innovative Life Q30 Sound Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-high-speed-wifi-with-tp-link-archer-c9-top-value-router-comparison/"><u>Affordable High-Speed WiFi with TP-Link Archer C9 - Top Value Router Comparison</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/all-in-one-security-solution-comprehensive-arlo-video-doorbell-evaluation/"><u>All-in-One Security Solution: Comprehensive Arlo Video Doorbell Evaluation</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/beyond-expectations-an-in-depth-review-of-motorolas-stellar-mid-range-device-the-one-hyper/"><u>Beyond Expectations: An In-Depth Review of Motorola's Stellar Mid-Range Device, The One Hyper</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-dreame-bot-l10-pro-the-smart-mopping-and-vacuuming-robot/"><u>Comprehensive Review of the Dreame Bot L10 Pro: The Smart Mopping and Vacuuming Robot</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/cost-vs-benefit-of-replacing-apple-device-batteries/"><u>Cost Vs. Benefit of Replacing Apple Device Batteries</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/low-end-pc-visual-recorders-for-2024/"><u>Low-End PC Visual Recorders for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/optimize-your-android-experience-with-these-top-5-auto-clicker-tools-no-root-access-needed/"><u>Optimize Your Android Experience with These Top 5 Auto-Clicker Tools (No Root Access Needed)</u></a></li>
-<li><a href="https://solve-help.techidaily.com/1726027159690-pc/"><u>PC画面、音声を記録して保存するための総合ガイド</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/tips-for-purging-past-chatgpt-exchanges/"><u>Tips for Purging Past ChatGPT Exchanges</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-flawless-playlist-integration-techniques-in-web-development/"><u>[New] In 2024, Flawless Playlist Integration Techniques in Web Development</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2023s-most-stylish-and-durable-apple-watch-bands-reviewed-find-your-best-match-today/"><u>2023'S Most Stylish & Durable Apple Watch Bands Reviewed – Find Your Best Match Today!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2023s-premier-portable-internet-gadgets-comprehensive-guide/"><u>2023'S Premier Portable Internet Gadgets: Comprehensive Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-visual-deformation-photoshops-distortion-guide/"><u>2024 Approved Exploring Visual Deformation Photoshop's Distortion Guide</u></a></li>
+<li><a href="https://program-issues.techidaily.com/enshrouded-game-error-resolved-play-uninterrupted-on-your-desktop/"><u>Enshrouded Game Error Resolved: Play Uninterrupted on Your Desktop</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-motorola-edge-40-pro-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Motorola Edge 40 Pro Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Motorola Moto G73 5G? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-motorola-g24-power-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Motorola G24 Power to Protect Your Individual Information</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-olympic-thaw-figure-skating-extravaganza/"><u>In 2024, Olympic Thaw Figure Skating Extravaganza</u></a></li>
+<li><a href="https://solve-news.techidaily.com/step-by-step-expert-guide-to-seamlessly-cutting-and-merging-music-tracks-both-online-platforms-and-desktop-tools/"><u>Step-By-Step Expert Guide to Seamlessly Cutting and Merging Music Tracks, Both Online Platforms and Desktop Tools!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-choosing-the-perfect-open-air-sound-system-2024-edition/"><u>Ultimate Guide to Choosing the Perfect Open-Air Sound System - 2024 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-elite-home-theater-solutions-for-2n3/"><u>Ultimate Selection: Elite Home Theater Solutions for 2N3</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-leading-smart-display-devices-for-modern-living/"><u>Ultimate Selection: Leading Smart Display Devices for Modern Living</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-wireless-audio-selection-for-your-steam-deck-reviews-and-buyers-guide/"><u>Ultimate Wireless Audio Selection for Your Steam Deck - Reviews & Buyer's Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/wildwood-lake-nature-center/"><u>Wildwood Lake Nature Center</u></a></li>
 </ul></div>
 

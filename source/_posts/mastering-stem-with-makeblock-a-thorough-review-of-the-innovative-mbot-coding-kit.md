@@ -1,7 +1,7 @@
 ---
 title: Mastering STEM with Makeblock – A Thorough Review of the Innovative mBot Coding Kit
-date: 2024-12-21T02:44:32.591Z
-updated: 2024-12-25T09:54:09.246Z
+date: 2025-01-01T16:18:50.119Z
+updated: 2025-01-03T16:15:46.444Z
 categories:
   - BestProducts
 description: This Article Describes Mastering STEM with Makeblock – A Thorough Review of the Innovative mBot Coding Kit
@@ -13,17 +13,9 @@ thumbnail: https://www.lifewire.com/thmb/7m4G61FJ_EhVTWC3BsDjxBloDXo=/400x300/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Amazon Echo Dot (4th Gen)
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/keJ5E0aZJqydWO0ehe3iUZ1hYB8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Amazon-Echo-Dot-4th-Generation-1-fc73a047312d4d588ffcbeae7bdd3368.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -72,7 +64,7 @@ Lifewire / Erika Rawes
  Amazon’s[Echo](https://www.lifewire.com/what-is-the-amazon-echo-4147189) Dot has become a go-to option for those looking for a compact and affordable smart speaker. The brand has now released a 4th generation of its[Echo Dot](https://www.lifewire.com/amazon-dot-4149509) , and the new version has a totally different look than its predecessors. What else is new and different about the Echo Dot (4th Gen)? How does the new Dot perform? I tested the Echo Dot (4th Gen) to find out.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: A completely new look**
@@ -80,7 +72,7 @@ Lifewire / Erika Rawes
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/TtbQpfhvpeKgt-Aso1WoKQ6m2VI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-2-89fbd54fb6a14efba195a0094b8d7b6f.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -99,10 +91,6 @@ Lifewire / Erika Rawes
 
  Overall, I really appreciate the design of the new Dot. Modern and elegant, it fits into my living room, kitchen, or bedroom, as it doesn’t have a cold feel that takes away from the space. The 4th-Gen Dot is made from environmentally conscious materials like post-consumer recycled plastics and fabrics, thus securing it a “Climate Pledge Friendly” tag on Amazon.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Easy as ever**
 
 [Setting up the Echo Dot](https://www.lifewire.com/set-up-amazon-echo-4153561) is simple, especially if you already have the Alexa app downloaded. In the Alexa app, you just go to the devices menu, select on the “+” to add a device, and follow the prompts to add the Echo Dot 4th Gen speaker. The process only takes a moment.
@@ -110,6 +98,10 @@ Lifewire / Erika Rawes
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/dVUkRuy5SxFHmCHXxSseZY5tjhw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-3-320d298cdb18405d9d326c272464ef0d.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Sound Quality: A front-firing speaker**
 
@@ -129,6 +121,10 @@ Lifewire / Erika Rawes
 
  The Echo Dot (4th Gen) is powered by[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) . The Alexa voice assistant on the new Echo Dot is the same Alexa that you get on the Echo Dot (3rd Gen). You’ll be able to control your smart devices, listen to music, hear the news, set routines, shop, manage your schedule, and do all of the same things you could do before.[Alexa is always learning new skills](https://www.lifewire.com/alexa-skills-4126799) though. Amazon announced new Alexa features (coming soon) like Care Hub, which is a free feature that lets you check in on loved ones.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Echo Dot (4th Gen) With Clock: A Design Game Changer**
 
  The Echo Dot (4th Gen) comes in two other iterations: The Echo Dot (4th Gen) with Clock and the Echo Dot (4th Gen) Kids Edition. I tested the “with clock” iteration as a part of this review, but I did not test the kids model.
@@ -136,6 +132,10 @@ Lifewire / Erika Rawes
  I was blown away by the Echo Dot (4th Gen) With Clock. It’s the same device (internally) as the regular Echo Dot (4th Gen), but it has an LED display on the front of the speaker. Doesn’t sound like much, right?
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/bnVMEDjyf8t4zDkpRwr4-5msD2s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-7-with-Clock-9b93a56f3d0049c5a2064cd4b21c7cb5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -151,6 +151,10 @@ Lifewire / Erika Rawes
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/fdW9QpFUSBjNMTYTGdjFggaOH9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-5-Comparison-6841e2f32a734282b509976489bd0383.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Amazon Echo Dot (4th Gen) vs. Apple HomePod Mini**
@@ -162,10 +166,6 @@ Lifewire / Erika Rawes
 **Primarily a design upgrade.**
 
  The new Echo Dot is a great speaker at a great price, but it’s not worth an upgrade if you already have the 3rd-gen Dot unless you’re going with the clock version. For first time buyers, it's a no-brainer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -199,18 +199,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-crafting-conversations-writing-engaging-dialogues/"><u>[New] Crafting Conversations Writing Engaging Dialogues</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-unlock-creative-filmmaking-instagrams-green-room-technique/"><u>[New] In 2024, Unlock Creative Filmmaking Instagram's Green Room Technique</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-a-guide-to-using-snapchats-influencer-showcase/"><u>[Updated] A Guide to Using Snapchat's Influencer Showcase</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-eluding-prying-eyes-privacy-preserving-video-editing/"><u>[Updated] Eluding Prying Eyes Privacy-Preserving Video Editing</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/battery-lifespan-extension-iphoneipod-considerations/"><u>Battery Lifespan Extension – iPhone/iPod Considerations</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/breakdown-of-the-amazon-halo-a-groundbreaking-fitness-wearable-that-redefines-personal-health-management/"><u>Breakdown of the Amazon Halo – A Groundbreaking Fitness Wearable That Redefines Personal Health Management</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/cat-s42-rugged-phone-review-lots-of-protection-but-little-speed/"><u>CAT S42 Rugged Phone Review: Lots of Protection, But Little Speed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-the-leading-portable-wifi-routers-for-globetrotters-2024-edition/"><u>Discover the Leading Portable WiFi Routers for Globetrotters - 2024 Edition</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/engage-your-senses-with-epic-space-skirmishes-unveiling-the-thrills-of-star-wars-squadrons/"><u>Engage Your Senses with Epic Space Skirmishes – Unveiling the Thrills of Star Wars: Squadrons</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/enjoy-top-notch-viewing-experience-with-lgs-economical-24lh4830-smart-tv-model/"><u>Enjoy Top-Notch Viewing Experience with LG's Economical 24LH4830 Smart TV Model</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-infinix-note-30-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Infinix Note 30 To Phone | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-savvy-top-5-methods-for-building-a-thriving-influencer-profile/"><u>In 2024, Instagram Savvy Top 5 Methods for Building a Thriving Influencer Profile</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/mastering-switch-pro-controller-in-steam-gaming-for-2024/"><u>Mastering Switch Pro Controller in Steam Gaming for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-mastering-the-art-of-sounding-different-in-pubg/"><u>[New] 2024 Approved Mastering the Art of Sounding Different in PUBG</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-sleep-inducing-series-analyzing-video-bedtime-stories-for-2024/"><u>[New] The Sleep-Inducing Series Analyzing Video Bedtime Stories for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-enchanted-frame-rate-reduction-tricks/"><u>[Updated] In 2024, Enchanted Frame Rate Reduction Tricks</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-webm-transformation-from-tweeted-visuals-for-2024/"><u>[Updated] WebM Transformation From Tweeted Visuals for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-affordable-online-education-hosting-on-youtube/"><u>2024 Approved Affordable Online Education Hosting on YouTube</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/comprehensive-list-of-leading-no-cost-video-chat-apps-iosandroid-for-2024/"><u>Comprehensive List of Leading No-Cost Video Chat Apps (iOS/Android) for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/essential-steps-to-upgrade-the-ram-on-your-laptop/"><u>Essential Steps to Upgrade the RAM on Your Laptop</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-top-wi-fi-routers-how-does-the-tp-link-archer-ax6000-stack-up-against-the-nighthawk-ax12/"><u>Evaluating Top Wi-Fi Routers: How Does The TP-Link Archer AX6000 Stack Up Against the Nighthawk AX12?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-top-of-the-line-escort-max-360-a-multi-tech-radar-detector-enhanced-with-gps-navigation-systems/"><u>Expert Analysis of the Top-of-the-Line Escort Max 360: A Multi-Tech Radar Detector Enhanced With GPS Navigation Systems</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-on-the-nintendo-switch-leading-the-pack-of-mobile-gamers/"><u>Expert Analysis on the Nintendo Switch - Leading the Pack of Mobile Gamers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-excellence-of-the-owc-mercury-pro-superior-durability-and-unmatched-performance-metrics/"><u>Exploring the Excellence of the OWC Mercury Pro - Superior Durability & Unmatched Performance Metrics</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-samsung-galaxy-a20-is-it-worth-your-budget/"><u>Exploring the Samsung Galaxy A20 - Is It Worth Your Budget?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/godfall-on-playstation-5-a-disappointing-debut-of-an-exclusive-title/"><u>Godfall on PlayStation 5: A Disappointing Debut of an Exclusive Title</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/hunt-for-audio-excellence-at-a-price-prime-days-most-competitive-tribit-offers-revealed/"><u>Hunt for Audio Excellence at a Price: Prime Day's Most Competitive Tribit Offers Revealed</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-apple-iphone-15-location-is-wrong-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix My Apple iPhone 15 Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-lock-apps-on-oppo-a38-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Oppo A38 to Protect Your Individual Information</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-how-the-stylish-withings-move-fuses-traditional-aesthetics-with-smart-capabilities/"><u>In-Depth Analysis: How the Stylish Withings Move Fuses Traditional Aesthetics with Smart Capabilities</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138589429-9781452545783-spiritual-awakening/"><u>Spiritual Awakening | Free Book</u></a></li>
+<li><a href="https://driver-download.techidaily.com/step-by-step-tutorial-for-installing-android-phone-drivers-on-windows-os/"><u>Step-by-Step Tutorial for Installing Android Phone Drivers on Windows OS</u></a></li>
 </ul></div>
 

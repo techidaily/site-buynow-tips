@@ -1,7 +1,7 @@
 ---
 title: Elite Selection of Body-Worn Cameras for Authorities
-date: 2024-08-09T00:56:09.339Z
-updated: 2024-08-10T00:56:09.339Z
+date: 2024-12-28T17:01:43.863Z
+updated: 2025-01-03T18:49:55.123Z
 categories:
   - BestProducts
 description: This Article Describes Elite Selection of Body-Worn Cameras for Authorities
@@ -47,9 +47,6 @@ PHOTO: Amazon
 
 [$449 at Amazon](https://www.amazon.com/dp/B0CL5KNB9M?tag=lifewire-onsite-prod-20&ascsubtag=4154610%7Cn581a2dc3ff9d4e12aa7563f93e0778da14%7CB0CL5KNB9M) [$485 at Walmart](https://www.walmart.com/ip/Sony-PlayStation-5-PS5-Disc-Console-Slim/5113183756?slpfid=3) [$500 at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fsony-interactive-entertainment-playstation-5-slim-console-white%2F6566039.p%3FskuId%3D6566039)
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Original
 
 [Sony PlayStation 5](https://www.amazon.com/dp/B0CL61F39H?tag=lifewire-onsite-prod-20&ascsubtag=4154610%7Cn581a2dc3ff9d4e12aa7563f93e0778da14%7CB0CL61F39H)
@@ -82,6 +79,10 @@ PHOTO: Target
 
 ![PS5 console.](https://www.lifewire.com/thmb/80aScf9GOpsaDFgCtwyW1NIE-P4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/PS5console-dfe325ecc3c84b12bdd852ff79734330.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Jennifer Allen
 
  The games are varied, with something for everyone here. There are some great exclusives, with my particular highlights including God of War: Ragnarok and The Last of Us series.
@@ -92,9 +93,6 @@ Lifewire / Jennifer Allen
 
  I really enjoyed playing games with the PS5 DualSense controller.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ![PS5 controller.](https://www.lifewire.com/thmb/AG7JE7IhgP9OyHKJb7-gYZsSc9w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/PS5controller-a37dda31e1f34f1e9867c9d21b3a239d.jpg)
 
 Lifewire / Jennifer Allen
@@ -112,10 +110,9 @@ Lifewire / Jennifer Allen
 [PS5 Slim vs. PS5](https://www.lifewire.com/ps5-slim-vs-ps5-8643357)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Easiest on the Budget
 
 [Nintendo Switch Lite](https://www.walmart.com/ip/Nintendo-Switch-Lite-Console-Turquoise/306029956)
@@ -139,9 +136,6 @@ PHOTO: Walmart
 
 **TL;DR** : Cute, colorful, and with plenty of games, the Nintendo Switch Lite is a great budget-friendly console.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Why We Recommend This
 
  The Nintendo Switch Lite is an incredibly cute-looking handheld console.
@@ -157,6 +151,10 @@ PHOTO: Walmart
  Games can be bought digitally or as physical cartridges. The console has 32GB of internal storage, which can always be upgraded with a microSD card.
 
 ![Nintendo Switch Lite gaming console.](https://www.lifewire.com/thmb/TmYyOgzBYexzwHM_D35w2XJF68c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NintendoSwitchLite1-33b6996f36534d1da9974a460e6c5139.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jennifer Allen
 
@@ -176,11 +174,16 @@ Lifewire / Jennifer Allen
 
 ![Nintendo Switch Lite gaming console.](https://www.lifewire.com/thmb/-TewO6N-lYMXj-K3swHO6-rKLQ4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NintendoSwitchLite2-f5ace5de5d674c3ba9edea76d30888d6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Jennifer Allen
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How We Test
 
  I reviewed every game console based on the following attributes:
@@ -243,9 +246,6 @@ Lifewire / Jennifer Allen
 
  For more advice,[read our gaming console buying guide](https://www.lifewire.com/before-you-buy-gaming-console-8654423) .
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Other Consoles We Considered
 
 * The[Nintendo Switch OLED](https://www.amazon.com/Nintendo-Switch-OLED-Model-Mario-Red/dp/B09NCMZNJK?tag=lifewire-onsite-prod-20&ascsubtag=4154610%7Cn581a2dc3ff9d4e12aa7563f93e0778da14%7C) is the ultimate Nintendo Switch. It can be docked to your TV for big-screen entertainment with the family and played portably with a high-end OLED screen.
@@ -283,11 +283,28 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/nderstanding-what-makes-a-comment-noteworthy-on-youtube/"><u>[New] Understanding What Makes a Comment Noteworthy on YouTube</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-step-by-step-crafting-your-own-android-ringtones-and-sounds/"><u>[Updated] In 2024, Step-By-Step Crafting Your Own Android Ringtones and Sounds</u></a></li>
+<li><a href="https://windows11.techidaily.com/bypassing-the-error-9999-hurdle-in-win-oses-and-audacity/"><u>Bypassing the Error 9999 Hurdle in Win OSes & Audacity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-dell-inspiron-n3671-a-review-for-budget-friendly-performance/"><u>Comprehensive Evaluation of the Dell Inspiron N3671: A Review for Budget-Friendly Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-and-analysis-of-the-netgear-nighthawk-x6-ac3200-top-choice-for-swift-connectivity/"><u>Comprehensive Guide & Analysis of the Netgear Nighthawk X6 AC3200 - Top Choice for Swift Connectivity</u></a></li>
+<li><a href="https://discover-best.techidaily.com/enhance-your-livestreams-with-manycam-enabled-software-and-digital-webcam-solutions/"><u>Enhance Your Livestreams with ManyCam-Enabled Software & Digital Webcam Solutions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/google-nest-wi-fi-review/"><u>Google Nest Wi-Fi Review</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-captureclub-bout/"><u>In 2024, CaptureClub Bout</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/prime-selection-of-innovative-vr-cycling-games-for-2024/"><u>Prime Selection of Innovative VR Cycling Games for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/skyrocketing-popularity-on-igtv-with-powerful-targeted-hash-tags-for-2024/"><u>Skyrocketing Popularity on IGTV with Powerful, Targeted Hash Tags for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unleash-productivity-with-music-ready-jabra-evolve2/"><u>Unleash Productivity With Music-Ready Jabra Evolve2</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-lenovo-ideapad-experience-exploring-a-no-frills-robust-laptop-option/"><u>Unveiling the Lenovo IdeaPad Experience: Exploring a No-Frills, Robust Laptop Option</u></a></li>
+<li><a href="https://techidaily.com/useful-ways-that-can-help-to-effectively-recover-deleted-files-from-sony-xperia-5-v-by-fonelab-android-recover-data/"><u>Useful ways that can help to effectively recover deleted files from Sony Xperia 5 V</u></a></li>
+</ul></div>
+

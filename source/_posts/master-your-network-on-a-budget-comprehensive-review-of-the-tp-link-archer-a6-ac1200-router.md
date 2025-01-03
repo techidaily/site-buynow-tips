@@ -1,7 +1,7 @@
 ---
 title: "Master Your Network On a Budget: Comprehensive Review of the TP-Link Archer A6 AC1200 Router"
-date: 2024-12-21T23:12:48.153Z
-updated: 2024-12-25T02:26:06.370Z
+date: 2024-12-28T20:31:36.911Z
+updated: 2025-01-03T19:36:11.640Z
 categories:
   - BestProducts
 description: "This Article Describes Master Your Network On a Budget: Comprehensive Review of the TP-Link Archer A6 AC1200 Router"
@@ -16,10 +16,6 @@ thumbnail: https://thmb.techidaily.com/cef699ffd22d6808899594afa50b73f9f6bcef39d
 ## TP-Link RE305 AC1200 Wi-Fi Range Extender
 
 ![TP-Link AC1200 Wi-Fi Range Extender RE305](https://www.lifewire.com/thmb/JNtLTx9_CWWq4Wy4WH2D2pMI1qw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4LW4043312-0cb211cf35c746879e5136b3f9d62b63.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Claire Cohen
 
@@ -45,7 +41,7 @@ Lifewire / Claire Cohen
 ![TP-Link AC1200 Wi-Fi Range Extender RE305](https://www.lifewire.com/thmb/C8f1R4cMjb3MUZ1ViPdvQ67Q7tE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4LW4043312-0cb211cf35c746879e5136b3f9d62b63.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Claire Cohen
@@ -70,10 +66,6 @@ Lifewire / Claire Cohen
  If you live in a larger house or even an apartment where a central router is too far from your dwelling, you may experience poor connectivity issues or even dead zones where connect to the internet. That's where wireless range extenders come in. By using them to "piggyback" onto an existing wireless connection, you can extend a wireless signal to areas in your home previously bereft of Wi-Fi. The TP-Link AC1200 Wi-Fi Range Extender RE305 is a value-priced, no-frills extender that promises quick setup, a low-key design, and typically smooth connectivity at a great price.
 
  We spent over a week testing it in our home, evaluating design, ease of setup and network performance.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Design:** **Neither seen nor heard**
 
@@ -113,10 +105,14 @@ Lifewire / Claire Cohen
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/Lyz1QcuQDPYlUp5pPBJiL0YKSag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-2-5c9241dcc9e77c0001a92785.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Claire Cohen
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: Clean and easy to understand**
@@ -130,6 +126,10 @@ Lifewire / Claire Cohen
  At a list price of $59.99, the RE305 is a fantastic deal, considering it's typically on sale for much cheaper, often $10 to $15 less than retail. It isn't TP-Link's lowest-end option, but the performance and speeds offered for the price are certainly more than your money's worth, especially if you live in a larger home and pay for higher internet speeds. It’s important to keep in mind that it won’t include all the features you’ll get with pricier extenders like multiple ethernet ports or additional antennas, but this basic setup is just about all the average user needs, anyway.
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/bG-oXoYxR83gVSUH4vzz37hfYxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-1-5c92424b46e0fb000172f127.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
 
@@ -146,7 +146,7 @@ Lifewire / Claire Cohen
  The TP-Link AC1200 Wi-Fi Range Extender RE305 is a no-frills extender with supports dual-band Wi-Fi support and an Ethernet port for wired connectivity. It won’t fare well in homes beyond 2,000 square feet, but it's a value-priced extender that can be relied on at shorter ranges.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -182,21 +182,19 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-cutting-edge-video-recording-techniques-on-modern-win-11-devices-for-2024/"><u>[New] Cutting-Edge Video Recording Techniques on Modern Win 11 Devices for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-shoot-with-clarity-capture-immersive-experiences-9-essentials/"><u>[Updated] In 2024, Shoot with Clarity, Capture Immersive Experiences (9 Essentials)</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-simplified-window-capturing-software/"><u>[Updated] Simplified Window Capturing Software</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-maintaining-confidentiality-with-professional-zoom-recordings/"><u>2024 Approved Maintaining Confidentiality with Professional Zoom Recordings</u></a></li>
-<li><a href="https://common-error.techidaily.com/banish-eternal-loads-in-skyrim-with-these-proven-fixes/"><u>Banish Eternal Loads in Skyrim with These Proven Fixes</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/comment-retrouver-vos-fichiers-sauvegardes-avec-wd-easystore/"><u>Comment Retrouver Vos Fichiers Sauvegardés Avec WD EasyStore ?</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Honor 90 Lite | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/maximizing-action-footage-with-gopro-a-comparison-between-max-360-and-hero-11/"><u>Maximizing Action Footage with GoPro A Comparison Between Max 360 and Hero 11</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-gaomon-pd1560-digital-sketchpad-a-full-review/"><u>The Gaomon PD1560 Digital Sketchpad: A Full Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-eufy-t8200-smart-doorbells-no-hidden-membership-costs/"><u>The Ultimate Guide to Eufy T8200 Smart Doorbells - No Hidden Membership Costs!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-the-latest-canon-eos-t7-kit/"><u>The Ultimate Review of the Latest Canon EOS T7 Kit</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/tt560-review-fast-dependable-lighting-at-your-fingertips/"><u>TT560 Review: Fast, Dependable Lighting at Your Fingertips</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-buyers-list-of-highest-quality-ups-units-2024-edition/"><u>Ultimate Buyer's List of Highest-Quality UPS Units - 2024 Edition</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlocking-advanced-wi-fi-with-netgear-nighthawk-ax8-mesh-extender-your-comprehensive-review/"><u>Unlocking Advanced Wi-Fi with Netgear Nighthawk AX8 Mesh Extender - Your Comprehensive Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unpacking-the-ps5-showdown-slim-version-against-traditional-model/"><u>Unpacking the PS5 Showdown: Slim Version Against Traditional Model</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/utilizing-picture-in-picture-on-chrome-everywhere/"><u>Utilizing Picture In Picture on Chrome Everywhere</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-role-of-tags-in-boosting-video-popularity/"><u>[New] 2024 Approved The Role of Tags in Boosting Video Popularity</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-enhance-listening-pleasure-constructing-a-youtube-playlist/"><u>[New] In 2024, Enhance Listening Pleasure Constructing a YouTube Playlist</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-unlock-the-potential-of-your-channels-with-our-guide-to-discord-broadcasting/"><u>[Updated] Unlock the Potential of Your Channels with Our Guide to Discord Broadcasting</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-evaluating-the-updated-movavi-video-editor/"><u>2024 Approved Evaluating the Updated Movavi Video Editor</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-premium-sound-with-beehive-earbuds/"><u>Affordable, Premium Sound with BeeHive Earbuds</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/easy-steps-for-connecting-a-printer-to-windows-10-operating-system-by-yl-software-professionals/"><u>Easy Steps for Connecting a Printer to Windows 10 Operating System by YL Software Professionals</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/economical-luxe-illumination-with-studiokitxz/"><u>Economical Luxe Illumination with StudioKitXZ</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-the-chargetech-27000mah-portable-charger-unveiled/"><u>Expert Insights on the ChargeTech 27000mAh Portable Charger – Unveiled!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/getting-started-with-the-latest-blink-outdoor-floodlight-camera-your-complete-guide-for-ultimate-security-and-peace-of-mind/"><u>Getting Started with the Latest Blink Outdoor Floodlight Camera - Your Complete Guide for Ultimate Security & Peace of Mind</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/google-meet-screen-record-tips-for-iphoneandroid-users-for-2024/"><u>Google Meet Screen Record Tips for iPhone/Android Users for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-itel-p40-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Itel P40 to Outlook | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/master-builders-rejoice-in-depth-analysis-of-the-captivating-city-planner-game/"><u>Master Builders Rejoice: In-Depth Analysis of the Captivating City Planner Game</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-audio-cds-mp3-conversion-with-imgburn-for-windows-users/"><u>Mastering Audio CDs: MP3 Conversion with ImgBurn for Windows Users</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/premium-experience-on-a-budget-apples-ipad-air-4-showdown-with-the-ipad-pro/"><u>Premium Experience on a Budget: Apple's iPad Air 4 Showdown with the iPad Pro</u></a></li>
 </ul></div>
 

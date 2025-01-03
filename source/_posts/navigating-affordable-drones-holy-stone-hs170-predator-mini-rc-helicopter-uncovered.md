@@ -1,7 +1,7 @@
 ---
 title: Navigating Affordable Drones - Holy Stone HS170 Predator Mini RC Helicopter Uncovered
-date: 2024-12-17T18:48:26.025Z
-updated: 2024-12-25T02:57:43.467Z
+date: 2025-01-01T20:00:11.692Z
+updated: 2025-01-03T19:56:34.072Z
 categories:
   - BestProducts
 description: This Article Describes Navigating Affordable Drones - Holy Stone HS170 Predator Mini RC Helicopter Uncovered
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/QZz-CxdzNsxSs74LM7PrAw1PBmA=/400x300/fi
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -38,16 +42,12 @@ Lifewire / Todd Braylor
 3.8
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -70,6 +70,10 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -79,10 +83,6 @@ Lifewire / Todd Braylor
  The speaker on this radar detector is very small, about a quarter-inch square, but the audio alerts are high volume. You can select between standard and loud tones. The SmartCord power cable for the S55 has a handy mute button on it so you don't have to reach over the dash.
 
  Lifewire / Todd Braylor
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Easy installation**
 
@@ -96,10 +96,6 @@ Lifewire / Todd Braylor
 
  It reliably delivers on its promise of long-distance sensitivity.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: Not exactly enhanced**
 
  The S55 has different modes designed to adjust to specific frequency bands and sensitivity levels for city or highway driving. You can quickly customize the settings by using the included quick reference guide. You can also turn off specific frequency bands if they tend to give a lot of false alerts.
@@ -108,6 +104,10 @@ Lifewire / Todd Braylor
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: You get what you pay for**
 
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
@@ -115,7 +115,7 @@ Lifewire / Todd Braylor
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
@@ -159,24 +159,24 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-strategy-in-the-shopping-experience/"><u>[New] 2024 Approved Strategy in the Shopping Experience</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-clip-perfection-achieved-through-blended-methodologies-for-2024/"><u>[New] Clip Perfection Achieved Through Blended Methodologies for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-expert-techniques-in-creating-timelapses-on-black-hero5-for-2024/"><u>[Updated] Expert Techniques in Creating Timelapses on Black Hero5 for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/decisive-criteria-for-your-next-headset-investment-in-vr-technology/"><u>Decisive Criteria for Your Next Headset Investment in VR Technology</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/essential-elements-in-your-next-smart-tv-acquisition/"><u>Essential Elements in Your Next Smart TV Acquisition</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-does-google-nest-audio-stack-up-against-the-nest-mini/"><u>How Does Google Nest Audio Stack Up Against the Nest Mini?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-test-of-the-radpower-radcity-5plus-balancing-might-and-mass/"><u>In-Depth Test of the RadPower RadCity 5+: Balancing Might and Mass</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/is-paying-up-for-vision-pro-worth-it-heres-why/"><u>Is Paying Up For Vision Pro Worth It? Here’s Why</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/jumpstart-your-macbooks-performance-the-ssd-upgrade-way/"><u>Jumpstart Your MacBook's Performance: The SSD Upgrade Way</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/larger-than-life-performance-in-depth-insights-on-the-apple-iphone-n-12-pro-max/"><u>Larger Than Life Performance: In-Depth Insights on the Apple iPhone N 12 Pro Max</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-tv-streaming-platforms-the-2024-ultimate-guide-and-review/"><u>Leading TV Streaming Platforms: The 2024 Ultimate Guide and Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lg-ultrafine-um7300-49-4k-television-evaluation-the-essential-budget-pick-for-smart-viewing/"><u>LG UltraFine UM7300 49 4K Television Evaluation - The Essential Budget Pick for Smart Viewing</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mastering-gmail-management-setup-tips-for-message-filters-and-extra-emails/"><u>Mastering Gmail Management: Setup Tips for Message Filters & Extra Emails</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/navigating-the-linksys-wrt1900acs-a-user-friendly-guide-to-an-advanced-open-source-wi-fi-solution/"><u>Navigating the Linksys WRT1_900ACS - A User-Friendly Guide to an Advanced Open Source Wi-Fi Solution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/nixplay-nix-advance-x15d-review/"><u>Nixplay NIX Advance X15D Review</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/premium-stabilization-solutions-for-iphoneandroiddslr/"><u>Premium Stabilization Solutions for iPhone/Android/DSLR</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-photos-after-honor-x50-gt-has-been-deleted-by-fonelab-android-recover-photos/"><u>Recover your photos after Honor X50 GT has been deleted.</u></a></li>
-<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-motorola-moto-g73-5g-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP Lock on Motorola Moto G73 5G</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211350582--vipassana-meditation-and-ayahuasca/"><u>Vipassana Meditation and Ayahuasca | Free Book</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/xperience-the-power-of-visuals-discover-all-50-banners-in-our-digital-collection-for-2024/"><u>[New] Experience the Power of Visuals Discover All 50 Banners in Our Digital Collection for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-become-the-brand-you-want-with-our-exclusive-set-of-free-graphics/"><u>[Updated] Become the Brand You Want With Our Exclusive Set of FREE Graphics!</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-hidden-methods-for-dodging-digital-study-vids/"><u>[Updated] In 2024, Hidden Methods for Dodging Digital Study Vids</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-ultimate-guide-to-choosing-a-cable-modem-with-integrated-wifi-router/"><u>2024'S Ultimate Guide to Choosing a Cable Modem with Integrated WiFi Router</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/arfs-smart-autofeeder-the-ultimate-hassle-free-meal-plan-for-your-four-legged-companer/"><u>Arf's Smart AutoFeeder: The Ultimate Hassle-Free Meal Plan for Your Four-Legged Companer</u></a></li>
+<li><a href="https://fox-that.techidaily.com/battle-iphone-and-wi-fi-connection-dropouts-5-proven-fixes-to-try-now/"><u>Battle iPhone and Wi-Fi Connection Dropouts: 5 Proven Fixes to Try Now!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/chargetechs-high-capacity-27000mah-power-bank-unveiled-in-depth-review-and-insights/"><u>ChargeTech's High-Capacity 27000mAh Power Bank Unveiled - In-Depth Review & Insights</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/cutting-edge-4k-panels-top-10-revealed-list/"><u>Cutting-Edge 4K Panels Top 10 Revealed List</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/essential-server-infrastructure-top-rack-cabinets-and-shelving-tech-needs/"><u>Essential Server Infrastructure: Top Rack Cabinets and Shelving Tech Needs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-sophistication-with-skagen-falster-2-an-upscale-rival-to-iphones/"><u>Experience Sophistication with Skagen Falster 2: An Upscale Rival to iPhones</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-the-future-insights-and-predictions-for-googles-2024-creation-post-pixel-9-era/"><u>Exploring the Future: Insights and Predictions for Google's 2024 Creation - Post-Pixel 9 Era</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Vivo Y56 5G? | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/professional-grade-hd-video-editors-our-top-5-for-2024/"><u>Professional-Grade HD Video Editors Our Top 5 for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722976771393-quick-download-guide-samsung-m2070fw-drivers-instant-access/"><u>Quick Download Guide: Samsung M2070FW Drivers - Instant Access!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/smooth-transition-from-records-to-digital-the-at-lp120xusb-experience/"><u>Smooth Transition From Records to Digital - The AT-LP120XUSB Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1722872658483-top-rated-wi-fi-signal-boosters-the-ultimate-guide-for-2/"><u>Top Rated Wi-Fi Signal Boosters: The Ultimate Guide for 2 #</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tp-link-av2000-powerline-adapter-review-excellent-speeds-but-subpar-design/"><u>TP-Link AV2000 Powerline Adapter Review: Excellent Speeds, But Subpar Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/transform-your-gatherings-with-premium-karaoke-kits-top-selections/"><u>Transform Your Gatherings with Premium Karaoke Kits - Top Selections</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unlock-and-duplicate-protected-dvds-a-guide-to-the-best-8-free-techniques/"><u>Unlock and Duplicate Protected DVDs: A Guide to the Best 8 Free Techniques</u></a></li>
 </ul></div>
 

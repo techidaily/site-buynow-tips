@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Analysis of Fongo - The Top Canadian VoIP Provider
-date: 2024-08-09T00:56:08.025Z
-updated: 2024-08-10T00:56:08.025Z
+date: 2024-12-30T18:01:34.161Z
+updated: 2025-01-03T16:20:20.967Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Analysis of Fongo - The Top Canadian VoIP Provider
@@ -37,13 +37,13 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -67,9 +67,9 @@ Lifewire / Erika Rawes
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -78,16 +78,18 @@ The ultimate burning program for all your needs!</a>
 
  The antenna comes with a stand for placement on a desk or entertainment center. It also comes with double-sided adhesives, so you can hang it on a wall or window. The adhesives are extremely sticky—when I pulled the antenna off of my wall, the paint came off along with it.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup: Easier than most**
 
  Setting up the antenna is relatively intuitive. You just connect the antenna to the coaxial/antenna-in connection on your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) . The antenna has an easy-push connector, instead of a connector you have to twist onto the threading. This makes for easier setup because you don’t have to struggle behind your TV with trying to screw on the[coaxial cable](https://www.lifewire.com/coaxial-vs-optical-digital-cable-3134605) .
@@ -106,9 +108,6 @@ The ultimate burning program for all your needs!</a>
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Range: Could be better**
 
  My test home is in a rural area, and there’s a lot of tree cover on the property. The omnidirectional Antop AT-127 has a 40-mile range, which was enough to pick up local channels from neighboring cities.
@@ -117,9 +116,6 @@ The ultimate burning program for all your needs!</a>
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
@@ -128,9 +124,6 @@ The ultimate burning program for all your needs!</a>
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
  You can find indoor antennas for less than $15 (view on[Amazon](https://www.amazon.com/dp/B075ZQXB26/?tag=lifewire-onsite-prod-20&ascsubtag=4845583%7Cna0f30cabffec4337b279a8df3e4c99b015%7C) ). The[AmazonBasics](https://www.lifewire.com/amazonbasics-flat-tv-antenna-review-4845569) 35-mile range antenna is a good example, though it doesn’t come with a stand or have the easy-push connector. Aesth etically, the AmazonBasics antenna doesn’t hold a candle to the Antop antenna, but it does cost significantly less.
@@ -140,6 +133,10 @@ The ultimate burning program for all your needs!</a>
 **Works great & looks even better.**
 
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -157,14 +154,11 @@ The ultimate burning program for all your needs!</a>
 * Screen Resolution  1080p
 * Connectivity Options  Quick push “E-Z connect” F connector (coaxial cable)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -172,3 +166,25 @@ The ultimate burning program for all your needs!</a>
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-revive-your-photos-two-methods-to-restore-photo-viewing-in-win10/"><u>[New] 2024 Approved Revive Your Photos Two Methods to Restore Photo Viewing in Win10</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-proven-strategies-to-skyrocket-your-fb-search-results-rankings-for-2024/"><u>[New] Proven Strategies to Skyrocket Your FB Search Results Rankings for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/2023s-leading-mobile-solar-charge-units-expert-comparisons-and-picks/"><u>2023'S Leading Mobile Solar Charge Units: Expert Comparisons & Picks</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/ampace-andes-1500-in-action-real-world-testing-of-an-all-in-one-portable-energy-source/"><u>Ampacē Andes 1500 in Action: Real-World Testing of an All-in-One Portable Energy Source</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-minecraft-campfire-tales-designs-a-complete-skin-pack-assessment/"><u>Comprehensive Guide to Minecraft Campfire Tales Designs - A Complete Skin Pack Assessment</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/essential-examination-adobe-lightroom-for-mobile-users-for-2024/"><u>Essential Examination Adobe Lightroom for Mobile Users for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/from-brains-to-fun-a-comprehensive-7-day-review-of-the-revitalized-7-days-to-die/"><u>From Brains to Fun: A Comprehensive 7-Day Review of the Revitalized '7 Days to Die'</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-high-skies-simple-snaps-vertical-phone-panoramas/"><u>In 2024, High Skies, Simple Snaps Vertical Phone Panoramas</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-photographic-advantages-with-quantum-hdr-mastery/"><u>In 2024, Photographic Advantages with Quantum HDR Mastery</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-fujitsu-scansnap-ix1600-a-powerhouse-in-desktop-scanning-solutions/"><u>In-Depth Analysis of the Fujitsu ScanSnap iX1600: A Powerhouse in Desktop Scanning Solutions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/making-sense-of-savings-the-all-new-iphone-se-review-for-practical-smartphone-enthusiasts/"><u>Making Sense of Savings: The All-New iPhone SE Review for Practical Smartphone Enthusiasts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-japanese-social-interactions/"><u>Navigating Japanese Social Interactions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/netgears-ac1200-wifi-booster-unveiled-an-in-depth-review-of-the-ex6200-range-extender-for-ultimate-connectivity/"><u>Netgear's AC1200 WiFi Booster Unveiled: An In-Depth Review of the EX6200 Range Extender for Ultimate Connectivity</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-vivo-v30-lite-5g-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Vivo V30 Lite 5G Phone? Unlock It Now</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionizing-road-safety-the-cutting-edge-radar-learner-the-escort-ix-revealed/"><u>Revolutionizing Road Safety: The Cutting-Edge Radar Learner, The Escort iX Revealed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sony-w800-camera-insight-reliability-meets-economical-advantage/"><u>Sony W800 Camera Insight - Reliability Meets Economical Advantage</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-process-can-be-performed-in-an-air-or-shielding-gas-environment/"><u>The Process Can Be Performed in an Air or Shielding Gas Environment.</u></a></li>
+</ul></div>
+

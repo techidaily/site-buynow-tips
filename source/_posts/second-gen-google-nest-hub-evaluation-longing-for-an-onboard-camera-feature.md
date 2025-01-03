@@ -1,7 +1,7 @@
 ---
 title: "Second Gen Google Nest Hub Evaluation: Longing for an Onboard Camera Feature"
-date: 2024-08-09T00:56:07.121Z
-updated: 2024-08-10T00:56:07.121Z
+date: 2024-12-28T16:57:42.119Z
+updated: 2025-01-03T19:28:15.656Z
 categories:
   - BestProducts
 description: "This Article Describes Second Gen Google Nest Hub Evaluation: Longing for an Onboard Camera Feature"
@@ -13,11 +13,12 @@ thumbnail: https://thmb.techidaily.com/798da70479f84a42f596309bd983075c08c6ee00e
 
 4.6
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Ergodriven Topo Standing Desk Mat
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/7cIUA6lXw6TjIJrsjBKdKRuOvps=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Ergodriven-Topo-Comfort-Mat-1-ccd96f7c454945c3b974a2f5cba4fe79.jpg)
 
 Lifewire / Rebecca Isaacs
@@ -39,15 +40,13 @@ Lifewire / Rebecca Isaacs
 
 4.6
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## Ergodriven Topo Standing Desk Mat
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/GZTKidZtByl51GvkYiB-jNjEjbE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Ergodriven-Topo-Comfort-Mat-1-ccd96f7c454945c3b974a2f5cba4fe79.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -68,16 +67,14 @@ Lifewire / Rebecca Isaacs
 
  A standing desk isn’t complete without a standing desk mat, at least not if you value your comfort. We tried out the Topo by Ergodriven Standing Desk Mat, testing it for comfort, design, and performance. We decided to test it for a few hours a day over the course of a week to see how it worked.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/KYfJPJ0jHZhmy15IUeGxDL8kmRw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ergodriven-Topo-Comfort-Mat-2-547d9823c4ac47cbb5a360040866172a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Simply modern**
 
  At 26.2 inches by 29 inches (LW), the Topo is a fairly wide mat, giving the user lots of berth to shift around. It comes with two power wedges in the back with calf-stretching inclines in the front that end up going 2.7 inches high, though the bottom platform of the mat is much thinner. It also comes with a massage mound in the center of the mat. For the most part, we liked the mat, but placing the massage mound in the center we felt was detrimental for standing space.
@@ -87,8 +84,9 @@ Lifewire / Rebecca Isaacs
 Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Flawed, but still solid**
 
  As we previously stated, one of the features of this mat is the massage mound in the center. When we first stepped onto the mat, we really disliked how we couldn’t shift without bumping the massage mound. It’s a great feature if you want to change your ankle stances or relieve your foot pain. However, if you’re standing on the mat for extended hours at a time, your feet are stuck off to the sides and you really can’t shift around as time progresses.
@@ -108,6 +106,10 @@ Lifewire / Rebecca Isaacs
  At around $100 on Amazon, the Topo is in the higher price range for a standing desk mat. We could find models that don’t have the massage mound in the center, however, the steep power wedges in the back make it a reasonable investment for anyone who really wants to stretch out their legs.
 
  For a standing desk mat with some exercise features, the Ergodriven Topo is a fairly decent choice.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Topo Ergodriven vs. CubeFit TerraMat**
 
@@ -133,14 +135,11 @@ Lifewire / Rebecca Isaacs
 * Warranty  Seven Years
 * Connectivity Options  None
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -148,3 +147,22 @@ Lifewire / Rebecca Isaacs
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-crafting-seamless-transitions-the-art-of-canon-time-lapses/"><u>[New] 2024 Approved Crafting Seamless Transitions The Art of Canon Time-Lapses</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-historys-high-scorers-on-reddit-top-10-list/"><u>[Updated] In 2024, History's High Scorers on Reddit - Top 10 List</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unveiling-youtube-shorts-what-it-all-means-for-2024/"><u>[Updated] Unveiling YouTube Shorts What It All Means for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-top-10-steps-youtube-to-mp3mpeg-conversion-process/"><u>2024 Approved Top 10 Steps YouTube to MP3/MPEG Conversion Process</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-finest-precision-vertical-design-computer-mouse-options/"><u>2024'S Finest Precision Vertical Design Computer Mouse Options</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1722903322325-expert-picks-the-top-of-the-line-htpc-devices/"><u>Expert Picks: The Top-of-the-Line HTPC Devices !</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/forgot-iphone-12-mini-password-here-are-the-best-solutions-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Forgot iPhone 12 mini Password? – Here are the Best Solutions | Stellar</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/data-to-drama-utilizing-google-trends-in-video-planning/"><u>From Data to Drama Utilizing Google Trends in Video Planning</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1722926982714-in-depth-analysis-of-alienwares-aurora-r7-excellence-comes-with-a-tag/"><u>In-Depth Analysis of Alienware's Aurora R7 - Excellence Comes With a Tag!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ize-visibility-with-well-structured-yt-summaries-for-2024/"><u>Maximize Visibility with Well-Structured YT Summaries for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/smooth-input-and-output-in-win11/"><u>Smooth Input & Output in Win11</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-powerful-performance-of-the-kensun-portable-air-compressor/"><u>Unveiling the Powerful Performance of the Kensun Portable Air Compressor</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/vtech-kidizoom-duo-camera-review/"><u>VTech Kidizoom Duo Camera Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/what-you-need-to-know-before-buying-a-sim-free-cell-phone/"><u>What You Need to Know Before Buying a SIM-Free Cell Phone</u></a></li>
+</ul></div>
+

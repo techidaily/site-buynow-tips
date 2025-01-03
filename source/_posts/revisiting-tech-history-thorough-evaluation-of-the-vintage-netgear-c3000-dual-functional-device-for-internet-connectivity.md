@@ -1,7 +1,7 @@
 ---
 title: "Revisiting Tech History: Thorough Evaluation of the Vintage Netgear C3000 Dual-Functional Device for Internet Connectivity"
-date: 2024-12-24T07:30:18.071Z
-updated: 2024-12-25T11:19:10.058Z
+date: 2024-12-27T18:20:12.015Z
+updated: 2025-01-03T16:12:25.623Z
 categories:
   - BestProducts
 description: "This Article Describes Revisiting Tech History: Thorough Evaluation of the Vintage Netgear C3000 Dual-Functional Device for Internet Connectivity"
@@ -36,10 +36,6 @@ Lifewire / Erika Rawes
 [View On Walmart $29](https://www.walmart.com/ip/612208092)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Antop AT-127
 
@@ -76,7 +72,15 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup: Easier than most**
 
@@ -87,7 +91,7 @@ Lifewire / Erika Rawes
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels**
@@ -101,7 +105,7 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Range: Could be better**
@@ -112,6 +116,10 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
@@ -119,10 +127,6 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
@@ -133,10 +137,6 @@ Lifewire / Erika Rawes
 **Works great & looks even better.**
 
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -169,18 +169,16 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-effortlessly-muted-music-garagebands-quiet-methods/"><u>[New] Effortlessly Muted Music Garageband's Quiet Methods</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-transforming-srt-a-complete-reference-guide-for-conversion/"><u>[New] In 2024, Transforming SRT A Complete Reference Guide for Conversion</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-zenith-of-leisure-top-12-pc-gamez/"><u>2024 Approved Zenith of Leisure Top 12 PC Gamez</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/4-floodlight-camera-for-your-shadowed-space/"><u>4 Floodlight Camera for Your Shadowed Space</u></a></li>
-<li><a href="https://article-tips.techidaily.com/essential-cameras-of-the-year-top-10-reviewed-for-2024/"><u>Essential Cameras of the Year - Top 10 Reviewed for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-strengths-and-limitations-a-review-on-zmi-powerpack-20000s-portability-quotient/"><u>Exploring the Strengths & Limitations: A Review on ZMI PowerPack 20000'S Portability Quotient</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/google-pixelbook-go-analysis-exceptionally-crafted-chromeos-device-with-an-expensive-price-point/"><u>Google Pixelbook Go Analysis: Exceptionally Crafted ChromeOS Device with an Expensive Price Point</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/high-end-illumination-for-every-shooter-speedlite-iv-at-a-bargain-price/"><u>High-End Illumination for Every Shooter: Speedlite IV at a Bargain Price!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/holy-stone-race-car-reviews-an-engaging-adventure-for-families-and-kids/"><u>Holy Stone Race Car Reviews: An Engaging Adventure for Families and Kids</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-oppo-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Oppo FRP In 3 Different Ways</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-affordable-oneplus/"><u>In-Depth Analysis of the Affordable OnePlus</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-googles-wifi-networking-device-ideal-for-home-and-office-use/"><u>In-Depth Look at Google's WiFi Networking Device - Ideal for Home and Office Use</u></a></li>
-<li><a href="https://some-tips.techidaily.com/unveiling-top-9-webcam-filters-for-professional-streamers-for-2024/"><u>Unveiling Top 9 Webcam Filters for Professional Streamers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-infographic-hottest-social-media-trends-that-will-take-over-2023/"><u>[New] Infographic - Hottest Social Media Trends That Will Take Over 2023</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-15-techniques-to-ensure-facebook-videos-are-spotlighted/"><u>[Updated] 15 Techniques to Ensure Facebook Videos Are Spotlighted</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-maximizing-video-longevity-saving-snaps-on-android-and-mac/"><u>[Updated] Maximizing Video Longevity Saving Snaps on Android & Mac</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-seamless-integration-making-your-youtube-videos-available-on-facebook-for-2024/"><u>[Updated] Seamless Integration Making Your YouTube Videos Available on Facebook for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-gaming-on-youtube-exciting-video-game-adventures-await/"><u>Experience Gaming on YouTube: Exciting Video Game Adventures Await!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-guide-to-optimize-asus-rog-aly-laptop-top-20-tips-for-longer-battery-duration-and-superior-gaming-sessions/"><u>Expert Guide to Optimize ASUS ROG ALY Laptop: Top 20 Tips for Longer Battery Duration and Superior Gaming Sessions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-enhanced-performance-of-the-newly-released-rog-ally-x-looking-forward-to-whats-coming-next/"><u>Exploring the Enhanced Performance of the Newly Released ROG Ally X - Looking Forward to What's Coming Next</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-extra-magic-discovering-special-disneyplus-features-comparable-to-dvd-exclusives/"><u>Exploring the Extra Magic: Discovering Special Disney+ Features Comparable to DVD Exclusives!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/gopros-top-picks-the-ultimate-list-of-2024s-most-innovative-action-cameras/"><u>GoPro's Top Picks: The Ultimate List of 2024'S Most Innovative Action Cameras</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-tecno-pop-8-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Tecno Pop 8 Phone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723014808686-troubleshooting-the-non-functional-onikuma-headset-mic-solution-found/"><u>Troubleshooting the Non-Functional Onikuma Headset Mic - Solution Found!</u></a></li>
 </ul></div>
 

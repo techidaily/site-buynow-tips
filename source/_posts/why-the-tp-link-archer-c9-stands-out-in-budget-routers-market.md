@@ -1,7 +1,7 @@
 ---
 title: Why the TP-Link Archer C9 Stands Out in Budget Routers Market
-date: 2024-12-21T03:26:15.818Z
-updated: 2024-12-25T02:13:59.544Z
+date: 2024-12-27T19:43:08.236Z
+updated: 2025-01-03T16:56:00.013Z
 categories:
   - BestProducts
 description: This Article Describes Why the TP-Link Archer C9 Stands Out in Budget Routers Market
@@ -13,16 +13,12 @@ thumbnail: https://www.lifewire.com/thmb/Lx2f3YRa-pwJ1Nv40SYu0xGx-xs=/400x300/fi
 
 4.3
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## TP-Link Archer A9 AC1900 Smart Wireless Router
 
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/XgwH32_lE2sH33pwMoFmXM_LaGg=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_HeroSquare-05a827c48b274d8e9ccd0070e770f4d4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -82,7 +78,7 @@ Lifewire / Erika Rawes
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/GZA_WscJ6ZMkjJEY-JNFoGWW54c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_05-f0a147fb3abe4825a663bc12ac51629e.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -103,10 +99,6 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/FTFFrgOH8v5VhGXgjmzgjTUMPNA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_03-ec9553f0029b4f2fba363745ab7b9778.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **Network Performance: Not bad**
@@ -115,17 +107,21 @@ Lifewire / Erika Rawes
 
  In the same room as the router, speeds were excellent (naturally), getting up to 352 Mbps on the 5 Ghz band and 76 Mbps on the 2.4 Ghz band. I traveled upstairs, and speeds clocked in at a respectable 124 Mbps on the 5Ghz band and 36 Mbps over 2.4 Ghz. The signal remained strong almost everywhere in my two-level home, even in areas like closets, and many other places that could conceivably be Wi-Fi dead zones. However, I experienced a few slow zones in my garage, and in a guest room located on the opposite side of the home. I also experienced a spotty connection in the yard. The signal degraded significantly around the home’s exterior, so if you like to use your devices outside, you’ll want to invest in a[Wi-Fi extender](https://www.lifewire.com/best-wifi-extenders-4043312) , or go with a different router entirely.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Range: Around 2,000 square feet (give or take)**
 
  I didn’t see an exact range for the Archer A9 in the spec sheet, but I was able to get coverage in just about every area of my 3,000 square foot home. This is not to say the range is 3,000 square feet, as several factors like the type and number of devices you have, wall thickness, obstructions, your ISP, and other factors can all impact the signal quality and range. Generally speaking, it’s safe to say the A9 could probably cover at least a 2,000 square foot house.
 
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/yosOFzPzSpoghULMfbOuUFI5_E0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_06-94b9a314d8d24a37a7b4c90c7962e8a4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Tether app**
 
@@ -136,6 +132,10 @@ Lifewire / Erika Rawes
  If you want to control more advanced features, like VPN creation, NAT forwarding, and IPv6, you’ll need to use the web management tool. However, you can perform most of the router’s maintenance in the Tether app. The A9 is compatible with[Alexa](https://www.lifewire.com/alexa-skills-4126799) and[IFTTT](https://www.lifewire.com/what-is-ifttt-4172417) , so you can use voice commands to have your smart home assistant control your router. You can say things like, “Alexa, ask TP-Link to enable guest network” or “Alexa, ask TP-Link to prioritize gaming.”
 
  You can say things like, “Alexa, ask TP-Link to enable guest network” or “Alexa, ask TP-Link to prioritize gaming.”
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Under $100**
 
@@ -156,7 +156,7 @@ Lifewire / Erika Rawes
  The TP-Link Archer A9 is an ideal router for a household with an average number of devices, but homes full of gamers or home office workers may want something a little more robust.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -194,20 +194,22 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-lifting-large-loads-drone-power-rankings/"><u>[New] In 2024, Lifting Large Loads - Drone Power Rankings</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-igtv-a-listers-hanging-out-on-snapchat/"><u>[Updated] 2024 Approved IGTV A-Listers Hanging Out on Snapchat</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-tech-tools-for-distance-podcasting-for-2024/"><u>[Updated] Tech Tools for Distance Podcasting for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Realme Narzo 60 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-critique-on-the-photo-capture-of-the-google-pixel-6-targeting-key-features/"><u>A Critique on the Photo Capture of the Google Pixel 6 – Targeting Key Features</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apple-watch-series-6-evaluation-subtle-improvements-yet-maintains-top-rank/"><u>Apple Watch Series 6 Evaluation: Subtle Improvements Yet Maintains Top Rank</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/asus-ax6000-rt-ax88u-top-smart-wi-fi-6-router-evaluated/"><u>Asus AX6000 RT-AX88U - Top Smart Wi-Fi 6 Router Evaluated</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/asus-vg245h-the-definitive-display-choice-for-avid-console-gamers/"><u>Asus VG245H: The Definitive Display Choice for Avid Console Gamers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/best-on-the-go-car-start-kits-2024/"><u>Best On-the-Go Car Start Kits 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/bluetooth-enabled-blueear-beanie-hat-the-perfect-marriage-of-fashion-and-function-for-your-ears/"><u>Bluetooth-Enabled Blueear Beanie Hat: The Perfect Marriage of Fashion and Function for Your Ears</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-vivo-y100t-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Vivo Y100t? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-the-best-methods-to-unlock-the-iphone-locked-to-owner-for-iphone-se-2022-by-drfone-ios/"><u>In 2024, The Best Methods to Unlock the iPhone Locked to Owner for iPhone SE (2022)</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/labor-landscapes-altered-by-ais-advances/"><u>Labor Landscapes Altered by AI's Advances</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/pictorial-perfection-proven-techniques-for-stunning-photos/"><u>Pictorial Perfection Proven Techniques for Stunning Photos</u></a></li>
-<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Tecno Pova 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-the-clear-choice-between-projectors-and-televisions-for-4k-quality/"><u>[New] 2024 Approved The Clear Choice Between Projectors and Televisions for 4K Quality</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ow-to-record-audio-from-youtube-for-2024/"><u>[New] How to Record Audio From YouTube for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-ultimate-guide-to-font-customization-in-ae/"><u>[Updated] In 2024, The Ultimate Guide to Font Customization in AE</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Tecno Pova 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-top-5-free-pinterest-video-downloader-online/"><u>2024 Approved Top 5 Free Pinterest Video Downloader Online</u></a></li>
+<li><a href="https://games-able.techidaily.com/exploring-non-alcoholic-pathways-for-endocannabinoid-delivery-to-the-brain/"><u>Exploring Non-Alcoholic Pathways for Endocannabinoid Delivery to the Brain</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-intrigue-of-watch-dogs-legion-an-immersive-change-in-venue/"><u>Exploring the Intrigue of 'Watch Dogs: Legion': An Immersive Change in Venue</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/find-what-youve-lost-with-ease-leading-key-trackers-of-2024-revealed/"><u>Find What You’ve Lost with Ease: Leading Key Trackers of 2024 Revealed!</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fix-your-disappearing-taskbar-and-desktop-icons-in-windows-10-now/"><u>Fix Your Disappearing Taskbar and Desktop Icons in Windows 10 Now</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/from-classic-to-contemporary-expert-insights-on-the-venerable-nulaxy-km18-bluetooth-car-unit-reviewed/"><u>From Classic to Contemporary: Expert Insights on the Venerable Nulaxy KM18 Bluetooth Car Unit Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/gamers-checklist-5-key-points-for-selecting-the-perfect-console/"><u>Gamers' Checklist: 5 Key Points for Selecting the Perfect Console</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/high-temperature-curing-methods-like-steam-or-autoclave-curing-accelerate-hydration-but-require-careful-temperature-control/"><u>High-Temperature Curing Methods Like Steam or Autoclave Curing Accelerate Hydration but Require Careful Temperature Control.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-oneplus-9-pro-exceptional-design-performance-and-photography/"><u>In-Depth Analysis of OnePlus 9 Pro: Exceptional Design, Performance & Photography</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-the-best-and-worst-of-the-ring-battery-doorbell-plus-model/"><u>In-Depth Analysis: The Best & Worst of the Ring Battery Doorbell + Model</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-examination-of-lg-gram-laptop-series-17-striking-balance-between-portability-and-performance/"><u>In-Depth Examination of LG Gram Laptop Series 17: Striking Balance Between Portability & Performance</u></a></li>
+<li><a href="https://extra-support.techidaily.com/magical-marketing-essential-terms-to-master-for-2024/"><u>Magical Marketing Essential Terms to Master for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/why-vector-databases-are-pivotal-for-modern-ai-systems/"><u>Why Vector Databases Are Pivotal for Modern AI Systems</u></a></li>
 </ul></div>
 

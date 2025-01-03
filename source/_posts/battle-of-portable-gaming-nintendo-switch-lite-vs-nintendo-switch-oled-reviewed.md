@@ -1,7 +1,7 @@
 ---
 title: "Battle of Portable Gaming: Nintendo Switch Lite Vs. Nintendo Switch OLED Reviewed"
-date: 2024-12-21T01:21:02.985Z
-updated: 2024-12-25T11:56:09.418Z
+date: 2024-12-27T16:48:14.860Z
+updated: 2025-01-03T16:23:51.676Z
 categories:
   - BestProducts
 description: "This Article Describes Battle of Portable Gaming: Nintendo Switch Lite Vs. Nintendo Switch OLED Reviewed"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/4d611c850bdcc5debbd6a1052184df209b3a83115
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/JA3JlwOuidCKxo4M92FWCfYUoI4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -36,17 +40,9 @@ Lifewire / Kelsey Simon
 
 3.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/8XGs9qzQ6hLIBySEKXEvBMfEkq4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -77,10 +73,6 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/uXDVHaBrdIlv5tI-qRgiPK0Iig4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460721-e6a53664e7eb4e65a75bf5cceb928e28.jpg)
 
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Plot: A huge world with loads to explore**
 
@@ -121,7 +113,7 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/2Fk-UTwglmoCdE7IXrXqlnXs9do=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460712-6cec58625d13430db671be3144451cbc.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -129,10 +121,6 @@ Lifewire / Kelsey Simon
 ## **Graphics: A bit outdated**
 
  The graphics in Skyrim aren’t awful, but they haven't progressed much since 2011\. If you’ve played any other version of Skyrim, you can overlook it, simply because you know what you’re getting into. Bethesda attempted to make Skyrim look realistic, likely in their desire to give you a fully immersive experience. But these days, Skyrim’s graphics just aren’t as realistic as what other, more recent games have accomplished. In places, the mountains look blocky and the grass a little patchy. Character’s faces sometimes seem deeply sunken around the eyes, with the skin looking more like leather than flesh. It’s not that the graphics are overly bad, they’re just not as good as what you can get with better hardware on the PC.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Platform: Take Skyrim on the go**
 
@@ -146,10 +134,6 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/Iik6f_7RIRMWo5R6zGYxgGeL4n0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546076-8fb741faa7144fa6bafe386d2b7d8296.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
 ## **Price: A tad expensive**
@@ -158,7 +142,15 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Other action RPGs**
 
@@ -170,11 +162,19 @@ Lifewire / Kelsey Simon
 
  Even though The Elder Scrolls V: Skyrim is a great game and the Switch is an amazing platform, our advice is only to buy Skyrim for the Switch if you’re looking to play on the go. Otherwise, we’d suggest purchasing Skyrim for the PC, where you’ll really be able to enjoy superior graphics and customization options.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [The Legend of Zelda: Breath of the Wild](https://www.lifewire.com/the-legend-of-zelda-breath-of-the-wild-review-4685759)
 * [Mario Kart 8 Deluxe](https://www.lifewire.com/mario-kart-8-deluxe-review-4688951)
 * [Splatoon 2](https://www.lifewire.com/splatoon-2-review-4688940)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -198,18 +198,20 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-comprehensive-overview-simple-hdr-excellence/"><u>[New] In 2024, Comprehensive Overview Simple HDR Excellence</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/edefining-the-greatest-movies-2023-edition-for-2024/"><u>[New] Redefining The Greatest Movies 2023 Edition for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-most-trending-twitch-originals-from-amazon-prime/"><u>[Updated] The Most Trending Twitch Originals From Amazon Prime</u></a></li>
-<li><a href="https://media-tips.techidaily.com/guide-casting-your-iphone-6s-or-ios-9-device-with-a-chromecast/"><u>Guide: Casting Your iPhone 6S or iOS 9 Device with a Chromecast</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-music-files-from-huawei-nova-y71-by-fonelab-android-recover-music/"><u>How To Restore Missing Music Files from Huawei Nova Y71</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-asus-x441ba-pros-and-cons-of-a-large-display-portable-pc/"><u>In-Depth Analysis of the Asus X441BA: Pros and Cons of a Large Display Portable PC</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-why-apples-latest-inexpensive-ipad-surpasses-expectations-in-performance-and-features/"><u>In-Depth Analysis: Why Apple's Latest Inexpensive iPad Surpasses Expectations in Performance and Features</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-critique-of-hitman-3-the-final-chapter-unveiled/"><u>In-Depth Critique of Hitman 3 - The Final Chapter Unveiled</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-sea-tech-external-blu-ray-usb-device-performance-highlights-and-shortcomings/"><u>In-Depth Look at the Sea Tech External Blu-Ray USB Device: Performance Highlights and Shortcomings</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-review-the-versatile-and-reliable-garmin-gpsmap-64st-handheld-gps-device/"><u>In-Depth Review: The Versatile & Reliable Garmin GPSMAP 64St Handheld GPS Device</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ipad-pro-vs-microsoft-surface-pro-an-in-depth-comparison-of-features/"><u>IPad Pro Vs. Microsoft Surface Pro: An In-Depth Comparison of Features</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ary-gains-mr-beast-in-focus/"><u>Monetary Gains Mr. Beast in Focus</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/solving-boot-failures-expert-tips-and-strategies-from-yl-computing/"><u>Solving Boot Failures: Expert Tips and Strategies From YL Computing</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-sierra-users-meet-the-future-of-video-editing-tools-for-2024/"><u>[New] Sierra Users, Meet the Future of Video Editing Tools for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-maximizing-your-visuals-the-ultrawide-vs-uhd-4k-debate/"><u>[Updated] In 2024, Maximizing Your Visuals The UltraWide vs UHD 4K Debate</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-ultimate-breakdown-decoding-comprehensiveness-of-xvideo-hub-review/"><u>[Updated] In 2024, The Ultimate Breakdown Decoding Comprehensiveness of XVideo Hub Review</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-sky-sprints-guide-to-excellence-plus-ultimate-fpv-drones-for-speed/"><u>2024 Approved Sky Sprints Guide to Excellence + Ultimate FPV Drones for Speed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/boost-your-posture-and-comfort-levels-with-the-tochoe-topo-review-an-innovative-standing-desk-pad-against-fatigue/"><u>Boost Your Posture and Comfort Levels with the Tochoe Topo Review: An Innovative Standing Desk Pad Against Fatigue</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/convert-your-vob-videos-to-high-quality-mp4-with-these-simple-steps-compatible-on-windows-11-macos-and-more/"><u>Convert Your VOB Videos to High-Quality MP4 with These Simple Steps - Compatible on Windows 11, macOS & More!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decoding-tablet-sizes-and-weights-for-the-ideal-purchase-decision/"><u>Decoding Tablet Sizes and Weights for the Ideal Purchase Decision</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/high-performance-low-price-exploring-the-acer-predator-triton-300ses-worth/"><u>High Performance, Low Price: Exploring the Acer Predator Triton 300SE's Worth</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/hoofdjeuwe-om-converteerde-applicaties-voor-mac-oms-topsieben-van-flac-naar-mp3-converteren/"><u>Hoofdjeuwe Om-Converteerde Applicaties Voor Mac - OM's Topsieben Van FLAC Naar MP3 Converteren</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-photos-files-from-vivo-by-fonelab-android-recover-photos/"><u>How To Restore Missing Photos Files from Vivo .</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-bypass-activation-lock-on-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Bypass Activation Lock on iPhone 11 Pro Max</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-is-it-possible-to-use-miracast-with-apple-iphone-12-drfone-by-drfone-ios/"><u>In 2024, Is it Possible to Use Miracast with Apple iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-winegard-fl5500a-flatwave-antenna-balancing-quality-and-cost/"><u>In-Depth Analysis of the Winegard FL5500A FlatWave Antenna - Balancing Quality and Cost</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/manfrotto-advance-aluminum-tripod-superior-stability-high-quality/"><u>Manfrotto Advance Aluminum Tripod: Superior Stability, High Quality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/truck-drivers-audio-choice-a-budget-friendly-high-performing-gadget-review/"><u>Truck Driver’s Audio Choice: A Budget-Friendly, High-Performing Gadget Review</u></a></li>
 </ul></div>
 

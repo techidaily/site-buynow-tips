@@ -1,7 +1,7 @@
 ---
 title: "Razer's Mighty Compact: The Ultimate Review of the Razer Book 13"
-date: 2024-12-23T19:32:27.681Z
-updated: 2024-12-24T22:06:35.827Z
+date: 2025-01-02T19:34:00.783Z
+updated: 2025-01-03T18:11:47.255Z
 categories:
   - BestProducts
 description: "This Article Describes Razer's Mighty Compact: The Ultimate Review of the Razer Book 13"
@@ -14,7 +14,7 @@ thumbnail: https://thmb.techidaily.com/8e227e065d730938ce0d6ea2261402d78760be148
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## LG Gram 15.6-inch (2018)
@@ -44,13 +44,13 @@ Lifewire / Andrew Hayward
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## LG Gram 15.6-inch (2018)
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/R_aYhYLFGT6--hIRDTNUJTlIVn8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_hero-Square-f2b4744360d644a1b93b7541af7eb182.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -83,6 +83,10 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Amazingly light, but not wholly convincing**
 
  Weight aside, the LG Gram 15.6-inch doesn't make the strongest impression in the category. It's a relatively minimal design that's not too fussed-over, but doesn't give the impression that it was chiseled out of a solid brick of aluminum like a MacBook Air or Pro. In fact, it's made from nano carbon magnesium, which must be how LG kept it so darn light.
@@ -106,7 +110,7 @@ Lifewire / Andrew Hayward
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/1qu1WvdEgTzjUQ8QH_Lssx79xF0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Trackpad_05-f0d9dc63b03e4650a92e30747090889a.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -125,11 +129,11 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/TFbt9G36hk5JyrBL8cIdIuYQ66E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Keyboard_03-fd7e355ac5944f12a8107746d0afbf24.jpg)
 
- Lifewire / Andrew Hayward
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Andrew Hayward
 
 ## **Performance: Solid power for everyday tasks**
 
@@ -146,10 +150,6 @@ Lifewire / Andrew Hayward
 ## **Audio: It makes an impression**
 
  You won't see the speakers when the LG Gram is standing up as normal, but you'll hear them loud and clear. The stereo speakers are tucked underneath the laptop at the left and right edges near where your wrists rest, and thanks to the slight elevation from the rubbery feet on the bottom of the laptop, they're given enough space for the output to shine. Audio playback sounds robust and clear—not quite to the level of Apple's current MacBook Air and MacBook Pro, but very close. We were pleased with it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Network: Connects as expected**
 
@@ -175,10 +175,6 @@ Lifewire / Andrew Hayward
 
  Unfortunately, this entry-level model of the LG Gram 15.6-inch isn't able to take advantage of Windows Hello biometric security, as the camera above the display doesn't have the needed sensors for scanning your face. We missed the near-instantaneous facial recognition of the Surface Laptop 2, and having to type in a PIN number each time we opened up the lid. Pricier models of the laptop offer a fingerprint scanner, however.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Solidly priced, considering its strengths**
 
  Originally priced at $1,249, the entry-level LG Gram 15.6-inch (2018) can now be found for about $999 as of this writing. LG has rolled out newer 2019 versions that look identical and have the same core features, but upgrade to the latest generation of Intel Core processors. You should see a little bit more speed in benchmark testing, although it's unclear whether there's any noticeable difference during regular usage.
@@ -187,7 +183,15 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/5yzhAkphyYfWOMofqawuktHJlA0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-v.-Surface-comparison-4946178bf2e94230820d2b19d2fb7197.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **LG Gram 15.6-inch (2018) vs. Microsoft Surface Laptop 2: Better than Microsoft's own?**
 
@@ -202,10 +206,6 @@ Lifewire / Andrew Hayward
 **Well-built for productivity.**
 
  There are better all-around ultraportable laptops in this price range, and we had some issues with the feeling of the build, the keyboard layout, and the merely good display quality. However, if you're in the market for an incredibly light laptop with a big screen and a battery that lasts and lasts, it's hard to ignore the LG Gram 15.6-inch (2018). You get a very capable computer for the price, and it's a notebook that can legitimately last through a full workday even at max brightness.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -239,18 +239,18 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/aking-fx-magic-a-novices-step-into-animated-worlds-for-2024/"><u>[New] Making FX Magic A Novice's Step Into Animated Worlds for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-fundamentals-of-starting-an-instantaneous-broadcast/"><u>[New] The Fundamentals of Starting an Instantaneous Broadcast</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-how-to-choose-best-free-youtube-video-editor-apps-on-ios/"><u>[Updated] 2024 Approved How to Choose Best-Free YouTube Video Editor Apps on iOS</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-exploring-ios-screenshot-apps-deeply/"><u>2024 Approved Exploring iOS Screenshot Apps Deeply</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/4-best-websites-for-downloading-skype-ringtone/"><u>4 Best Websites For Downloading Skype Ringtone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/discover-the-secrets-to-customizing-game-sounds-with-our-step-by-step-process-no-charge/"><u>Discover the Secrets to Customizing Game Sounds with Our Step-by-Step Process (No Charge!)</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/enhancing-visual-experiences-a-deep-dive-into-video-enhancer-22/"><u>Enhancing Visual Experiences A Deep Dive Into Video Enhancer 2.2</u></a></li>
-<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-se-2020-to-an-older-ios-system-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone SE (2020) to an Older iOS System Version? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-of-the-j5-tactical-v1-pro-ultimate-durability-and-compact-nighttime-illumination/"><u>In-Depth Evaluation of the J5 Tactical V1-Pro: Ultimate Durability & Compact Nighttime Illumination</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-of-the-samsung-galaxy-s21-ultra-leading-device-on-the-android-platform/"><u>In-Depth Evaluation of the Samsung Galaxy S21 Ultra: Leading Device on the Android Platform</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-of-the-whole-home-tri-band-orbi-system-for-superior-internet-performance/"><u>In-Depth Evaluation of the Whole Home Tri-Band Orbi System for Superior Internet Performance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-overview-of-google-voice-calling-features-and-performance/"><u>In-Depth Overview of Google Voice Calling Features and Performance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/innovative-workspace-tools-top-replacements-for-microsoft-office/"><u>Innovative Workspace Tools: Top Replacements for Microsoft Office</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-add-and-record-audio-to-powerpoint/"><u>[New] 2024 Approved Add & Record Audio to PowerPoint</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-leveraging-video-technology-in-teaching-practices/"><u>[New] 2024 Approved Leveraging Video Technology in Teaching Practices</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-standard-to-special-a-guide-to-the-best-custom-box-stores-on-the-internet/"><u>[Updated] From Standard to Special A Guide to the Best Custom Box Stores on the Internet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/deciding-between-the-newest-giants-apple-ipad-air-links-to-reviewhttpsexamplecomipadairreview-and-samsung-galaxy-tab-s7plus-links-to-reviewhttpsexamplecomga94/"><u>Deciding Between the Newest Giants: Apple iPad Air ([Links to Review](https://example.com/iPadAirReview)) and Samsung Galaxy Tab S7+ ([Links to Review](https://example.com/GalaxyTabS7Review))</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-infinix-hot-30-5g-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from Infinix Hot 30 5G</u></a></li>
+<li><a href="https://article-posts.techidaily.com/essential-flight-gear-to-upgrade-your-phantom-4-drone/"><u>Essential Flight Gear to Upgrade Your Phantom 4 Drone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-unveiling-the-lenovo-thinkpad-x1-titanium-yoga-a-must-have-hybrid-device-for-traditionalists/"><u>Expert Analysis: Unveiling the Lenovo ThinkPad X1 Titanium Yoga - A Must-Have Hybrid Device for Traditionalists</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-the-issue-what-to-do-if-internet-explorer-has-stopped-working/"><u>Fixing the Issue: What To Do If Internet Explorer Has Stopped Working</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/guide-to-utilizing-siri-on-tiktok-videos/"><u>Guide to Utilizing Siri on TikTok Videos</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721467056659-stop-missing-notifications-here-are-over-15-ways-to-fix-silent-text-alerts-on-iphone/"><u>Stop Missing Notifications? Here Are Over 15 Ways to Fix Silent Text Alerts on iPhone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/the-complete-guide-to-poco-m6-pro-4g-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Poco M6 Pro 4G FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-pick-of-wireless-portable-routers-for-2verageous-adventurers/"><u>The Ultimate Pick of Wireless Portable Routers for 2veRageous Adventurers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unpacking-the-benefits-of-upgrading-to-an-iphone-1n-pro-max-is-a-larger-phone-worth-it/"><u>Unpacking the Benefits of Upgrading to an iPhone 1N Pro Max - Is a Larger Phone Worth It?</u></a></li>
 </ul></div>
 

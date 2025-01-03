@@ -1,7 +1,7 @@
 ---
 title: Review of Twelve South's Compact Traveler - A Masterclass in Portable Camping Gear
-date: 2024-12-22T08:18:59.032Z
-updated: 2024-12-25T00:04:56.301Z
+date: 2024-12-29T17:21:32.654Z
+updated: 2025-01-03T17:01:29.108Z
 categories:
   - BestProducts
 description: This Article Describes Review of Twelve South's Compact Traveler - A Masterclass in Portable Camping Gear
@@ -13,13 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/RbH1L50C2WDwsCIJHL9rumjvuMg=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Mavix M9 Gaming Chair
 
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/hAa8qU0sdj4xTjLDrUKFPjBlZyY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_HeroSquare-97a9344411454147b8772f86cd75bca7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -41,7 +41,7 @@ Lifewire / Rebecca Isaacs
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Mavix M9 Gaming Chair
@@ -114,10 +114,6 @@ Lifewire / Rebecca Isaacs
 
  Only want to go back a few degrees? You can adjust that thanks to the levers underneath the chair seat. This feature also helped relieve my back when I started feeling like I’d been sitting in the chair too long. It’s a great, relaxing addition.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Price: Hits the wallet hard
 
  For the price of $1,000, the Mavix M9 chair can be yours. That’s a lot of money to invest in a chair, especially when most places will charge a fraction of that for a desk chair. This isn’t just a desk chair, however—this is an ergonomic gamer’s chair, and as such, it’s designed to make gaming comfortable and easy. So, while it seems like a lot of money, realistically, you’re paying for a plethora of adjustability options, and ergonomics.
@@ -125,10 +121,14 @@ Lifewire / Rebecca Isaacs
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/_eJYTViir2syGINJQq7Fxl1ofHQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_04-d42bbf02273f4d0aa7c25351b201dc2c.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Mavix M9 vs. XChair X4 Chair
 
@@ -142,15 +142,15 @@ Lifewire / Rebecca Isaacs
 
  While it can’t really be customized outside of cosmetic options, the M9 gaming chair is a solid, easy way to enjoy any gaming hobby without worrying about backaches. The reclining technology and the locking wheels are especially nice bonuses. The price may seem a little high, but it’s a worthy investment for any gamer.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [FicMax Ergonomic Gaming Chair](https://www.lifewire.com/ficmax-ergonomic-gaming-chair-review-4771068)
 * [X Rocker 51396 Pro Series Pedestal 2.1 Gaming Chair](https://www.lifewire.com/x-rocker-51396-pro-series-pedestal-2-1-gaming-chair-review-4771021)
 * [Homall Executive Swivel Chair](https://www.lifewire.com/homall-executive-swivel-chair-review-4589356)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -179,22 +179,16 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-a-guide-to-gathering-creative-themes-using-google-trends/"><u>[New] 2024 Approved A Guide to Gathering Creative Themes Using Google Trends</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-behind-the-camera-studio-insights-extended-xvideoguide-for-2024/"><u>[Updated] Behind-the-Camera Studio Insights Extended XVideoGuide for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-crafting-silent-scenes-audio-fade-techniques-in-adobe-premiere-pro/"><u>[Updated] Crafting Silent Scenes Audio Fade Techniques in Adobe Premiere Pro</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-from-reels-to-filters-a-closer-look-at-tiktok-vs-snaps-features/"><u>[Updated] From Reels to Filters A Closer Look at TikTok vs Snap's Features</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/advantages-and-disadvantages-exploring-the-efficiency-of-webex-as-an-online-meeting-solution/"><u>Advantages & Disadvantages: Exploring the Efficiency of Webex as an Online Meeting Solution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-quality-unpacking-the-caixun-4k-tv-75-inches-for-budget-enthusiasts/"><u>Affordable Quality: Unpacking the Caixun 4K TV (75 Inches) for Budget Enthusiasts</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/amazon-kindle-vs-fire-tablet-distinguishing-key-features-and-uses/"><u>Amazon Kindle Vs. Fire Tablet - Distinguishing Key Features and Uses</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/avoid-tv-recorder-trap-reflect-before-you-buy/"><u>Avoid TV Recorder Trap: Reflect Before You Buy</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/capture-adventures-with-budget-friendly-coolpix-w100/"><u>Capture Adventures with Budget-Friendly Coolpix W100</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comparing-apples-newest-giants-iphone-15-plus-versus-pro-max/"><u>Comparing Apple's Newest Giants: IPhone 15 Plus Versus Pro Max</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-the-budget-friendly-pruveeo-f5-full-hd-dash-cam/"><u>Comprehensive Analysis of the Budget-Friendly Pruveeo F5 Full HD Dash Cam</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/diablo-iv-stability-top-7-solutions-to-prevent-game-crashes-on-pc-ps5-and-xbox/"><u>Diablo IV Stability: Top 7 Solutions to Prevent Game Crashes on PC, PS5 & Xbox</u></a></li>
-<li><a href="https://program-issues.techidaily.com/get-your-football-manager-2022-fix-addressing-release-troubles-and-solutions/"><u>Get Your Football Manager 2022 Fix - Addressing Release Troubles & Solutions</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-oppo-k11-5g-lock-screen-password-by-drfone-android/"><u>How To Change Oppo K11 5G Lock Screen Password?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-track-imei-number-of-honor-x9a-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Honor X9a Through Google Earth?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/1722969539065-revolutionizing-daily-exercise-with-the-samsung-galaxy-fit-what-you-need-to-know/"><u>Revolutionizing Daily Exercise with the Samsung Galaxy Fit – What You Need to Know</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unlocking-exceptional-presidents-day-offers-over-60-at-leading-retailers-like-amazon-walmart-and-more-comprehensive-deals-digest/"><u>Unlocking Exceptional Presidents' Day Offers Over 60% at Leading Retailers Like Amazon, Walmart and More | Comprehensive Deals Digest</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-explore-the-finest-5-android-photo-editing-apps/"><u>[New] Explore the Finest 5 Android Photo Editing Apps</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/astering-content-restrictions-on-youtube-videos-for-2024/"><u>[New] Mastering Content Restrictions on YouTube Videos for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-why-tech-experts-are-praising-the-all-new-apple-ipad-8th-gen-your-most-accessible-gateway-to-the-future-of-tablet-innovation/"><u>Discover Why Tech Experts Are Praising The All-New Apple iPad (8Th Gen) – Your Most Accessible Gateway to the Future of Tablet Innovation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/earbud-evolution-airpods-pro-vs-samsung-buds-pro-face-off/"><u>Earbud Evolution: AirPods Pro Vs. Samsung Buds Pro Face-Off</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elevate-your-conversations-with-sennheiser/"><u>Elevate Your Conversations with Sennheiser</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elite-selection-of-tracking-wristwear-the-premier-runners-chronographs-of-2024/"><u>Elite Selection of Tracking Wristwear - The Premier Runners' Chronographs of 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/essential-choices-premier-extended-pads-for-pc-users-rankings-and-insights-2eplus-years/"><u>Essential Choices: Premier Extended Pads for PC Users - Rankings and Insights (2E+ Years)</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-xiaomi-redmi-note-12-pro-4g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Xiaomi Redmi Note 12 Pro 4G to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-brief-but-impactful-which-social-platform-leads-for-short-video-content/"><u>In 2024, Brief but Impactful Which Social Platform Leads for Short Video Content?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-honor-100-pro-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Honor 100 Pro Lock Screen Password?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/resolving-call-issues-on-your-samsung-galaxy-watch-a-step-by-step-guide/"><u>Resolving Call Issues on Your Samsung Galaxy Watch - A Step-by-Step Guide</u></a></li>
 </ul></div>
 

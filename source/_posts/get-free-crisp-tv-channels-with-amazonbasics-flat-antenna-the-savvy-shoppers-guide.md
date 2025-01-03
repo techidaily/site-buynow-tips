@@ -1,7 +1,7 @@
 ---
 title: Get Free, Crisp TV Channels with AmazonBasics' Flat Antenna – The Savvy Shopper’s Guide
-date: 2024-12-22T23:25:36.998Z
-updated: 2024-12-25T10:56:10.300Z
+date: 2024-12-29T18:12:27.529Z
+updated: 2025-01-03T19:37:00.832Z
 categories:
   - BestProducts
 description: This Article Describes Get Free, Crisp TV Channels with AmazonBasics' Flat Antenna – The Savvy Shopper’s Guide
@@ -14,7 +14,7 @@ thumbnail: https://thmb.techidaily.com/f8ecdc6c33144a8756139b14ccc37972ba5fac512
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## AmazonBasics Ultra-Thin Antenna
@@ -42,7 +42,7 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## AmazonBasics Ultra-Thin Antenna
@@ -88,6 +88,10 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Performance: Almost two dozen channels (in a rural area)**
@@ -98,10 +102,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Range: 35 miles**
 
  The AmazonBasics antenna has a 35-mile range, which isn’t very far considering 50 plus miles is becoming more common. It is omnidirectional, however, so you don’t need to point it in a specific direction. It supports UHF/VHF, so I was able to get a decent selection of channels.
@@ -111,7 +111,7 @@ Lifewire / Erika Rawes
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Super affordable**
@@ -123,7 +123,7 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
@@ -167,20 +167,18 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-instagram-story-straightforward-recording-tips/"><u>[New] In 2024, Instagram Story Straightforward Recording Tips</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-alternative-views-to-googles-ar-sticker-experience/"><u>[Updated] In 2024, Alternative Views to Google's AR Sticker Experience</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-step-by-step-producing-youtube-trailers-using-filmora/"><u>[Updated] Step-by-Step Producing YouTube Trailers Using Filmora</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-quick-fix-guide-successful-transmission-of-videos-on-the-social-networking-app-messenger/"><u>2024 Approved Quick Fix Guide Successful Transmission of Videos on the Social Networking App Messenger</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/android-call-history-recovery-recover-deleted-call-logs-from-realme-11x-5g-by-fonelab-android-recover-call-logs/"><u>Android Call History Recovery - recover deleted call logs from Realme 11X 5G</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/step-by-step-tutorial-on-recording-premium-quality-google-hangout-sessions/"><u>Step-by-Step Tutorial on Recording Premium-Quality Google Hangout Sessions</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/the-new-frontier-for-windows-ventures-past-11/"><u>The New Frontier for Windows: Ventures Past 11</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/ultimate-guide-update-your-nvidia-geforce/"><u>Ultimate Guide: Update Your NVIDIA GeForce</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unleash-high-performance-a-thorough-evaluation-of-the-netgear-nighthawk-rax120s-superior-speed-capabilities/"><u>Unleash High Performance: A Thorough Evaluation of the Netgear Nighthawk RAX120's Superior Speed Capabilities</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-hisense-40h5590f-screen-marvel-a-comprehensive-analysis-of-a-cost-effective-smart-tv-option/"><u>Unveiling the Hisense 40H5590F Screen Marvel - A Comprehensive Analysis of a Cost-Effective Smart TV Option</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-issues-how-the-pixel-slate-struggles-with-chromeos-integration/"><u>Unveiling the Issues: How the Pixel Slate Struggles with ChromeOS Integration</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-monoprice-graphic-tablet-premium-functions-meet-budget-friendly-pricing/"><u>Unveiling the Monoprice Graphic Tablet - Premium Functions Meet Budget-Friendly Pricing</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-apples-impressive-m1-technology-in-the-new-macbook-air-13-inch-laptop-a-detailed-review/"><u>Unveiling the Power of Apple's Impressive M1 Technology in the New MacBook Air 13-Inch Laptop - A Detailed Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-future-ready-connectivity-with-netgear-nighthawk-ax8-wi-fi-6-expansion-our-in-depth-review/"><u>Unveiling the Power of Future-Ready Connectivity with Netgear Nighthawk AX8 Wi-Fi 6 Expansion: Our In-Depth Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-secrets-behind-sony-playstation-5s-superior-might/"><u>Unveiling the Secrets Behind Sony PlayStation 5'S Superior Might</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-unveiling-8-premium-free-srt-translation-services-online/"><u>[New] 2024 Approved Unveiling 8 Premium Free SRT Translation Services Online</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-guide-to-the-top-10-historical-education-channels/"><u>[Updated] Guide to the Top 10 Historical Education Channels</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exemplary-cloud-services-for-biz-needs/"><u>2024 Approved Exemplary Cloud Services for Biz Needs</u></a></li>
+<li><a href="https://extra-information.techidaily.com/crafting-the-ideal-voice-memo-a-step-by-step-methodology/"><u>Crafting the Ideal Voice Memo A Step-by-Step Methodology</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Samsung Galaxy A14 5G? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-unveiling-the-best-practices-for-linktree-on-tiktok-profiles/"><u>In 2024, Unveiling the Best Practices for Linktree on TikTok Profiles</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/performance-powerhouses-top-performing-internal-ssds-of-2023-unveiled/"><u>Performance Powerhouses: Top Performing Internal SSDs of 2023 Unveiled</u></a></li>
+<li><a href="https://win-hot.techidaily.com/secure-specific-folders-in-windows-10-top-two-techniques/"><u>Secure Specific Folders in Windows 10: Top Two Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-battle-for-better-business-connections-linkedin-vs-facebook/"><u>The Battle for Better Business Connections: LinkedIn Vs. Facebook</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-plainsman-statue-at-east-campus-mall/"><u>The Plainsman Statue at East Campus Mall</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-10-elite-1080p-gaming-displays/"><u>Top 10 Elite 1080P Gaming Displays</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-11-brain-games-engaging-trivia-channels/"><u>Top 11 Brain Games Engaging Trivia Channels</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-contemporary-vintage-inspired-gaming-systems/"><u>Top Contemporary Vintage-Inspired Gaming Systems</u></a></li>
 </ul></div>
 
