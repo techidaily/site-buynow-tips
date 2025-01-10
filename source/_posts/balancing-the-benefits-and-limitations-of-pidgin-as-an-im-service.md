@@ -1,7 +1,7 @@
 ---
 title: Balancing the Benefits and Limitations of Pidgin as an IM Service
-date: 2025-01-01T17:41:21.637Z
-updated: 2025-01-03T16:16:27.119Z
+date: 2025-01-05T19:28:08.137Z
+updated: 2025-01-10T00:03:37.834Z
 categories:
   - BestProducts
 description: This Article Describes Balancing the Benefits and Limitations of Pidgin as an IM Service
@@ -16,10 +16,6 @@ thumbnail: https://www.lifewire.com/thmb/-LFyWEQy0WO9AyyJAwELLw48mH4=/400x300/fi
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/bJGZVvLPIuXJptw8uPYtObxbpMQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -47,10 +43,6 @@ thumbnail: https://www.lifewire.com/thmb/-LFyWEQy0WO9AyyJAwELLw48mH4=/400x300/fi
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/EEEMCdq2FsBPMcT8nPUgndDIw4A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
 [View On Amazon](https://www.amazon.com/dp/B078WG6DBH/?tag=lifewire-onsite-prod-20&ascsubtag=4796693%7Cn899f0376278d4881a5af76b596b54aa000%7CB078WG6DBH) [View On EBay](https://www.ebay.com/itm/Sony-XBR65X850F-65-Inch-4K-Ultra-HD-Smart-LED-TV-2018-Model/312237520273)
@@ -72,10 +64,6 @@ thumbnail: https://www.lifewire.com/thmb/-LFyWEQy0WO9AyyJAwELLw48mH4=/400x300/fi
  _We purchased the Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV so our expert reviewer could thoroughly test and assess it. Keep reading for our full product review._
 
  Though Sony panels are sometimes on the expensive end of the spectrum, there are some older Sony 4K TVs that can be had for a nice little discount. One such TV is Sony’s XBR65X850F from their X850F series. This specific model has now been replaced by the X850G, but that doesn’t mean you necessarily need to go with the most current model. In fact, snagging one of these earlier generation sets can save you some cash without forcing you to compromise too much.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Design: Standard Sony**
 
@@ -103,15 +91,15 @@ thumbnail: https://www.lifewire.com/thmb/-LFyWEQy0WO9AyyJAwELLw48mH4=/400x300/fi
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vvIZMf3BNAr8JmiDAVdv4o3ceHg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-2-7eabd63fb6c0415ab75fd927d664a841.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
  Sony has done a solid job here of making the setup process simple, or maybe we should be thanking Google for that, as this is an Android TV. All you need to do is follow along with the on-screen instructions and complete them as necessary. Using the remote, you’ll be prompted to choose a language, location, internet connection, sign into accounts, etc. Just stick to the guide.
 
  With the initial process done, you will likely need to run a quick update check. This should automatically pop up, but check under the settings tab if it doesn’t. An update to the firmware should improve things considerably, especially if you need to upgrade to the latest version of Android TV. Updating takes a bit of time to do, so maybe go watch some TV while…oh right. Well, whatever you do during this process, just remember not to unplug the power while it’s running through updates.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Image Quality: Impressive 4K for IPS with some shortcomings**
 
@@ -120,10 +108,6 @@ thumbnail: https://www.lifewire.com/thmb/-LFyWEQy0WO9AyyJAwELLw48mH4=/400x300/fi
  Starting off with some of this unit’s strengths, this particular series uses an IPS panel for the screen, which means you’re going to get vibrant colors, a nice backlight for viewing in bright rooms, and excellent viewing angles. This all adds up to a superb experience if you’ve got a big living room that’s brightly lit by windows, where viewers might not be able to sit completely centered.
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/r5reh9LkA7QvieX1JzBg5J8qNjY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-5-00a73edbf91c48c6aa2718ab211f2e5d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -140,10 +124,14 @@ thumbnail: https://www.lifewire.com/thmb/-LFyWEQy0WO9AyyJAwELLw48mH4=/400x300/fi
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Audio Quality: Loud, but distorted**
 
@@ -165,6 +153,10 @@ thumbnail: https://www.lifewire.com/thmb/-LFyWEQy0WO9AyyJAwELLw48mH4=/400x300/fi
 
  One last thing, your phone can also be used as a remote if you so choose. All you need to do is download the app and connect it to the TV. This works with both Android and iOS devices (thanks Google). While it’s not a good as the regular remote, it works fine enough if you’re too lazy to get up and find the standard remote.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Not bad for the size, but not the cheapest**
 
  The X850F series come in a range of sizes, from 65 to 85 inches, so the prices can vary considerably depending on which one you go with. Any TV in this size range is going to cost a good bit of coin, no matter the manufacturer, but Sony isn’t too bad here.
@@ -172,6 +164,10 @@ thumbnail: https://www.lifewire.com/thmb/-LFyWEQy0WO9AyyJAwELLw48mH4=/400x300/fi
  On Sony’s website, the 65-inch model we tested here is listed at $1,300, the 75 at $2,300, and the 85 at a whopping $4,000\. Now these prices aren’t exactly accurate, especially since these are an older series. Typically you can find the 65-inch for about $1,100 or so. The other models are also heavily discounted depending on where you look, so definitely shop around. It’s likely that you can snag them for even less during sales.
 
  But how do these prices stack up against comparable TVs from competitors like LG or Samsung? Taking a quick look around online, you can easily save a few hundred dollars by going with a comparable LG TV, while Samsung was pretty closely matched with Sony. In the end, the price for the X850F series isn’t the best bang for your buck, but it ain’t bad either.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Sony XBR65X850F vs. Samsung UN65RU8000**
 
@@ -190,6 +186,10 @@ thumbnail: https://www.lifewire.com/thmb/-LFyWEQy0WO9AyyJAwELLw48mH4=/400x300/fi
 **A solid IPS panel 4K TV.**
 
  The X850F series is far from perfect, but the Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV and its family are more than capable of providing a pleasurable viewing experience for most people. Despite this, there are probably better options out there that can be had for even less.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -220,17 +220,22 @@ thumbnail: https://www.lifewire.com/thmb/-LFyWEQy0WO9AyyJAwELLw48mH4=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-mastering-video-and-screenshots-with-simple-steps-for-2024/"><u>[New] Mastering Video & Screenshots with Simple Steps for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-art-of-repeated-imagery-in-instagram-videos-for-2024/"><u>[New] The Art of Repeated Imagery in Instagram Videos for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-adobe-photostability-effective-or-fanciful-for-2024/"><u>[Updated] Adobe PhotoStability Effective or Fanciful for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-strategies-for-downloading-twitter-video-content-to-mp3/"><u>[Updated] Strategies for Downloading Twitter Video Content to MP3</u></a></li>
-<li><a href="https://fox-info.techidaily.com/best-deals-on-superior-asmr-microphone-technology-for-2024/"><u>Best Deals on Superior ASMR Microphone Technology for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-galaxy-m14-5g-support-mkv-video-files-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Does Galaxy M14 5G support MKV video files?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-review-premium-pick-for-samsung-galaxy-s22-guard-films/"><u>Expert Review: Premium Pick for Samsung Galaxy S22 Guard Films</u></a></li>
-<li><a href="https://extra-information.techidaily.com/exploring-magix-music-creators-capabilities/"><u>Exploring Magix Music Creator's Capabilities</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/most-advanced-wi-fi-devices-2024-reviews-and-picks/"><u>Most Advanced Wi-Fi Devices: 2024 Reviews and Picks</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/navigating-the-new-normal-how-will-generative-ai-shape-our-professional-landscapes/"><u>Navigating the New Normal: How Will Generative AI Shape Our Professional Landscapes?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/smartest-value-for-money-tvs-on-the-market-this-year-our-expert-picks/"><u>Smartest Value-for-Money TVs on the Market This Year - Our Expert Picks</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-choosing-the-fastest-and-most-reliable-cable-modems-in-202n4/"><u>The Ultimate Guide to Choosing the Fastest and Most Reliable Cable Modems in 202N4</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-navigating-iphone-the-ringtone-alteration-process/"><u>[New] Navigating iPhone The Ringtone Alteration Process</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-6-metaverse-examples-to-help-you-have-a-deep-insight-about-it-useful-for-2024/"><u>[Updated] 6 Metaverse Examples to Help You Have a Deep Insight About It [Useful] for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-asus-rog-phone-7-ultimate-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-benefits-of-garmin-venu-the-ultimate-smartwatch-for-continuous-fitness-and-health-tracking/"><u>Discover the Benefits of Garmin Venu: The Ultimate Smartwatch for Continuous Fitness and Health Tracking</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-comfort-and-sound-quality-in-rotiboxs-beanie-hat-with-built-in-bluetooth-technology/"><u>Discovering Comfort and Sound Quality in Rotibox's Beanie Hat with Built-In Bluetooth Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/dissecting-status-bts-features-pricey-but-worth-it/"><u>Dissecting Status BT's Features: Pricey but Worth It?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elite-broadband-cable-selection-the-2024-comprehensive-review/"><u>Elite Broadband Cable Selection - The 2024 Comprehensive Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/engaging-sci-fi-action-an-in-depth-look-at-the-outer-worlds-gripping-narrative-and-gameplay/"><u>Engaging Sci-Fi Action: An In-Depth Look at 'The Outer Worlds' Gripping Narrative and Gameplay</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/enhance-your-gameplay-with-asus-vg245h-a-top-pick-for-console-enthusiasts/"><u>Enhance Your Gameplay with Asus VG245H – A Top Pick for Console Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/enhancing-productivity-with-apples-latest-ipad-102-inch-model-and-ipados-features/"><u>Enhancing Productivity with Apple's Latest iPad 10.2-Inch Model and IPadOS Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/establishing-online-presence-with-a-nintendo-3ds-account-easy-steps-inside/"><u>Establishing Online Presence with a Nintendo 3DS Account - Easy Steps Inside</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-add-videos-to-youtube-playlist/"><u>In 2024, Add Videos to YouTube Playlist</u></a></li>
+<li><a href="https://solve-howtos.techidaily.com/las-herramientas-de-reproduccion-mas-eficaces-para-swf-en-windows-n-y-mac/"><u>Las Herramientas De Reproducción Más Eficaces Para SWF en Windows N Y Mac</u></a></li>
+<li><a href="https://extra-information.techidaily.com/perfecting-inshot-transitions-techniques/"><u>Perfecting Inshot Transitions Techniques</u></a></li>
+<li><a href="https://win-hot.techidaily.com/revamp-your-scanner-performance-with-driver-updates-tips-from-yl-software-experts/"><u>Revamp Your Scanner Performance with Driver Updates - Tips From YL Software Experts</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-vivo-v27e-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Vivo V27e Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-vivo-y200-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Vivo Y200 | Dr.fone</u></a></li>
 </ul></div>
 

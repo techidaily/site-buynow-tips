@@ -1,7 +1,7 @@
 ---
 title: "A Comprehensive Critique on Pixel Slate: Confronting ChromeOS Difficulties"
-date: 2025-01-02T20:35:08.708Z
-updated: 2025-01-03T20:07:22.960Z
+date: 2025-01-07T13:33:58.916Z
+updated: 2025-01-09T23:13:34.086Z
 categories:
   - BestProducts
 description: "This Article Describes A Comprehensive Critique on Pixel Slate: Confronting ChromeOS Difficulties"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/c8166e8b96eec7a32e2c5447a156a34a01b3ade6d
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/HYgHMUDMFh7JI98Hj0JMbI2wcpw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -36,16 +40,12 @@ Lifewire / Kelsey Simon
 
 2.7
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
@@ -67,7 +67,7 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Story: Heavy-handed writing to the exclusion of all else**
@@ -75,6 +75,10 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -90,10 +94,6 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
  Beyond this, the other major gameplay mechanic is a system of effort and inspiration. Every action you take will prompt you to use effort. This effort allows for your character to work harder at the chosen action, and thus gives your character a better chance of accomplishing their goal.
@@ -108,10 +108,6 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -121,6 +117,10 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Only worth it if you’re keen on the story**
 
@@ -165,22 +165,19 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-unleash-creativity-with-snapchats-advanced-zooming/"><u>[New] Unleash Creativity with Snapchat's Advanced Zooming</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-navigate-picture-in-picture-settings-in-youtube-app-ios-for-2024/"><u>[Updated] Navigate Picture-in-Picture Settings in YouTube App iOS for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-ultimate-list-of-untapped-facebook-meme-havens/"><u>2024 Approved The Ultimate List of Untapped Facebook Meme Havens</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-tutorial-for-immersive-iphone-vr-viewing/"><u>2024 Approved The Ultimate Tutorial for Immersive iPhone VR Viewing</u></a></li>
-<li><a href="https://win-best.techidaily.com/diagnosing-a-sluggish-windows-experience-expert-tips-from-yl-computing/"><u>Diagnosing a Sluggish Windows Experience: Expert Tips From YL Computing</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-superior-visuals-with-the-new-picture-quality-update-on-your-roku-device/"><u>Discover Superior Visuals with the New Picture Quality Update on Your Roku Device</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/earn-your-complimentary-viewing-of-nfl-playoffs-with-verizons-promotion/"><u>Earn Your Complimentary Viewing of NFL Playoffs with Verizon's Promotion</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/elevate-your-gameplay-with-in-depth-screen-shotting-and-video-documentation-techniques/"><u>Elevate Your Gameplay with In-Depth Screen Shotting and Video Documentation Techniques</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/enhancing-productivity-how-my-switch-to-dual-mice-has-revolutionized-my-workflow/"><u>Enhancing Productivity: How My Switch to Dual Mice Has Revolutionized My Workflow</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/enjoy-virtual-reality-with-plex-streaming-on-oculus-quest-the-ultimate-guide/"><u>Enjoy Virtual Reality with Plex Streaming on Oculus Quest: The Ultimate Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/explore-fresh-gaming-options-with-your-roku-tvs-recent-update/"><u>Explore Fresh Gaming Options with Your Roku TV's Recent Update</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/fix-your-non-responsive-ea-application-with-these-proven-techniques/"><u>Fix Your Non-Responsive EA Application with These Proven Techniques</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/flawless-cross-sound-mixing-in-audacity-pro-for-2024/"><u>Flawless Cross-Sound Mixing in Audacity Pro for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/free-spotify-users-can-now-enjoy-song-lyrics-service-update-announced/"><u>Free Spotify Users Can Now Enjoy Song Lyrics: Service Update Announced</u></a></li>
-<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-nokia-g22-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Nokia G22 | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Xiaomi Redmi Note 13 Pro+ 5G? | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/lost-in-terraria-reconnect-with-these-proven-techniques-inside-the-blocky-world/"><u>Lost in Terraria? Reconnect with These Proven Techniques Inside the Blocky World</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/est-of-breed-top-rated-youtubers-streaming-arsenal/"><u>[New] Best of Breed Top-Rated Youtuber's Streaming Arsenal</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-strategies-for-effective-use-of-classroom-media-for-2024/"><u>[New] Strategies for Effective Use of Classroom Media for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-the-ultimate-jrpg-with-yakuza-like-a-dragon/"><u>Experience the Ultimate JRPG with Yakuza: Like a Dragon</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-dji-phantom-4-pro-v20-nearly-unrivaled-drone-mastery/"><u>Expert Analysis of the DJI Phantom 4 Pro v2.0: Nearly Unrivaled Drone Mastery</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-philips-hf3505-sunrise-simulator-alarm-unveiling-its-features-and-performance/"><u>Expert Analysis of the Philips HF3505 Sunrise Simulator Alarm - Unveiling Its Features and Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-twelve-souths-compact-and-secure-compass-pro/"><u>Expert Analysis of Twelve South's Compact and Secure Compass Pro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-insight-on-the-galaxy-ford-f-150-rc-behemoth-in-depth-review/"><u>Expert Insight on the Galaxy Ford F-150 R/C Behemoth: In-Depth Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-advantages-and-disadvantages-of-pidgin-instant-messaging-platform/"><u>Exploring Advantages & Disadvantages of Pidgin Instant Messaging Platform</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-easily-get-the-latest-microsoft-driver-software-for-your-windows-1187-pc/"><u>How to Easily Get the Latest Microsoft Driver Software for Your Windows 11/8/7 PC</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Oppo A78 | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-get-the-apple-id-verification-code-from-iphone-15-pro-max-in-the-best-ways-by-drfone-ios/"><u>In 2024, How To Get the Apple ID Verification Code From iPhone 15 Pro Max in the Best Ways</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-the-future-is-here-free-innovative-fb-story-enhancers/"><u>In 2024, The Future Is Here Free, Innovative FB Story Enhancers</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/tech-whisperer-navigating-macs-system-anomalies/"><u>Tech Whisperer: Navigating Mac's System Anomalies</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/eling-vloggers-terrors-and-techniques-to-triumph-for-2024/"><u>Unraveling Vloggers' Terrors and Techniques to Triumph for 2024</u></a></li>
 </ul></div>
 

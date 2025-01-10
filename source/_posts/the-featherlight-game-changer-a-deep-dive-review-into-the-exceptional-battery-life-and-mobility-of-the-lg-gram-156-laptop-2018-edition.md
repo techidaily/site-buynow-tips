@@ -1,7 +1,7 @@
 ---
 title: "The Featherlight Game Changer: A Deep Dive Review Into the Exceptional Battery Life & Mobility of the LG Gram 15.6 Laptop (2018 Edition)"
-date: 2024-12-14T17:29:34.430Z
-updated: 2024-12-16T16:23:58.442Z
+date: 2025-01-09T16:00:07.615Z
+updated: 2025-01-10T16:00:08.117Z
 categories:
   - BestProducts
 description: "This Article Describes The Featherlight Game Changer: A Deep Dive Review Into the Exceptional Battery Life & Mobility of the LG Gram 15.6 Laptop (2018 Edition)"
@@ -13,13 +13,13 @@ thumbnail: https://thmb.techidaily.com/11bd493dd0576b5128c521759756af9ef04692489
 
 3.3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Alienware Aurora R9
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/SBirmVys72S63lQd4lWukO_gXRw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -42,7 +42,7 @@ Lifewire / Zach Sweat
 3.3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Alienware Aurora R9
@@ -83,10 +83,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Polarizing sci-fi aesthetics**
 
  The best way to describe Alienware’s design for a vast majority of their products can be summed up as “polarizing.” Going all the way back to the company’s early days, their sci-fi and alien-esque aesthetics have always appealed to some, while those who prefer clean lines and minimal looks flee in the opposite direction.
@@ -106,6 +102,10 @@ Lifewire / Zach Sweat
  If you love Alienware or the look of the R9, it’s not a bad option, but it’s certainly not the most frugal.
 
  Inside the case, Alienware has made the new R9 quite upgradeable, allowing owners to easily pull things apart for access to various components. Though it’s a bit cramped inside, the genius ability to swing the PSU (power supply unit) out to the side when the case is removed provides easier access to the motherboard and all its parts. While we’re a bit concerned with the airflow due to this tight fit inside the case, it does allow you to upgrade hardware down the line if you want.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Plug and play**
 
@@ -136,7 +136,7 @@ Lifewire / Zach Sweat
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/zWvKnnWGsRBdtRIHTYYD7HEs0qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-13-88a6bd8dac13438794a0bb038df7757f.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -156,10 +156,6 @@ Lifewire / Zach Sweat
  Aside from FPS, the load times for games compared to my[SSD-equipped](https://www.lifewire.com/best-external-hard-drives-4050413) PC were much, much slower. Loading into planets and zones in[Destiny 2](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) takes only a few moments with an SSD, while this HDD R9 felt twice as long or more—similar to what you’d see with any current-gen gaming console (they all have HDDs).
 
  Your gaming performance in relation to the Aurora is subject to your hardware, peripherals and network speeds if playing an online game, so choose the best model you can afford within your budgetary restrictions and keep in mind how you plan to use your PC.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Audio: Decent prebuilt performance and surround sound**
 
@@ -188,6 +184,10 @@ Lifewire / Zach Sweat
  There are multiple Wi-Fi options for hardware on the R9 if you’re willing to pay extra, but the included 802.11ac 2x2 Wireless, Wi-Fi and Bluetooth 4.1 worked well enough for us in a pinch. Even still, you’re better off using a cable.
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wMnVqt6RV24C1Vfncnf2J3E0fAg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-15-fe70fca5ffd04da6abd8c0ef8f026eef-f6d5eaf9efcb461a902fc750a192dd0c.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -218,7 +218,7 @@ Lifewire / Zach Sweat
  Overall, the price of the R9 is ok at best, and you do get some nice software features from Alienware, but it’s still cheaper to build your own.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Alienware Aurora R9 vs. Dell G5 5090**
@@ -265,14 +265,24 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/updated-bridging-communication-gaps-utilizing-zoom-with-gmail-mail/"><u>[Updated] Bridging Communication Gaps Utilizing Zoom with Gmail Mail</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-digital-imagery-standards-rgb-and-its-successor-srgb-for-2024/"><u>[Updated] Digital Imagery Standards Rgb & Its Successor, Srgb for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-a-comprehensive-list-top-rated-srt-translation-services/"><u>2024 Approved A Comprehensive List Top-Rated SRT Translation Services</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/2024s-leading-ergo-friendly-typing-solutions-reviewed/"><u>2024'S Leading Ergo-Friendly Typing Solutions Reviewed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/futureproofing-your-internet-the-premier-long-distance-routers-launched/"><u>Futureproofing Your Internet: The Premier Long-Distance Routers Launched</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-xiaomi-redmi-note-13-pro-5g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Xiaomi Redmi Note 13 Pro 5G to iPhone Easily | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/mastering-monetization-an-instagram-income-journey-for-2024/"><u>Mastering Monetization An Instagram Income Journey for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/tp-link-re305-range-extender-ac1200-evaluation-user-friendly-design/"><u>TP-Link RE305 Range Extender AC1200 Evaluation: User-Friendly Design</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/value-meets-versatility-our-comprehensive-review-of-the-zte-blade-a3y-budget-phone/"><u>Value Meets Versatility: Our Comprehensive Review of the ZTE Blade A3Y Budget Phone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723206083173-solution-quickly-solve-your-windowslinux-high-cpu-issues-direct-actions-against-the-root-cause-shell-infrastructures/"><u>(Solution) Quickly Solve Your Windows/Linux High CPU Issues – Direct Actions Against the Root Cause, Shell Infrastructures.</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-practical-demonstrations-creating-and-configuring-timer-modules-in-obs-for-2024/"><u>[New] Practical Demonstrations Creating and Configuring Timer Modules in OBS for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-serene-soundtracks-copyright-free-legal-meditation-music/"><u>[New] Serene Soundtracks – Copyright-Free, Legal Meditation Music</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-rhythm-revivers-guide-to-distorted-beats/"><u>[New] The Rhythm Reviver's Guide to Distorted Beats</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-highly-effective-family-internet-management-routers/"><u>2024'S Highly Effective Family Internet Management Routers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/beatit-bt-d11-jump-starter-review-mighty/"><u>Beatit BT-D11 Jump Starter Review: Mighty</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-mobile-antivirus-software-for-your-iphone/"><u>Best Mobile Antivirus Software for Your iPhone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/can-you-upgrade-ram-on-a-laptop/"><u>Can You Upgrade RAM on a Laptop?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-breakdown-features-and-benefits-of-philips-somneo-sleep-time-machine/"><u>Comprehensive Breakdown: Features & Benefits of Philips Somneo Sleep Time Machine</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-eero-pro-mesh-network-test-run-optimal-coverage-across-every-room/"><u>Comprehensive Eero Pro Mesh Network Test Run - Optimal Coverage Across Every Room</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-fintie-macbook-pro-13-sleeve-balancing-cost-with-superior-protection/"><u>Comprehensive Evaluation of the Fintie MacBook Pro 13 Sleeve - Balancing Cost with Superior Protection</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-selecting-superior-long-range-wifi-routers/"><u>Comprehensive Review: Selecting Superior Long-Range WiFi Routers</u></a></li>
+<li><a href="https://win-help.techidaily.com/effective-methods-to-break-free-from-the-dell-continuous-reboot-cycle-on-windows-10/"><u>Effective Methods to Break Free From the Dell Continuous Reboot Cycle on Windows 10</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/expert-tips-for-3d-text-designing-in-ai/"><u>Expert Tips for 3D Text Designing in AI</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/guida-facile-per-tagliare-i-filmini-in-vlc-i-passaggi-essenziali/"><u>Guida Facile per Tagliare I Filmini in VLC: I Passaggi Essenziali</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-can-i-play-mov-files-on-galaxy-a24-by-aiseesoft-video-converter-play-mov-on-android/"><u>How can I play .mov files on Galaxy A24 ?</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/how-to-fix-the-apple-iphone-13-pro-max-gps-not-working-issue-drfone-by-drfone-virtual-ios/"><u>How to Fix the Apple iPhone 13 Pro Max GPS not Working Issue | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-navigating-network-growth-strategies-for-instagram-success/"><u>In 2024, Navigating Network Growth Strategies for Instagram Success</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1722986517068-the-perfect-mix-of-elegance-and-technology-in-the-withings-move-reviewed-here/"><u>The Perfect Mix of Elegance and Technology in the Withings Move Reviewed Here</u></a></li>
 </ul></div>
 

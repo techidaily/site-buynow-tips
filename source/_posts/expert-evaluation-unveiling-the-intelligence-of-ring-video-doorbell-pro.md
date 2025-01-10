@@ -1,7 +1,7 @@
 ---
 title: "Expert Evaluation: Unveiling the Intelligence of Ring Video Doorbell Pro"
-date: 2024-12-17T21:29:44.385Z
-updated: 2024-12-24T16:33:32.209Z
+date: 2025-01-06T16:00:00.627Z
+updated: 2025-01-10T16:00:27.554Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Evaluation: Unveiling the Intelligence of Ring Video Doorbell Pro"
@@ -41,17 +41,9 @@ Lifewire / Emily Isaacs
 
 4.4
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -74,7 +66,7 @@ Lifewire / Emily Isaacs
  You can tell Microsoft put a considerable amount of thought into the Sculpt Ergonomic Keyboard’s design. From the manta ray style folds, which keep shoulders and hands at a relaxed, comfortable angle, to the detached numpad and magnetized risers for increased customization options when you want them, the Sculpt is quite the package. As with anything new, it took a period of adjustment, but we found it relatively quick thanks to the intuitive, easy-to-use design.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Made for comfort**
@@ -101,6 +93,10 @@ Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
  Backlighting—we love it, but the Sculpt doesn’t have it. This is, in large part, thanks to its battery-powered design. It wouldn’t make a great deal of sense for the Sculpt to have backlighting since the two AAA[alkaline batteries](https://www.lifewire.com/best-aa-and-aaa-rechargeable-batteries-4134295) would drain significantly faster, but we sure did miss it. It’s important to note that our love of backlighting is also a matter of personal preference. If it’s important to you, you might want to consider a different model. If you can live without it, the Sculpt still has a lot to offer.
@@ -110,7 +106,7 @@ Lifewire / Emily Isaacs
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Great for the features**
@@ -119,7 +115,15 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
@@ -144,10 +148,6 @@ Lifewire / Emily Isaacs
  **A secure, mid-priced wireless keyboard with lots of customization options.**
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -179,24 +179,16 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-lost-and-found-30-free-speech-to-text-mac-hits/"><u>[New] Lost and Found 30 Free Speech-to-Text Mac Hits</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-mastering-media-craft-debate-between-filmora-and-democracy-creator-for-2024/"><u>[New] Mastering Media Craft Debate Between Filmora & Democracy Creator for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-navigating-the-world-of-media-with-vlc-on-mac/"><u>[New] Navigating the World of Media with VLC on Mac</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-secrets-to-amassing-affordable-artistic-elements/"><u>[Updated] In 2024, Secrets to Amassing Affordable Artistic Elements</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-taking-photos-steadily-on-one-leg/"><u>[Updated] In 2024, Taking Photos Steadily on One Leg?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-music-from-lava-agni-2-5g-by-fonelab-android-recover-music/"><u>Easy steps to recover deleted music from Lava Agni 2 5G</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/elevate-your-wifi-experience-with-the-linksys-ea9500-in-depth-performance-insights-and-review/"><u>Elevate Your WiFi Experience with the Linksys EA9500 – In-Depth Performance Insights and Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/embark-on-a-thrilling-journey-in-robotics-an-insightful-review-of-the-fun-and-educational-makeblock-mbot-coding-and-building-adventure/"><u>Embark on a Thrilling Journey in Robotics - An Insightful Review of the Fun and Educational Makeblock mBot Coding & Building Adventure</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/examining-the-new-direction-in-tech-with-samsungs-smartphone-evolution-the-galaxy-s21-insight/"><u>Examining the New Direction in Tech with Samsung's Smartphone Evolution: The Galaxy S21 Insight</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-luxury-mobility-with-the-glion-dolly-electric-scooter-review-excellence-meets-expense/"><u>Experience Luxury Mobility with the Glion Dolly Electric Scooter Review – Excellence Meets Expense</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-affordable-ssl-marketplace/"><u>Exploring the Affordable SSL Marketplace</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-world-of-yakuza-a-comprehebale-reveal-on-like-a-dragon-the-must-have-jrpg-title/"><u>Exploring the World of Yakuza: A Comprehebale Reveal on 'Like a Dragon': The Must-Have JRPG Title</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/future-proof-your-home-elite-selection-of-smart-speakers/"><u>Future-Proof Your Home: Elite Selection of Smart Speakers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/get-acquainted-with-the-latest-ampace-andes-1500-the-pinnacle-of-portable-power-technology/"><u>Get Acquainted with the Latest Ampace Andes 1500 - The Pinnacle of Portable Power Technology</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/head-to-head-review-the-new-era-of-smartphones-s24-vs-s23-ultra/"><u>Head-to-Head Review: The New Era of Smartphones - S24 Vs. S23 Ultra</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-messages-from-note-50-by-fonelab-android-recover-messages/"><u>Possible solutions to restore deleted messages from Note 50</u></a></li>
-<li><a href="https://win-net.techidaily.com/power-on-issues-with-your-computer-explained-diagnosis-and-repair-guide-yl-computing-experts/"><u>Power On Issues with Your Computer Explained: Diagnosis and Repair Guide – YL Computing Experts</u></a></li>
-<li><a href="https://network-issues.techidaily.com/steps-to-reactivate-gpu-fan-spins/"><u>Steps to Reactivate GPU Fan Spins</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/understanding-the-limitations-of-ai-why-you-should-think-twice-before-trusting-chatgpt-with-personal-info/"><u>Understanding the Limitations of AI: Why You Should Think Twice Before Trusting ChatGPT With Personal Info</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastering-adobe-easy-hue-transformations/"><u>[New] Mastering Adobe Easy Hue Transformations</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-editing-magic-transformative-strategies-for-youtube-creators-for-2024/"><u>[Updated] Editing Magic Transformative Strategies for YouTube Creators for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-mastery-in-maintaining-a-clean-feed-best-twitter-tools/"><u>[Updated] In 2024, Mastery in Maintaining a Clean Feed Best Twitter Tools</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/how-to-update-your-flipbooks-background-using-flipbuilder/"><u>How to Update Your Flipbook's Background Using FlipBuilder</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-can-we-bypass-vivo-y36i-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Vivo Y36i FRP?</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcoming-visual-glitches-in-the-sims-4-a-guide-for-video-card-troubleshooting/"><u>Overcoming Visual Glitches in The Sims 4 - A Guide for Video Card Troubleshooting</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-ion-audio-tailgater-plus-ultimate-portable-sound-experience-with-on-demand-bass-boost/"><u>Review of ION Audio Tailgater Plus: Ultimate Portable Sound Experience with On-Demand Bass Boost</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reviewing-fujitsus-ix1600-the-perfect-desktop-solution-for-all-your-document-needs/"><u>Reviewing Fujitsu's iX1600 - The Perfect Desktop Solution for All Your Document Needs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionizing-performance-the-2020-apple-macbook-air-with-m1-chip-unveiled/"><u>Revolutionizing Performance: The 2020 Apple MacBook Air with M1 Chip Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/smart-home-showdown-comparing-alexa-and-google-assistant-to-find-your-perfect-match/"><u>Smart Home Showdown: Comparing Alexa and Google Assistant to Find Your Perfect Match.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sx420-camera-overview-capturing-wonders-with-42x-zoom/"><u>SX420 Camera Overview – Capturing Wonders with 42X Zoom</u></a></li>
 </ul></div>
 

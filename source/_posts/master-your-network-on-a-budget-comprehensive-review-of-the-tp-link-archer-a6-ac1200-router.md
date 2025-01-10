@@ -1,7 +1,7 @@
 ---
 title: "Master Your Network On a Budget: Comprehensive Review of the TP-Link Archer A6 AC1200 Router"
-date: 2024-12-28T20:31:36.911Z
-updated: 2025-01-03T19:36:11.640Z
+date: 2025-01-04T01:52:30.917Z
+updated: 2025-01-10T15:10:41.881Z
 categories:
   - BestProducts
 description: "This Article Describes Master Your Network On a Budget: Comprehensive Review of the TP-Link Archer A6 AC1200 Router"
@@ -41,7 +41,7 @@ Lifewire / Claire Cohen
 ![TP-Link AC1200 Wi-Fi Range Extender RE305](https://www.lifewire.com/thmb/C8f1R4cMjb3MUZ1ViPdvQ67Q7tE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4LW4043312-0cb211cf35c746879e5136b3f9d62b63.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Claire Cohen
@@ -87,6 +87,10 @@ Lifewire / Claire Cohen
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/PS8-Iywv5MsnOo99Fir-jNOiPF8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-4-5c924206c9e77c0001ff0bb8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Claire Cohen
 
  You'll create a password, let the device scan your network for an applicable router, and then enter the SSID and password to your current wireless network from there. There are options to change the extender network’s SSID and password if you so choose, but otherwise, it’ll remain the same as your default network. Once completed, the 2.4 GHz and/or 5GHz lights on the device should come on, depending on[your router's functionality](https://www.lifewire.com/what-is-a-router-2618162) . The entire process from unboxing to surfing the web took about 7 minutes.
@@ -97,6 +101,10 @@ Lifewire / Claire Cohen
 
  There is one important pain point, however, to keep in mind during setup. The extender's administrative password utilizes a default "admin/admin" login, so you'll want to change that to keep unauthorized users out. It can be changed via the TP-Link Tether app, which isn't clearly lined out in the instructions. It isn't required, but if you want to keep your network as secure as possible, it's an important part of setup.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Connectivity and Network Performance:** **Strong, multi-device connectivity**
 
  Several devices were connected to our wireless network, including a MacBook Pro,[iPhone X](https://www.lifewire.com/iphone-x-4150706) , iPad Pro,[Nintendo Switch](https://www.lifewire.com/what-is-the-nintendo-switch-4148184) , and[PlayStation 4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) . When testing the wireless extender's range, at 10 feet to around 70 or so feet away from the router in a 2,100 square foot home, its signal was quite strong, with full bars on an iPhone X and iPad Pro in most areas. One bathroom on the first floor did suffer from occasionally spotty connectivity at around 1,500 feet away from the router.
@@ -105,14 +113,10 @@ Lifewire / Claire Cohen
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/Lyz1QcuQDPYlUp5pPBJiL0YKSag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-2-5c9241dcc9e77c0001a92785.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Claire Cohen
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: Clean and easy to understand**
@@ -128,7 +132,7 @@ Lifewire / Claire Cohen
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/bG-oXoYxR83gVSUH4vzz37hfYxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-1-5c92424b46e0fb000172f127.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
@@ -144,10 +148,6 @@ Lifewire / Claire Cohen
 **A no-frills option for smaller homes.**
 
  The TP-Link AC1200 Wi-Fi Range Extender RE305 is a no-frills extender with supports dual-band Wi-Fi support and an Ethernet port for wired connectivity. It won’t fare well in homes beyond 2,000 square feet, but it's a value-priced extender that can be relied on at shorter ranges.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -182,19 +182,24 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-role-of-tags-in-boosting-video-popularity/"><u>[New] 2024 Approved The Role of Tags in Boosting Video Popularity</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-enhance-listening-pleasure-constructing-a-youtube-playlist/"><u>[New] In 2024, Enhance Listening Pleasure Constructing a YouTube Playlist</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-unlock-the-potential-of-your-channels-with-our-guide-to-discord-broadcasting/"><u>[Updated] Unlock the Potential of Your Channels with Our Guide to Discord Broadcasting</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-evaluating-the-updated-movavi-video-editor/"><u>2024 Approved Evaluating the Updated Movavi Video Editor</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-premium-sound-with-beehive-earbuds/"><u>Affordable, Premium Sound with BeeHive Earbuds</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/easy-steps-for-connecting-a-printer-to-windows-10-operating-system-by-yl-software-professionals/"><u>Easy Steps for Connecting a Printer to Windows 10 Operating System by YL Software Professionals</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/economical-luxe-illumination-with-studiokitxz/"><u>Economical Luxe Illumination with StudioKitXZ</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-the-chargetech-27000mah-portable-charger-unveiled/"><u>Expert Insights on the ChargeTech 27000mAh Portable Charger – Unveiled!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/getting-started-with-the-latest-blink-outdoor-floodlight-camera-your-complete-guide-for-ultimate-security-and-peace-of-mind/"><u>Getting Started with the Latest Blink Outdoor Floodlight Camera - Your Complete Guide for Ultimate Security & Peace of Mind</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/google-meet-screen-record-tips-for-iphoneandroid-users-for-2024/"><u>Google Meet Screen Record Tips for iPhone/Android Users for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-itel-p40-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Itel P40 to Outlook | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/master-builders-rejoice-in-depth-analysis-of-the-captivating-city-planner-game/"><u>Master Builders Rejoice: In-Depth Analysis of the Captivating City Planner Game</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastering-audio-cds-mp3-conversion-with-imgburn-for-windows-users/"><u>Mastering Audio CDs: MP3 Conversion with ImgBurn for Windows Users</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/premium-experience-on-a-budget-apples-ipad-air-4-showdown-with-the-ipad-pro/"><u>Premium Experience on a Budget: Apple's iPad Air 4 Showdown with the iPad Pro</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-from-bland-to-breatited-the-ultimate-video-title-guide/"><u>[New] In 2024, From Bland to Breatited The Ultimate Video Title Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-googles-take-on-ar-stickers-an-overview-and-beyond/"><u>[New] In 2024, Google's Take on AR Stickers An Overview & Beyond</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-integrating-obs-for-youtube-and-twitch-streaming-for-2024/"><u>[New] Integrating OBS for YouTube & Twitch Streaming for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-warriors-path-a-list-of-intense-fighting-games/"><u>[Updated] In 2024, Warrior's Path A List of Intense Fighting Games</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-high-performance-photo-companion/"><u>Budget-Friendly, High-Performance Photo Companion</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/choosing-your-tablet-wisely-in-depth-analysis-of-ipad-vs-ipad-air-features/"><u>Choosing Your Tablet Wisely: In-Depth Analysis of iPad Vs. IPad Air Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/critique-on-the-jackery-powerbar-highlighting-its-convenient-built-in-wall-socket-functionality/"><u>Critique on the Jackery PowerBar – Highlighting Its Convenient Built-In Wall Socket Functionality</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cutting-edge-laptop-showdown-lenovo-yoga-a940-assessment/"><u>Cutting-Edge Laptop Showdown: Lenovo Yoga A940 Assessment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-best-features-of-the-versatile-samsung-galaxy-tab-s4-in-this-detailed-review/"><u>Discovering the Best Features of the Versatile Samsung Galaxy Tab S4 in This Detailed Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/efficient-acer-aspire-c27-the-sleek-comprehensive-desktop-computer/"><u>Efficient Acer Aspire C27 - The Sleek, Comprehensive Desktop Computer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-midland-lxt500vp3-range-high-tech-communication-tools-that-fall-short-in-execution/"><u>Evaluating the Midland LXT500VP3 Range: High-Tech Communication Tools That Fall Short in Execution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exclusive-oculus-quest-2-elite-gaming-headset-straps-extra-battery-and-protective-case-unboxed/"><u>Exclusive Oculus Quest 2 Elite Gaming Headset - Straps, Extra Battery & Protective Case Unboxed!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-precision-on-a-budget-with-the-moto-g-stylus-our-in-depth-analysis/"><u>Experience Precision on a Budget with the Moto G Stylus – Our In-Depth Analysis</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-google-pixel-fold-screen-sharing-drfone-by-drfone-android/"><u>How To Do Google Pixel Fold Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/1722987245835-no-more-game-crashes-decode-and-repair-your-cod-vanguard-en-error-0x00001338-on-pc-now/"><u>No More Game Crashes – Decode and Repair Your COD Vanguard E:N (Error 0X00001338) on PC Now</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/spooktacular-desktop-backgrounds-for-halloween-enthusiasts-immersive-visuals-by-yl-creative-suite/"><u>Spooktacular Desktop Backgrounds for Halloween Enthusiasts – Immersive Visuals by YL Creative Suite</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1723964488313-steal-a-deal-iconic-famicom-style-retro-keyboard-by-8bitdo-now-just-59/"><u>Steal a Deal: Iconic Famicom-Style Retro Keyboard by 8BitDo Now Just $59</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/strength-training-your-prompt-skills-on-chatgpt-as-a-fitness-aficionado/"><u>Strength Training Your Prompt Skills on ChatGPT as a Fitness Aficionado</u></a></li>
 </ul></div>
 

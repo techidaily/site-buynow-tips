@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to the Sturdy & Portable Kensun Tire Inflator Review
-date: 2024-12-30T16:53:33.046Z
-updated: 2025-01-03T19:52:45.274Z
+date: 2025-01-02T21:48:36.212Z
+updated: 2025-01-10T09:10:15.424Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Guide to the Sturdy & Portable Kensun Tire Inflator Review
@@ -16,10 +16,6 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/OIHJ0F8VMR0yFUpC8veJBJ39E6A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -46,10 +42,6 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -85,7 +77,7 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: It can’t realistically be much simpler**
@@ -96,6 +88,10 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Plenty of power for all your needs**
 
  Time and again, the Beatit Jump Starter D11 was able to get a car with a very[depleted battery](https://www.lifewire.com/car-batteries-are-made-to-die-534765) started. Even after repeated testing the unit’s own battery only dropped down to 85% capacity.
@@ -105,7 +101,7 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Key Features: The flashlight is nice but is basically a spotlight**
@@ -116,15 +112,15 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: A ton of value for a tiny cost**
 
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
 
  At that price point, it packs a ton of value into its diminutive size.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
@@ -141,6 +137,10 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 **For the price, it's perfect.**
 
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -173,19 +173,22 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-digital-footprints-recording-nintendo-switch-sessions/"><u>[New] 2024 Approved Digital Footprints Recording Nintendo Switch Sessions</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-from-novice-to-expert-a-comprehensive-guide-to-macs-preview-software/"><u>[New] In 2024, From Novice to Expert A Comprehensive Guide to Mac's Preview Software</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-using-zooms-snap-to-boost-video-conferences-for-2024/"><u>[New] Using Zoom’s Snap to Boost Video Conferences for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-no-cost-humor-in-your-arsenal-ultimate-meme-guide/"><u>2024 Approved No-Cost Humor in Your Arsenal – Ultimate Meme Guide</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/50plus-amazing-online-sources-to-boost-your-fb-cover-image-for-2024/"><u>50+ Amazing Online Sources to Boost Your FB Cover Image for 2024</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/how-to-track-whatsapp-messages-on-apple-iphone-13-pro-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>How to Track WhatsApp Messages on Apple iPhone 13 Pro Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Apple iPhone 13 mini | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-samsung-galaxy-a05s-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Samsung Galaxy A05s</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-ranked-vpns-for-gamers-optimizing-your-online-play/"><u>Top-Ranked VPNs for Gamers: Optimizing Your Online Play</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-ranking-virtual-reality-headsets/"><u>Top-Ranking Virtual Reality Headsets</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-dslr-camera-models-for-photography-enthusiasts/"><u>Top-Rated DSLR Camera Models for Photography Enthusiasts</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-gaming-rigs-revealed-the-ultimate-pc-case-picks/"><u>Top-Rated Gaming Rigs Revealed: The Ultimate PC Case Picks</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-heat-sink-compounds-a-comprehensive-guide/"><u>Top-Rated Heat Sink Compounds : A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-instant-image-producers-the-ultimate-guide-to-the-fastest-printing-devices-in-2n24/"><u>Top-Rated Instant Image Producers: The Ultimate Guide to the Fastest Printing Devices in 2N24</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-proven-tactics-increasing-your-instagram-video-traffic/"><u>[New] 2024 Approved Proven Tactics Increasing Your Instagram Video Traffic</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-exploring-advanced-features-in-intova-edge-x/"><u>[Updated] In 2024, Exploring Advanced Features in Intova Edge X</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-pro-3-examined-the-ion-airs-game-changing-video-innovation/"><u>2024 Approved Pro 3 Examined The ION Air's Game-Changing Video Innovation</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-an-in-depth-look-at-basic-and-simplified-hdr-photography/"><u>In 2024, An In-Depth Look at Basic and Simplified HDR Photography</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/incredible-virtual-films-to-explore/"><u>Incredible Virtual Films to Explore</u></a></li>
+<li><a href="https://driver-download.techidaily.com/mastering-compatibility-installing-the-newest-wd-ses-driver-for-usb-devices-in-modern-windows-systems/"><u>Mastering Compatibility: Installing the Newest WD SES Driver for USB Devices in Modern Windows Systems</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-through-the-best-6-destinations-to-shop-for-computers/"><u>Navigating Through The Best 6 Destinations to Shop for Computers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/portable-gaming-revolutionized-evaluating-the-features-and-value-of-the-nintendo-switch-lite/"><u>Portable Gaming Revolutionized: Evaluating the Features and Value of the Nintendo Switch Lite</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/prime-tech-bargains-of-2prise-get-ready-for-huge-savings-in-the-upcoming-2024-event/"><u>Prime Tech Bargains of 2Prise – Get Ready for Huge Savings in the Upcoming 2024 Event</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-why-the-samsung-un65nu8000fxza-feels-mediocre-for-its-cost/"><u>Review: Why the Samsung UN65NU8000FXZA Feels Mediocre for Its Cost</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/score-big-savings-exclusive-apple-deals-only-available-this-prime-day/"><u>Score Big Savings: Exclusive Apple Deals Only Available This Prime Day</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/synology-rt2600ac-the-ultimate-guide-to-its-exceptional-long-range-wi-fi-and-comprehensive-parent-control-functions/"><u>Synology RT2600ac: The Ultimate Guide to Its Exceptional Long Range Wi-Fi and Comprehensive Parent Control Functions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/terramat-cubefit-evaluation-boost-your-fitness-routine-in-a-standing-position/"><u>TerraMat CubeFit Evaluation: Boost Your Fitness Routine in a Standing Position</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-best-ups-battery-backups-of-2024/"><u>The Best UPS Battery Backups of 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlocking-the-potential-of-artificial-intelligence-with-instagrams-metadata-strategies/"><u>Unlocking the Potential of Artificial Intelligence with Instagram's Metadata Strategies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/king-youtubes-earning-potential-in-the-new-year/"><u>Unlocking YouTube's Earning Potential in the New Year</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unveiling-the-secrets-share-images-professionally-on-youtube-for-2024/"><u>Unveiling the Secrets Share Images Professionally on YouTube for 2024</u></a></li>
 </ul></div>
 

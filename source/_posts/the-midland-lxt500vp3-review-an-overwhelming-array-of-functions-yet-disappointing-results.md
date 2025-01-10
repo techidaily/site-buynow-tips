@@ -1,7 +1,7 @@
 ---
 title: The Midland LXT500VP3 Review – An Overwhelming Array of Functions Yet Disappointing Results
-date: 2024-12-30T16:25:28.825Z
-updated: 2025-01-03T19:49:52.845Z
+date: 2025-01-08T12:46:50.341Z
+updated: 2025-01-10T04:32:57.926Z
 categories:
   - BestProducts
 description: This Article Describes The Midland LXT500VP3 Review – An Overwhelming Array of Functions Yet Disappointing Results
@@ -42,7 +42,7 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Um5K58ex8qVMnW5PlEtqzPi9c-4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
@@ -86,7 +86,7 @@ Lifewire / Andrew Hayward
  The C302 has a little bit of accent lighting via a pair of blue lights beneath each fan, but it doesn’t emanate a significant glow, nor is it customizable in any way.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Setup Process: Plug and play
@@ -95,11 +95,11 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
 
-Lifewire / Andrew Hayward
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Lifewire / Andrew Hayward
 
 ## Performance: It makes a difference
 
@@ -115,15 +115,15 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Xs71AyeThjZwy-vZJ9LfxIhuXJc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_04-eadbaf270b874af9bb8843b95efe8ca7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
  Lastly, UNIGINE’s Heaven Benchmark hit 162 degrees internally and 109 degrees externally on the Razer Blade 15 alone, and dropped to 154 degrees internally and 105 degrees externally when using the C302\. All told, this lightweight and affordable pad delivered solid cooling power that helped cut down on both the internal and external temperature of the laptop while under significant stress.
 
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Price: It’s very affordable
 
@@ -144,7 +144,7 @@ Lifewire / Andrew Hayward
  Durability questions aside, the TopMate C302 Laptop Cooling Pad ultimately worked about as well as the other, pricier pads I tested, helping to offset some of the heat generated by a very hot gaming laptop. If you’re concerned about long-term damage or performance degradation from an overheating laptop, the C302 is a cost-efficient way to help keep your notebook from reaching extreme heat peaks.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -181,20 +181,24 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-make-a-splash-with-instagram-reels-using-tried-and-true-tiktok-hacks/"><u>[Updated] 2024 Approved Make a Splash with Instagram Reels Using Tried-and-True TikTok Hacks</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-integrating-luts-into-after-effects-workflow/"><u>2024 Approved Integrating LUTs Into After Effects Workflow</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-techniques-to-slow-down-online-video-playback-49-chars/"><u>2024 Approved Techniques to Slow Down Online Video Playback (49 Chars)</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apple-airpods-pro-vs-samsung-galaxy-buds-pro/"><u>Apple AirPods Pro Vs. Samsung Galaxy Buds Pro</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-testing-and-evaluation-of-sumind-bt7c-bluetooth-fm-transmitter-your-ideal-in-car-companion/"><u>Comprehensive Testing & Evaluation of Sumind BT7C Bluetooth FM Transmitter - Your Ideal In-Car Companion</u></a></li>
-<li><a href="https://win-blog.techidaily.com/discover-a-stable-and-uninterrupted-playthrough-of-disco-elysium-on-your-pc-errors-fixed/"><u>Discover a Stable and Uninterrupted Playthrough of Disco Elysium on Your PC - Errors Fixed!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-features-of-mobvoi-ticwatch-pro-3-gps-maximizing-longevity-with-two-screens/"><u>Exploring the Features of Mobvoi TicWatch Pro 3 GPS - Maximizing Longevity with Two Screens</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/four-key-advantages-of-claude-over-chatgpt-explored-here/"><u>Four Key Advantages of Claude Over ChatGPT Explored Here</u></a></li>
-<li><a href="https://fox-search.techidaily.com/how-to-effortlessly-convertopen-heic-files-on-macos-without-cost/"><u>How to Effortlessly Convert/Open HEIC Files on macOS Without Cost</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-vivo-y36i-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Vivo Y36i Screen | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/tablet-selection-guide-assessing-chipset-performance-and-efficiency/"><u>Tablet Selection Guide: Assessing Chipset Performance and Efficiency</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-cost-of-precision-with-the-ambient-ws-10002-wifi-weather-sensor-a-comprehensive-review/"><u>The Cost of Precision with the Ambient WS-10002 WiFi Weather Sensor - A Comprehensive Review</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/top-5-lubicu-konverzantu-dvd-do-formatu-mp4-pro-pc-na-internet-movavi/"><u>Top 5 Lubičů Konverzantů DVD Do Formatu MP4 Pro PC Na Internet - Movavi</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/tp-link-archer-c9-the-ultimate-review-of-a-cost-effective-wireless-router/"><u>TP-Link Archer C9: The Ultimate Review of a Cost-Effective Wireless Router</u></a></li>
-<li><a href="https://solve-help.techidaily.com/windows-11-deployment-mastery-utilizing-winpe-usb-drive-for-imaging/"><u>Windows 11 Deployment Mastery: Utilizing WinPE USB Drive for Imaging</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-retro-cinema-a-look-at-the-goofy-adventure/"><u>[New] Retro Cinema A Look at 'The Goofy Adventure'</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-art-of-profit-driven-online-shopping-blogosynthesis/"><u>[New] The Art of Profit-Driven Online Shopping Blogosynthesis</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-professional-strategies-converting-xmlssattml-to-dynamic-srts/"><u>[Updated] 2024 Approved Professional Strategies Converting XML/SSA/TTML to Dynamic SRTs</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-top-5-mac-cam-alternatives-to-elevate-your-digital-screens/"><u>[Updated] 2024 Approved Top 5 Mac Cam Alternatives to Elevate Your Digital Screens</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-simplifying-snapchat-recording-for-smooth-experience/"><u>[Updated] In 2024, Simplifying Snapchat Recording for Smooth Experience</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-the-professionals-secret-utilizing-windows-movie-maker-expertly-in-windows-8-systems-for-2024/"><u>[Updated] The Professional's Secret Utilizing Windows Movie Maker Expertly in Windows 8 Systems for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-insight-why-the-xbox-one-elite-series-2-is-crowned-as-a-timeless-controller-classic/"><u>Expert Insight: Why the Xbox One Elite Series 2 Is Crowned as a Timeless Controller Classic</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/explore-lightzone-photo-editor-top-rated-free-darkroom-tool-compatible-with-windows-macos-and-linux/"><u>Explore Lightzone Photo Editor: Top-Rated Free Darkroom Tool Compatible with Windows, macOS & Linux</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/fastest-way-to-discover-contacts-leveraging-massmail-solutions/"><u>Fastest Way to Discover Contacts: Leveraging MassMail Solutions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fossil-sport-collection-reviewed-exceptional-quality-meets-budget-friendly-prices/"><u>Fossil Sport Collection Reviewed: Exceptional Quality Meets Budget-Friendly Prices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/gamers-guide-to-selecting-the-ideal-iphone-model/"><u>Gamers' Guide to Selecting the Ideal iPhone Model</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/high-res-gaming-dilemma-should-you-upgrade-to-ps5/"><u>High-Res Gaming Dilemma: Should You Upgrade to PS5?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-to-supercharge-your-macbook-pro-switch-to-ssd/"><u>How to Supercharge Your MacBook Pro - Switch to SSD</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-lava-yuva-2-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Lava Yuva 2 Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-nulaxy-km18-bluetooth-fm-unit-for-vehicles-a-veteran-pick-reviewed/"><u>In-Depth Analysis of Nulaxy KM18 Bluetooth FM Unit for Vehicles: A Veteran Pick Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-latest-apple-tv-4k-series-6-model/"><u>In-Depth Analysis of the Latest Apple TV 4K Series 6 Model</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-latest-apple-tv-4k-third-gen-model-overview/"><u>In-Depth Analysis of the Latest Apple TV 4K: Third Gen Model Overview</u></a></li>
+<li><a href="https://win-tips.techidaily.com/ripristina-una-partizione-cancellata-o-persa-su-windows-1011-con-questa-guida-dettagliata/"><u>Ripristina Una Partizione Cancellata O Persa Su Windows 10/11 Con Questa Guida Dettagliata</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722797606968-stateless-address-autoconfiguration-in-ipv6-can-introduce-privacy-and-prediction-issues-if-additional-security-measures-are-not-applied/"><u>Stateless Address Autoconfiguration in IPv6 Can Introduce Privacy and Prediction Issues if Additional Security Measures Are Not Applied.</u></a></li>
 </ul></div>
 

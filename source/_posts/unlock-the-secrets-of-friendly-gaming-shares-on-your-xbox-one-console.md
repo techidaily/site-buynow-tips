@@ -1,7 +1,7 @@
 ---
 title: Unlock the Secrets of Friendly Gaming Shares on Your Xbox One Console
-date: 2024-08-09T00:56:11.003Z
-updated: 2024-08-10T00:56:11.003Z
+date: 2025-01-08T03:06:51.445Z
+updated: 2025-01-10T14:29:49.336Z
 categories:
   - BestProducts
 description: This Article Describes Unlock the Secrets of Friendly Gaming Shares on Your Xbox One Console
@@ -10,9 +10,11 @@ thumbnail: https://www.lifewire.com/thmb/FRo8aL-Q2TWbhj0JRYCjN6iPmW0=/400x300/fi
 ---
 
 ## Unlock New Gaming Adventures for Your NES Classic Console
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### What to Know
 
 * With the NES Classic connected to a Windows PC, download**Hakchi 2** . Extract the file, if needed, and open hakchi.exe.
@@ -30,41 +32,44 @@ thumbnail: https://www.lifewire.com/thmb/FRo8aL-Q2TWbhj0JRYCjN6iPmW0=/400x300/fi
 1. With the console turned off, connect your NES Classic to a PC using a[USB cable](https://www.lifewire.com/universal-serial-bus-usb-2626039) , but leave the[HDMI cable](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) plugged into your TV to track your progress.  
  If your PC is having trouble detecting your NES Classic, try using a different USB cable other than the one included with the console.
 2. Download the most recent version of[Hakchi2](https://github.com/TeamShinkansen/hakchi2/releases) . If it comes in a[ZIP](https://www.lifewire.com/zip-file-2622675) file, extract the contents to your PC.  
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ![Latest version of Hakchi 2 download from Github](https://www.lifewire.com/thmb/ldwuHaj8b2scKx14RPSLHSJ9N0Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Screenshot140-5c577d1446e0fb000152f11e.png)
 3. Open**hakchi.exe** (the icon is an NES controller).  
  If you're prompted to download additional resources and[restart your device](https://www.lifewire.com/why-does-restarting-seem-to-fix-most-computer-problems-2624569) , go ahead and open hakchi.exe again after you restart.  
 ![Open hakchi.exe](https://www.lifewire.com/thmb/3sEWApEsJlQ3WfD3dwm44L9fV20=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/001-add-more-games-to-the-nes-classic-7f6bf93f026a42bd95f6d179aca086a1.jpg)
 4. Select**NES (USA/Europe)** .  
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Choose NES (USA/Europe)](https://www.lifewire.com/thmb/K0_MIzgjkgi5Do_SG9rO9OU-b-4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/002-add-more-games-to-the-nes-classic-2077915796d24b319622974016b4c322.jpg)
 5. Select**Add more games** to upload the ROMs you want to add to your NES Classic. Only files with the extension .NES will work, although you can also upload ZIP folders containing them.  
 !['Add more games' selection to upload ROMs to NES Classic](https://www.lifewire.com/thmb/7vHf5faB-1mVibSy9cF1KVJ8qfY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/003-add-more-games-to-the-nes-classic-089a7d2332bb4059b63d6de31fea424a.jpg)
 6. Under the Custom Games list, select the title you want to add cover art to. Select**Google** to retrieve images directly from Google.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Add cover art by clicking the titles under Custom Games](https://www.lifewire.com/thmb/neOlwOfUiIZx5S1tEn80GL82VMc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/004-add-more-games-to-the-nes-classic-c2bdeef7eff64d139156d138e2c6e7a7.jpg)
 7. On the Hakchi2 toolbar, select**Kernel** \>**Install/Repair,** then select**Yes** when asked if you want to flash the custom kernel.  
 ![Select Kernel > Install/Repair, then click Yes](https://www.lifewire.com/thmb/N_5Vp8fvKlu15K8g8IneRPpgamA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/005-add-more-games-to-the-nes-classic-cf58f3c816484e8e899c26bd4f7adf5e.jpg)
 8. Follow the instructions that appear. You might be required to install some drivers if they didn't automatically install when you connected the console.  
 ![Flash the custom kernel](https://www.lifewire.com/thmb/obxjQ5w6R-YGlPa1SqmQbuWoxcU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Screenshot153-5c5a42ee46e0fb000152fca2.png)
 9. When the process is complete, select**Synchronize selected games with NES/SNES Mini** and confirm you flashed the custom kernel.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Select Synchronize selected games with NES/SNES Mini](https://www.lifewire.com/thmb/OQNrcOP_nKxq5Z51RZCf26tzUJ4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/006-add-more-games-to-the-nes-classic-601953ec9f1947eca4af89041d99caba.jpg)
 10. After your ROMs finish uploading, turn off the console and disconnect it from your PC.
 11. Plug in the power source to your NES Classic and turn it on. Your new games will be inside a folder named "New Games" alongside the preloaded titles.
 12. When you want to add more games, connect the NES Classic to your PC, open**Hakchi** and select**Synchronize selected games with NES/SNES Mini** . There's no need to flash the custom kernel each time.  
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Adding new games.](https://www.lifewire.com/thmb/6dh3kGy-feD3hiGnzsqbsMpEwjk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/007-add-more-games-to-the-nes-classic-46e50620a2ee4df28fe95c05d5712c49.jpg)
 
  Making modifications to your NES Classic will void its warranty, and you could potentially damage the console. Add new games at your own risk.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Nintendo Entertainment System Classic Controller](https://www.lifewire.com/thmb/FtuZUihm95iCMHAm4i5_PRSocb0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Entertainment-System-NES-Controller-FR-5c5a494bc9e77c0001d00e2b.jpg)
 
  <https://commons.wikimedia.org/wiki/File:Nintendo-Entertainment-System-NES-Controller-FR.jpg>
@@ -72,8 +77,9 @@ thumbnail: https://www.lifewire.com/thmb/FRo8aL-Q2TWbhj0JRYCjN6iPmW0=/400x300/fi
  You can follow these same instructions to add games to an SNES Classic using the Hakchi2 software.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Get ROMS for the NES Classic
 
  Long before the[NES Classic](https://www.liveabout.com/nes-cheat-codes-and-walkthroughs-4707366) came out, gamers had already been playing their favorite Nintendo titles thanks to emulators and ROMs. Downloading ROMs of games you don't already own is technically not legal; nonetheless, finding ROMs for NES games online is often easier than tracking down physical copies of old games.
@@ -102,11 +108,25 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-screenflow-for-mac-full-review/"><u>[New] ScreenFlow for Mac Full Review</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-setup-downloading-and-installing-kyocera-printer-software-for-windows-users/"><u>Easy Setup: Downloading & Installing KYOCERA Printer Software for Windows Users</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/t-insights-for-youtube-end-credits-top-makers-advice-for-2024/"><u>Expert Insights for YouTube End Credits - Top Makers' Advice for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-nokia-c12-plus-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Nokia C12 Plus online without jailbreak</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-steps-for-hyperlapse-photography-magic/"><u>In 2024, Steps for Hyperlapse Photography Magic</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/movavi-ferramenta-online-gratuita-para-transformar-mp4-em-formato-3gp-com-facilidade/"><u>Móvavi: Ferramenta Online Gratuita Para Transformar MP4 Em Formato 3GP Com Facilidade!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reviewing-the-reliable-portable-energy-lifeline-the-halo-bolt-charger-and-jumper/"><u>Reviewing the Reliable Portable Energy Lifeline - The Halo Bolt Charger & Jumper</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/step-by-step-guide-to-macs-ssd-upgrade/"><u>Step-by-Step Guide to Mac's SSD Upgrade</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/test-drive-the-cutting-edge-ampace-andes-1500-portable-generator/"><u>Test Drive the Cutting-Edge Ampacē Andes 1500 Portable Generator</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-apex-compilation-of-professional-coding-tutorials-for-the-year-202/"><u>The Apex Compilation of Professional Coding Tutorials for the Year 202</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-brilliance-behind-the-ring-video-doorbell-pro-a-detailed-review-unveiled/"><u>The Brilliance Behind the Ring Video Doorbell Pro: A Detailed Review Unveiled</u></a></li>
+</ul></div>
+

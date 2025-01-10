@@ -1,7 +1,7 @@
 ---
 title: Get Free, Crisp TV Channels with AmazonBasics' Flat Antenna – The Savvy Shopper’s Guide
-date: 2024-12-29T18:12:27.529Z
-updated: 2025-01-03T19:37:00.832Z
+date: 2025-01-05T06:18:42.467Z
+updated: 2025-01-09T18:46:01.916Z
 categories:
   - BestProducts
 description: This Article Describes Get Free, Crisp TV Channels with AmazonBasics' Flat Antenna – The Savvy Shopper’s Guide
@@ -13,13 +13,13 @@ thumbnail: https://thmb.techidaily.com/f8ecdc6c33144a8756139b14ccc37972ba5fac512
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/rS-RQyeAxU8gdzYheTg1qi5PFEY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -42,7 +42,7 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## AmazonBasics Ultra-Thin Antenna
@@ -88,10 +88,6 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **Performance: Almost two dozen channels (in a rural area)**
@@ -100,7 +96,15 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Range: 35 miles**
 
@@ -109,10 +113,6 @@ Lifewire / Erika Rawes
  Even with the short-range, I was able to pick up 16 channels on my first attempt, including The CW, PBS, and more. In a different room in my test home, I was able to get 23 channels, but this is probably because there’s less tree cover outside of the house on that side of the property. Considering the location of my test home, 23 channels is pretty good.
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Super affordable**
 
@@ -123,7 +123,7 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
@@ -167,18 +167,22 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-unveiling-8-premium-free-srt-translation-services-online/"><u>[New] 2024 Approved Unveiling 8 Premium Free SRT Translation Services Online</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-guide-to-the-top-10-historical-education-channels/"><u>[Updated] Guide to the Top 10 Historical Education Channels</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-exemplary-cloud-services-for-biz-needs/"><u>2024 Approved Exemplary Cloud Services for Biz Needs</u></a></li>
-<li><a href="https://extra-information.techidaily.com/crafting-the-ideal-voice-memo-a-step-by-step-methodology/"><u>Crafting the Ideal Voice Memo A Step-by-Step Methodology</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Samsung Galaxy A14 5G? | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-unveiling-the-best-practices-for-linktree-on-tiktok-profiles/"><u>In 2024, Unveiling the Best Practices for Linktree on TikTok Profiles</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/performance-powerhouses-top-performing-internal-ssds-of-2023-unveiled/"><u>Performance Powerhouses: Top Performing Internal SSDs of 2023 Unveiled</u></a></li>
-<li><a href="https://win-hot.techidaily.com/secure-specific-folders-in-windows-10-top-two-techniques/"><u>Secure Specific Folders in Windows 10: Top Two Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-battle-for-better-business-connections-linkedin-vs-facebook/"><u>The Battle for Better Business Connections: LinkedIn Vs. Facebook</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-plainsman-statue-at-east-campus-mall/"><u>The Plainsman Statue at East Campus Mall</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-10-elite-1080p-gaming-displays/"><u>Top 10 Elite 1080P Gaming Displays</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/top-11-brain-games-engaging-trivia-channels/"><u>Top 11 Brain Games Engaging Trivia Channels</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-contemporary-vintage-inspired-gaming-systems/"><u>Top Contemporary Vintage-Inspired Gaming Systems</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-how-to-record-gameplay-using-fbx-game-recorder/"><u>[Updated] In 2024, How To Record Gameplay Using FBX Game Recorder</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-iphone-tips-free-techniques-to-incorporate-music-in-video-projects/"><u>2024 Approved IPhone Tips Free Techniques to Incorporate Music in Video Projects</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-streaming-showdown-which-superior-broadcaster-tool-are-you/"><u>2024 Approved Streaming Showdown Which Superior Broadcaster Tool Are You?</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-oppo-a59-5g-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Oppo A59 5G Location Settings | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/efficient-methods-to-rectify-server-stumbled-issues-on-windows/"><u>Efficient Methods to Rectify Server Stumbled Issues on Windows</u></a></li>
+<li><a href="https://os-tips.techidaily.com/how-to-resolve-an-apple-watch-displaying-the-apple-logo-instead-of-boot-up-screen/"><u>How to Resolve an Apple Watch Displaying the Apple Logo Instead of Boot-Up Screen</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Sony Xperia 1 V? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Oppo K11x? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-pixel-slate-assessment-navigating-through-chrome-os-chaos/"><u>In-Depth Pixel Slate Assessment: Navigating Through Chrome OS Chaos</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/inside-look-at-the-amazon-fire-hd-10-for-kids-exceptional-content-filtering-and-supervision-tools/"><u>Inside Look at the Amazon Fire HD 10 for Kids: Exceptional Content Filtering and Supervision Tools</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/inside-the-world-of-garmin-venu-an-in-depth-look-at-your-247-partner-for-fitness-and-health-insights/"><u>Inside the World of Garmin Venu: An In-Depth Look at Your 24/7 Partner for Fitness and Health Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-17-inch-laptop-reviews-and-picks-for-the-year-2024/"><u>Leading 17-Inch Laptop Reviews and Picks for the Year 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lenovos-2020-tablet-triumph-the-tab-m10-fhd-plus-delivers-high-end-displays-on-a-budget/"><u>Lenovo's 2020 Tablet Triumph: The Tab M10 FHD Plus Delivers High-End Displays on a Budget</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maisto-remote-control-rock-crawler-evaluation-an-all-age-suitable-rc-vehicle/"><u>Maisto Remote Control Rock Crawler Evaluation: An All-Age Suitable RC Vehicle</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/master-the-art-of-creating-and-programming-a-comprehensive-look-at-the-innovative-makeblock-mbot-diy-robotic-kit/"><u>Master the Art of Creating & Programming: A Comprehensive Look at the Innovative Makeblock mBot DIY Robotic Kit</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/melodic-mobile-alerts-download-classical-ringtones-here-for-2024/"><u>Melodic Mobile Alerts Download Classical Ringtones Here for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mohu-blade-tv-latch-review-distinct-design-features-for-optimal-inside-broadcast-performance/"><u>Mohu Blade TV Latch Review: Distinct Design Features for Optimal Inside Broadcast Performance</u></a></li>
 </ul></div>
 

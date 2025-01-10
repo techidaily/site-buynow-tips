@@ -1,7 +1,7 @@
 ---
 title: Kobo Clara Colour Review
-date: 2024-12-15T17:35:05.594Z
-updated: 2024-12-16T16:52:04.024Z
+date: 2025-01-06T16:00:50.565Z
+updated: 2025-01-10T16:00:09.572Z
 categories:
   - BestProducts
 description: This Article Describes Kobo Clara Colour Review
@@ -13,13 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/p87KTX9w2nvzlOOitLgg_0NznYY=/400x300/fi
 
 4.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/OIHJ0F8VMR0yFUpC8veJBJ39E6A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -42,10 +42,6 @@ thumbnail: https://www.lifewire.com/thmb/p87KTX9w2nvzlOOitLgg_0NznYY=/400x300/fi
 [View On EBay](https://www.ebay.com/p/563813511)
 
 4.8
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Beatit 800A BT-D11 Car Jump Starter
 
@@ -75,7 +71,7 @@ thumbnail: https://www.lifewire.com/thmb/p87KTX9w2nvzlOOitLgg_0NznYY=/400x300/fi
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: A lot of power packed into a small frame**
@@ -89,7 +85,7 @@ thumbnail: https://www.lifewire.com/thmb/p87KTX9w2nvzlOOitLgg_0NznYY=/400x300/fi
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: It can’t realistically be much simpler**
@@ -100,10 +96,6 @@ thumbnail: https://www.lifewire.com/thmb/p87KTX9w2nvzlOOitLgg_0NznYY=/400x300/fi
 
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: Plenty of power for all your needs**
 
  Time and again, the Beatit Jump Starter D11 was able to get a car with a very[depleted battery](https://www.lifewire.com/car-batteries-are-made-to-die-534765) started. Even after repeated testing the unit’s own battery only dropped down to 85% capacity.
@@ -111,6 +103,10 @@ thumbnail: https://www.lifewire.com/thmb/p87KTX9w2nvzlOOitLgg_0NznYY=/400x300/fi
  Charging a phone with a jump starter seems like overkill, and the unit’s ability to charge at 1,200mAh confirms that impression. At such an elevated level of charging your phone or other device will likely get its battery topped off in very little time. With 18,000mAh of capacity you can fully charge a modern phone at least twice, and still leave the unit with the juice it needs in order to start a car.
 
  Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
@@ -125,6 +121,10 @@ thumbnail: https://www.lifewire.com/thmb/p87KTX9w2nvzlOOitLgg_0NznYY=/400x300/fi
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
 
  At that price point, it packs a ton of value into its diminutive size.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
@@ -173,20 +173,24 @@ thumbnail: https://www.lifewire.com/thmb/p87KTX9w2nvzlOOitLgg_0NznYY=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-elevate-your-snapstreak-game-with-savvy-tactics/"><u>[New] Elevate Your Snapstreak Game with Savvy Tactics</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/wmvgif-movavi/"><u>在線WMV至GIF自由轉換 - 以 Movavi提高效率</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/deliberating-over-macos-sonoma-installation/"><u>Deliberating Over MacOS Sonoma Installation</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/guide-on-stellars-photo-repair-software-windows-a-comprehensive-overview/"><u>Guide on Stellar's Photo Repair Software (Windows) - A Comprehensive Overview</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Vivo Y02T | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/introducing-the-ultimate-hd-digital-frame-nixplays-x15d-reviewed/"><u>Introducing the Ultimate HD Digital Frame - Nixplay’s X15D Reviewed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/marvels-spider-man-miles-morales-evaluation-a-compact-adventure-with-major-effect/"><u>Marvel's Spider-Man: Miles Morales Evaluation - A Compact Adventure with Major Effect</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mini3-by-ddpai-a-unique-take-on-the-typical-dashcam-experience/"><u>Mini3 by Ddpai: A Unique Take on the Typical Dashcam Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/nikon-w100-affordable-tough-and-splash-resistant/"><u>Nikon W100: Affordable, Tough & Splash-Resistant</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/offworld-trading-company-tactics-for-building-your-intergalactic-empire/"><u>Offworld Trading Company Tactics for Building Your Intergalactic Empire</u></a></li>
-<li><a href="https://solve-help.techidaily.com/reviving-your-pc-top-6-methods-to-successfully-repair-a-windows-10-system-restore-failure/"><u>Reviving Your PC: Top 6 Methods to Successfully Repair a Windows 10 System Restore Failure</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-out-with-yt-shorts-essential-guidelines-to-follow/"><u>Stand Out with YT Shorts Essential Guidelines to Follow</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-fixes-to-get-your-tiktok-up-and-running-again/"><u>Step-by-Step Fixes to Get Your TikTok Up and Running Again</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-premier-selection-of-mesh-wi-fi-systems-for-seamless-internet-experience/"><u>The Premier Selection of Mesh Wi-Fi Systems for Seamless Internet Experience</u></a></li>
-<li><a href="https://techtrends.techidaily.com/troubleshooting-tips-solve-common-problems-with-netflix-on-your-roku-device/"><u>Troubleshooting Tips: Solve Common Problems with Netflix on Your Roku Device</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-building-a-stronger-team-integrating-roles-in-discord/"><u>[Updated] 2024 Approved Building a Stronger Team Integrating Roles in Discord</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-freely-accessible-platforms-for-professional-photography-edits/"><u>[Updated] 2024 Approved Freely Accessible Platforms for Professional Photography Edits</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unrestricted-story-preservation-free/"><u>[Updated] 2024 Approved Unrestricted Story Preservation, FREE</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/beating-lag-essential-strategies-for-smoother-gameplay-in-chivalry-2-updated-23/"><u>Beating Lag: Essential Strategies for Smoother Gameplay in Chivalry 2 (Updated 2^3)</u></a></li>
+<li><a href="https://os-tips.techidaily.com/exploring-latest-innovations-what-to-expect-from-the-iphone-15-and-pro-models/"><u>Exploring Latest Innovations: What to Expect From the iPhone 15 & Pro Models</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/inside-toms-computer-gear-comprehensive-reviews-and-insights/"><u>Inside Tom's Computer Gear: Comprehensive Reviews and Insights</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/leading-open-source-solutions-for-hassle-free-nas-data-protection/"><u>Leading Open Source Solutions for Hassle-Free NAS Data Protection</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/overcoming-windows-boot-issues-step-by-step-guide-by-yl-software-professionals/"><u>Overcoming Windows Boot Issues: Step-by-Step Guide by YL Software Professionals</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/professionelle-bildaufbereitung-konvertierung-und-export-auf-eine-formatierte-microsd-karte-gratis/"><u>Professionelle Bildaufbereitung: Konvertierung Und Export Auf Eine Formatierte MicroSD-Karte Gratis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-latest-on-microsoft-surface-pro-7-reliable-improvement-subtle-differences-highlighted/"><u>The Latest on Microsoft Surface Pro 7: Reliable Improvement, Subtle Differences Highlighted</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-amazon-fire-hd-10-kids-edition-reviews-features-and-parental-protection/"><u>The Ultimate Guide to Amazon Fire HD 10 Kids Edition: Reviews, Features, and Parental Protection</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-choosing-a-smart-weather-station-spotlight-on-netatmo/"><u>The Ultimate Guide to Choosing a Smart Weather Station: Spotlight on Netatmo</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-extollos-lansocket-1500-unparalleled-data-transfer-speeds-superior-response-time-and-efficient-power-management/"><u>The Ultimate Review of Extollo's LANSocket 1500 - Unparalleled Data Transfer Speeds, Superior Response Time, and Efficient Power Management</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-hub-comprehensive-reviews-and-gear-insights/"><u>Tom's Tech Hub: Comprehensive Reviews & Gear Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/transform-your-images-on-os-x-and-linux-using-this-gratis-darkroom-suite-darktable/"><u>Transform Your Images on OS X and Linux Using This Gratis Darkroom Suite - Darktable</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/value-packed-apple-watch-series-se-critique/"><u>Value Packed Apple Watch Series SE Critique</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/value-vs-trustworthiness-the-thermopro-tp-67-temperature-gauge-reviewed/"><u>Value Vs. Trustworthiness: The ThermoPro TP 67 Temperature Gauge Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/venturing-through-the-narrative-universe-an-in-depth-review-of-torment-tides-of-numenera/"><u>Venturing Through the Narrative Universe: An In-Depth Review of 'Torment: Tides of Numenera'</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/viair-88p-compact-compressor-assessment-unmatched-power-but-with-notable-limitations/"><u>Viair 88P Compact Compressor Assessment: Unmatched Power but With Notable Limitations</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unlocking Savings with Speed - An Expert Review on the Samsung Galaxy A51 5G Smartphone
-date: 2024-12-11T16:40:05.197Z
-updated: 2024-12-16T17:48:23.980Z
+date: 2025-01-03T16:00:10.118Z
+updated: 2025-01-10T16:00:47.406Z
 categories:
   - BestProducts
 description: This Article Describes Unlocking Savings with Speed - An Expert Review on the Samsung Galaxy A51 5G Smartphone
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/Ky_z-S6FX_qHd7dn5bRT5hGTtx8=/400x300/fi
 ## Unleashing Power and Savings with the HP OMEN Obelisk Desktop Reviewed
 
 4
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## HP Omen Obelisk
 
@@ -37,9 +41,17 @@ Lifewire / Jonno Hill
 
 4
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## HP Omen Obelisk
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/ltgwwtDrSkLcZMSVU6VX1rKcbaA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_HP-OMEN-Obelisk-Gaming-Desktop-Computer-1-56ba747009334162a328f46d8b4743af.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -69,11 +81,11 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/OXMiCXvzh8P7esVvbjPoSorzoxM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-2-7b14850c2ca84af39d5fd116ab483d5d.jpg)
 
- Lifewire / Jonno Hill
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Jonno Hill
 
 ## **Design** : **Nice looks and small footprint, with many reservations**
 
@@ -97,11 +109,11 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/gfeGQoUwG35q5t-JwO07Ax4jm5I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-3-f4e655ec9e684a47855e9ee7373ba4b6.jpg)
 
- Lifewire / Jonno Hill
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Jonno Hill
 
 ## **Performance** :**Great components for gaming and productivity**
 
@@ -125,10 +137,6 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Pz9tV-mhJl_Cjm8HSqEQ_VZPbVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-5-cdbd9d78a8c14b8e8bce0113d12e9fcc.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
 
 ## **Network** :**Great speeds, but software that doesn’t do much**
@@ -136,10 +144,6 @@ Lifewire / Jonno Hill
  The HP Omen Obelisk has gigabit LAN and a Wi-Fi 5 (2x2) networking, the latter supporting a maximum speed of 866 Mbps. Everything functioned smoothly from a networking standpoint during my tests.
 
  I made a point to try out the Network Booster software found in the OMEN Command Center and didn’t see anything tremendously useful, unfortunately. I tried setting the priority of Steam to “Low” and downloading a game, but the game still downloaded at my maximum internet speed. I took it one step further and toggled the “Block” option for Steam, and tried to resume the download, but Steam kept on downloading at the maximum speed. The software was successful in blocking Chrome when that option was switched on, however.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Software: Just enough options**
 
@@ -151,10 +155,6 @@ Lifewire / Jonno Hill
 
  The option to overclock your system has you first run a nondescript benchmark, which produces a score with no reference point (to establish a baseline). While it’s nice to have the option, this really,_sincerely_ isn’t a system you want to be overclocking. The i9-9900K CPU already runs alarmingly hot, even with its pre-installed water cooling solution. There also isn’t enough room for anything beyond a 120mm AIO watercooler, and not nearly enough clearance for a popular air heatsink like the Noctua NH-D15.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Highly competitive**
 
  The HP OMEN Obelisk with the same specs as this one can be found for around $2,000, at least when it’s in stock. Despite a lot of flaws that I can point to a nit-pick about, the price is one of the main reasons I still consider the OMEN to be a solid deal. I went through the trouble of parting out a similar build on PCPartPicker, going as far as to cut corners where I usually wouldn’t, and still arrived at just under $1800 before tax.
@@ -164,7 +164,7 @@ Lifewire / Jonno Hill
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/J3cZUfrEy-ALtFpRbDRhw7FZI8M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-4-f78d504d7bd348eca19b7e65b4d10289.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
@@ -215,18 +215,18 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-audience-engagement-the-most-excellent-webcams-for-podcasts/"><u>[New] Audience Engagement The Most Excellent Webcams for Podcasts</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-sony-s6700-updated-summary-unpacked/"><u>[New] Sony S6700 Updated Summary Unpacked</u></a></li>
-<li><a href="https://win-deluxe.techidaily.com/1728498311858-windows-11/"><u>「在Windows 11中，如何无难地将您的数据从硬盘传输至固态驱动器（分享两种方法）」</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/diagnosing-and-repairing-broken-usb-connectivity-in-windows-11/"><u>Diagnosing and Repairing Broken USB Connectivity in Windows 11</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/discover-the-ultimate-list-of-walmarts-finest-tech-gift-options-curated-by-zdnet/"><u>Discover the Ultimate List of Walmart's Finest Tech Gift Options, Curated by ZDNet</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/essential-factors-to-evaluate-prior-to-investing-in-a-brand-new-printer/"><u>Essential Factors to Evaluate Prior to Investing in a Brand-New Printer</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/explore-the-features-of-blinks-durable-4-wireless-waterproof-security-floodlight/"><u>Explore the Features of Blink's Durable 4-Wireless Waterproof Security Floodlight</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-nature-in-minecraft-comprehensive-review-of-the-campfire-tales-outfit-collection/"><u>Exploring Nature in Minecraft: Comprehensive Review of the Campfire Tales Outfit Collection</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/harnessing-sleek-tech-gear-to-effortlessly-induce-deep-rejuvenating-slumber/"><u>Harnessing Sleek Tech Gear to Effortlessly Induce Deep, Rejuvenating Slumber</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-vivo-s17-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Vivo S17 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/is-your-nubia-red-magic-8s-proplus-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Nubia Red Magic 8S Pro+ working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/premium-showdown-apple-ipad-air-nvs-samsungs-galaxy-tab-s7plus/"><u>Premium Showdown: Apple iPad Air Nvs Samsung's Galaxy Tab S7+</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/stream-smarter-a-comprehensive-review-of-chromecast-with-google-tv-vs-firestick/"><u>Stream Smarter: A Comprehensive Review of Chromecast with Google TV vs Firestick</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-deciding-on-a-personal-social-media-platform-tiktok-or-youtubes-shorts/"><u>[Updated] Deciding on a Personal Social Media Platform TikTok or YouTubes' Shorts?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-ideas-to-talk-about-in-daily-vlogging-for-2024/"><u>Fresh Ideas to Talk About in Daily Vlogging for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-vivo-y02t-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Vivo Y02T Location | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/macos-15-sequoia-unleashed-a-deep-dive-into-release-information-and-groundbreaking-features/"><u>MacOS 15 (Sequoia) Unleashed: A Deep Dive Into Release Information & Groundbreaking Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-mobile-connectivity-with-the-samsung-galaxy-s20-fe-5g-an-authoritative-review/"><u>Mastering Mobile Connectivity with the Samsung Galaxy S20 FE 5G - An Authoritative Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/moto-g-stylus-unveiled-excellent-execution-capabilities-enduring-power-reserve-and-a-functional-stylus-accessory/"><u>Moto G Stylus Unveiled - Excellent Execution Capabilities, Enduring Power Reserve and a Functional Stylus Accessory</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-audews-portable-air-compressor-unmatched-portability-and-dependability/"><u>Review of Audew's Portable Air Compressor: Unmatched Portability & Dependability</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tango-review-ultimate-guide-to-its-voice-and-video-chat-capabilities/"><u>Tango Review: Ultimate Guide to Its Voice & Video Chat Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-definitive-examination-samsung-galaxy-note20-ultra-5g-features-and-performance/"><u>The Definitive Examination: Samsung Galaxy Note20 Ultra 5G Features and Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-portable-bluetooth-stereo-yamaha-mcr-b020bl/"><u>The Portable Bluetooth Stereo: Yamaha MCR-B020BL</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unveiling-the-sleeker-playstation-5-slim-discover-its-upcoming-launch-info-value-proposition-and-hardware-capabilities/"><u>Unveiling the Sleeker PlayStation 5 Slim - Discover Its Upcoming Launch Info, Value Proposition, and Hardware Capabilities</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-free-avi-video-editing-solutions-a-top-5-roundup/"><u>Updated In 2024, Free AVI Video Editing Solutions A Top 5 Roundup</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-itel-p40-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Itel P40 | Dr.fone</u></a></li>
 </ul></div>
 

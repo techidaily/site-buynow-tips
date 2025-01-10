@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
-date: 2024-12-28T16:53:55.037Z
-updated: 2025-01-03T17:35:09.109Z
+date: 2025-01-03T12:33:04.208Z
+updated: 2025-01-09T20:00:48.079Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
@@ -13,13 +13,13 @@ thumbnail: https://thmb.techidaily.com/e0be33554f7e808cbb9defb5e44d8742371f9f0a4
 
 4
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## HP Omen Obelisk
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Szj7RCNucny4rfZ6uBlIf8pdeiE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_HP-OMEN-Obelisk-Gaming-Desktop-Computer-1-56ba747009334162a328f46d8b4743af.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -40,6 +40,10 @@ Lifewire / Jonno Hill
 [View On Amazon $950](https://www.amazon.com/dp/B07SW895CZ?tag=lifewire-onsite-prod-20&ascsubtag=5072832%7Cnbfa2130ffdd54ba8b950c4ad0f0be8b007%7CB07SW895CZ) [View On Microsoft](https://www.microsoft.com/en-us/p/hp-omen-obelisk-gaming-desktop/8rqn7sf9phfz?activetab=pivot%3aoverviewtab)
 
 4
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## HP Omen Obelisk
 
@@ -74,10 +78,6 @@ Lifewire / Jonno Hill
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/OXMiCXvzh8P7esVvbjPoSorzoxM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-2-7b14850c2ca84af39d5fd116ab483d5d.jpg)
 
  Lifewire / Jonno Hill
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Design** : **Nice looks and small footprint, with many reservations**
 
@@ -125,11 +125,11 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Pz9tV-mhJl_Cjm8HSqEQ_VZPbVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-5-cdbd9d78a8c14b8e8bce0113d12e9fcc.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Network** :**Great speeds, but software that doesn’t do much**
 
@@ -138,7 +138,7 @@ Lifewire / Jonno Hill
  I made a point to try out the Network Booster software found in the OMEN Command Center and didn’t see anything tremendously useful, unfortunately. I tried setting the priority of Steam to “Low” and downloading a game, but the game still downloaded at my maximum internet speed. I took it one step further and toggled the “Block” option for Steam, and tried to resume the download, but Steam kept on downloading at the maximum speed. The software was successful in blocking Chrome when that option was switched on, however.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: Just enough options**
@@ -152,7 +152,7 @@ Lifewire / Jonno Hill
  The option to overclock your system has you first run a nondescript benchmark, which produces a score with no reference point (to establish a baseline). While it’s nice to have the option, this really,_sincerely_ isn’t a system you want to be overclocking. The i9-9900K CPU already runs alarmingly hot, even with its pre-installed water cooling solution. There also isn’t enough room for anything beyond a 120mm AIO watercooler, and not nearly enough clearance for a popular air heatsink like the Noctua NH-D15.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Highly competitive**
@@ -166,7 +166,7 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **HP OMEN Obelisk vs Corsair One Pro**
@@ -215,20 +215,19 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-crafting-visual-narratives-the-leading-10-vector-editors/"><u>[New] 2024 Approved Crafting Visual Narratives The Leading 10 Vector Editors</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-cultivate-creativity-youtubes-top-inspirational-videos/"><u>[New] 2024 Approved Cultivate Creativity YouTube's Top Inspirational Videos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-elevate-your-youtube-traffic-best-hash-tactics-explained/"><u>[Updated] In 2024, Elevate Your YouTube Traffic Best Hash Tactics Explained</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-photo-your-desktop-windows-edition/"><u>[Updated] In 2024, Photo Your Desktop Windows Edition</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/discover-cutting-edge-tech-toms-comprehensive-reviews/"><u>Discover Cutting-Edge Tech: Tom’s Comprehensive Reviews</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/guide-connecting-ps5-live-streams-with-discord-easy-setup-tips/"><u>Guide: Connecting PS5 Live Streams with Discord - Easy Setup Tips</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-screenshots-on-iphone-13-mini-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Screenshots on iPhone 13 mini? | Stellar</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-unbrick-a-dead-realme-narzo-60-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Realme Narzo 60 5G | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-frame-finesse-selecting-superior-video-cams-for-slow-motion/"><u>In 2024, Frame Finesse Selecting Superior Video Cams for Slow Motion</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-precision-recording-of-skype-calls-via-obs-network/"><u>In 2024, Precision Recording of Skype Calls via OBS Network</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-unleash-stunning-visuals-and-enhanced-performance-with-the-premium-razer-firefly-v2-pro-rgb-gaming-mousepad/"><u>In-Depth Analysis: Unleash Stunning Visuals and Enhanced Performance with the Premium Razer Firefly V2 Pro RGB Gaming Mousepad</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lessons-from-the-steam-deck-a-guide-on-what-nintendo-can-do-to-improve/"><u>Lessons From the Steam Deck: A Guide on What Nintendo Can Do to Improve</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-in-game-photography-essential-techniques-to-improve-screen-shot-quality/"><u>Mastering In-Game Photography: Essential Techniques to Improve Screen Shot Quality</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/modernizing-old-gameplay-essential-hacks-and-advice-for-running-classic-titles-on-todays-hardware/"><u>Modernizing Old Gameplay: Essential Hacks & Advice for Running Classic Titles on Today's Hardware</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revisiting-my-thoughts-the-shift-in-my-endorsement-of-the-xbox-series-s/"><u>Revisiting My Thoughts: The Shift in My Endorsement of the Xbox Series S</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-craft-meme-magic-adobe-edition/"><u>[New] Craft Meme Magic, Adobe Edition</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ownload-premium-quality-designs-at-no-cost-for-youtube-creators-for-2024/"><u>[New] Download Premium-Quality Designs at No Cost – For YouTube Creators for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-perfect-wedding-timers-android-and-ios-top-10-picks/"><u>[New] Perfect Wedding Timers Android & iOS' Top 10 Picks</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-nokia-c110-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Infinix Note 30i? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/intensified-interaction-through-advanced-zoom-settings-for-2024/"><u>Intensified Interaction Through Advanced ZOOM Settings for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/master-gamers-unite-harness-the-power-of-a-philips-49-curved-oled-monitor/"><u>Master Gamers Unite - Harness the Power of a Philips 49 Curved OLED Monitor</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-galactic-domination-the-ultimate-stellaris-review/"><u>Mastering Galactic Domination - The Ultimate Stellaris Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastery-with-touch-the-ultimate-walkthrough-for-lenovos-9-inch-nook-tablet/"><u>Mastery with Touch: The Ultimate Walkthrough for Lenovo's 9-Inch Nook Tablet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/oculus-quest-2-elite-strap-with-battery-and-carrying-case-review-elite-and-essential/"><u>Oculus Quest 2 Elite Strap With Battery and Carrying Case Review: Elite and Essential</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ranking-the-xbox-one-elite-series-2-controller-a-legacy-in-electronic-sports-equipment/"><u>Ranking the Xbox One Elite Series 2 Controller: A Legacy in Electronic Sports Equipment</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/superior-sound-recognizers-in-education/"><u>Superior Sound Recognizers in Education</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-hidden-gem-of-macos-learn-advanced-editing-techniques-in-apples-integrated-image-modifier-preview/"><u>The Hidden Gem of MacOS: Learn Advanced Editing Techniques in Apple's Integrated Image Modifier - Preview</u></a></li>
 </ul></div>
 

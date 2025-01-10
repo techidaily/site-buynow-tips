@@ -1,7 +1,7 @@
 ---
 title: "Holy Stone HS170 Predator Mini RC Helicopter Drone Review: A Drone on a Budget"
-date: 2024-12-31T16:19:42.992Z
-updated: 2025-01-03T16:50:15.869Z
+date: 2025-01-03T19:20:56.148Z
+updated: 2025-01-10T05:32:12.675Z
 categories:
   - BestProducts
 description: "This Article Describes Holy Stone HS170 Predator Mini RC Helicopter Drone Review: A Drone on a Budget"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/05c8c6fd73c6fec22a2f538188954b893a706bcf3
 ## Outdated or Optimal for Your Online Needs? A Thorough Review of the Netgear C3 Grower-Style Router
 
 3
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Netgear C3000 Cable Modem Router
 
@@ -37,13 +41,13 @@ Lifewire / Bill Thomas
 
 3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Netgear C3000 Cable Modem Router
 
 ![Netgear C3000](https://www.lifewire.com/thmb/Ga2OrNlpcgoBAByp_iB08VrN5h0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-4_1-3b77a598c3cd4836b8b632578b3b437e.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Bill Thomas
 
@@ -79,16 +83,24 @@ Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/vcoYESWM5JJLo3l3KiPZd0A4uEU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_4-b3293ad0ed2b4bffb51f8e5f71f1914d.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/_9ERrc4mSXFjpZAVMAwwqbfpLwM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_3-2f5e1e38512d41019430d063e63b7f9b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/8U-jHJ6otxXt5vRq8FVLubPNOpI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_2-a6aa93cceeaf4d9ca6bb0d989200b2ea.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
@@ -96,10 +108,6 @@ Lifewire / Bill Thomas
 ![Netgear C3000](https://www.lifewire.com/thmb/7eGgp_5LZf8d-PMDe578GB4_hEI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_5-7c5c666203504b9ab932de0b70f14522.jpg)
 
  Lifewire / Bill Thomas
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Setup Process: Exceptionally easy
 
@@ -115,10 +123,6 @@ Lifewire / Bill Thomas
 
  Lifewire / Bill Thomas
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Network Performance: Keep your expectations low
 
  This device has an N300 network rating, which means your speeds should top out at 300Mbps on a single band. But your actual network speed won’t reach that. In testing the wireless performance of the Netgear C3000, our wireless speed topped out at 54 Mbps just three feet from the modem. We pay for a 250 Mbps plan, so we were getting about 20% of our rated speed.
@@ -128,7 +132,7 @@ Lifewire / Bill Thomas
  There is a silver lining: the wired performance is reliable. When connected this way, we consistently got our rated 250 Mbps speeds with little to no drops. We spent some time playing The Division 2 while hardwired into the Netgear C3000 and didn’t run into any lag. That’s surprising given that a 8x4 DOCSIS 3.0 modem is capable of just 343 Mbps download speeds. But Netgear delivered where it truly counts: modem performance.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Software: Pretty standard and easy to use
@@ -156,10 +160,6 @@ Lifewire / Bill Thomas
 **Only buy it if you can find it on sale.**
 
  The Netgear C3000 first hit the market more than five years ago, and it might have been worth the price of admission back then. These days, it’s hard to justify spending so much cash on a dated product. The modem gets the job done, but as soon as you rely on the built-in wireless router, you’re going to be in for a disappointment.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -200,22 +200,17 @@ Lifewire / Bill Thomas
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-the-ultimate-rankings-best-9-web-based-mic-capture-options-for-2024/"><u>[New] The Ultimate Rankings Best 9 Web-Based Mic Capture Options for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-disabling-igtv-on-instagram-for-2024/"><u>[Updated] Disabling IGTV on Instagram for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/deep-dive-the-high-tech-world-of-dji-phantom-3-professional/"><u>Deep Dive The High-Tech World of DJI Phantom 3 Professional</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/efficient-iphone-information-retrieval-solutions-reliable-recovery-at-your-fingertips/"><u>Efficient iPhone Information Retrieval Solutions: Reliable Recovery at Your Fingertips</u></a></li>
-<li><a href="https://techtrends.techidaily.com/essential-guide-to-free-backup-systems-top-tier-picks-ratings-and-reviews-for-data-safety/"><u>Essential Guide to Free Backup Systems: Top-Tier Picks, Ratings & Reviews for Data Safety</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-navigating-new-design-horizons-the-leading-10-vector-apps/"><u>In 2024, Navigating New Design Horizons The Leading 10 Vector Apps</u></a></li>
-<li><a href="https://blog-min.techidaily.com/mp3-to-wma-windows-10113/"><u>MP3 to WMA コンバータ: Windows 10/11でお薦めのフリーソフトトップ3</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/share-a-screen-double-the-fun-ultimate-selection-of-multiplayer-games-from-your-comfort-zone/"><u>Share a Screen, Double the Fun: Ultimate Selection of Multiplayer Games From Your Comfort Zone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/spotify-expands-with-a-surge-of-new-video-based-podcast-offerings/"><u>Spotify Expands with a Surge of New Video-Based Podcast Offerings</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/starting-your-pc-gaming-journey-without-a-bulky-desktop-setup/"><u>Starting Your PC Gaming Journey Without a Bulky Desktop Setup</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/strategies-to-remove-youtube-trailers-and-clips/"><u>Strategies to Remove YouTube Trailers and Clips</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/stream-your-way-through-the-nfl-the-ultimate-guide-to-using-five-essential-services/"><u>Stream Your Way Through the NFL: The Ultimate Guide to Using Five Essential Services</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/streamline-your-exercise-routine-by-linking-spotify-to-fitbit-for-seamless-music-control/"><u>Streamline Your Exercise Routine by Linking Spotify to Fitbit for Seamless Music Control</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-tutorial-access-and-enjoy-twitch-live-streams-using-roku-tv/"><u>The Ultimate Tutorial: Access and Enjoy Twitch Live Streams Using Roku TV</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-10-stunning-classic-titles-to-test-the-limits-of-your-modern-gaming-rig/"><u>Top 10 Stunning Classic Titles to Test the Limits of Your Modern Gaming Rig</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-5-advantages-of-retro-gaming-handheld-devices-over-mobile-games/"><u>Top 5 Advantages of Retro Gaming Handheld Devices Over Mobile Games</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-secrets-private-facebook-exploration-guide/"><u>Unveiling Secrets: Private Facebook Exploration Guide</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-top-online-free-video-editing-hacks/"><u>[New] 2024 Approved Top Online Free Video Editing Hacks</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-expert-advice-for-flawless-recordings-on-mi-11-phones/"><u>[New] Expert Advice for Flawless Recordings on Mi 11 Phones</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-for-the-tech-sleuth-dissecting-the-best-top-10-fb-videos-downloaders-for-2024/"><u>[New] For the Tech Sleuth Dissecting the Best Top 10 FB Videos Downloaders for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-intro-to-graphic-motion-artistry-and-usage/"><u>2024 Approved Intro to Graphic Motion Artistry and Usage</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/harness-free-methods-to-download-vimeo-videos-with-ease-for-2024/"><u>Harness Free Methods to Download Vimeo Videos with Ease for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-apps-and-online-tools-to-track-xiaomi-13t-pro-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Xiaomi 13T Pro Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-programming-lessons-the-ultimate-guide-to-learning/"><u>Top Rated Programming Lessons: The Ultimate Guide to Learning</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-reviews-on-blades-e-flite-mcx2-rtf-chopper-find-the-ultimate-pre-assembled-rc-helicopter/"><u>Top Reviews on Blade's E-Flite mCX2 RTF Chopper: Find the Ultimate Pre-Assembled RC Helicopter</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/toshiba-lf711u20-the-ultimate-55-inch-fire-tv-smart-led-tv-for-prime-shoppers/"><u>Toshiba LF711U20 - The Ultimate 55-Inch Fire TV Smart LED TV for Prime Shoppers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tp-links-budget-champion-inside-the-archer-a9-router-for-less-than-100/"><u>TP-Link's Budget Champion: Inside the Archer A9 Router for Less Than 100</u></a></li>
+<li><a href="https://games-able.techidaily.com/ultimate-list-of-premium-gaming-desks-curated-by-zdnet/"><u>Ultimate List of Premium Gaming Desks Curated by ZDNet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-google-pixel-n-4a-5g-top-review-for-an-economical-high-performance-smartphone/"><u>Unveiling the Google Pixel N 4a 5G: Top Review for an Economical, High-Performance Smartphone</u></a></li>
 </ul></div>
 

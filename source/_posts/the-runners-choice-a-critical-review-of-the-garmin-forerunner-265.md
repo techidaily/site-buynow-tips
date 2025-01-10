@@ -1,7 +1,7 @@
 ---
 title: The Runner's Choice? - A Critical Review of the Garmin Forerunner 265
-date: 2024-12-28T19:48:55.273Z
-updated: 2025-01-03T20:13:15.116Z
+date: 2025-01-06T18:07:39.550Z
+updated: 2025-01-10T02:13:23.347Z
 categories:
   - BestProducts
 description: This Article Describes The Runner's Choice? - A Critical Review of the Garmin Forerunner 265
@@ -16,10 +16,6 @@ thumbnail: https://www.lifewire.com/thmb/cqe4AOlmHazUKa_4vZ1ipCp_YuQ=/400x300/fi
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/AyUAqIhKcHESYKlEswC1pUtS1Po=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -44,6 +40,10 @@ Lifewire / Jonno Hill
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -75,12 +75,16 @@ Lifewire / Jonno Hill
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup: Dead simple**
 
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Acceptable but not incredible**
 
@@ -89,7 +93,7 @@ Lifewire / Jonno Hill
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Range: Fairly limited**
@@ -103,7 +107,7 @@ Lifewire / Jonno Hill
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
@@ -114,10 +118,6 @@ Lifewire / Jonno Hill
 
 **No fuss, good value.**
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -146,22 +146,22 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-streamline-your-screencast-the-best-obs-tools-insider-tips/"><u>[New] 2024 Approved Streamline Your Screencast The Best OBS Tools Insider Tips</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-elevate-live-streaming-on-mac-a-guide-to-1-5-tools-for-2024/"><u>[Updated] Elevate Live Streaming on Mac A Guide to #1-5 Tools for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-laptop-dvd-playback-hacks-top-free-tools/"><u>2024 Approved Laptop DVD Playback Hacks Top Free Tools</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/windows11/"><u>安全なアップグレードのために、Windows11へシステムバックアップを作成する手順</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/codename-47s-final-mission-evaluating-hitman-n3/"><u>Codename 47'S Final Mission - Evaluating Hitman N3</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-the-most-advanced-game-console-releases-of-2024/"><u>Discover the Most Advanced Game Console Releases of 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/error-0x8024402c-on-windows-updates-a-comprehensive-fix-tutorial/"><u>Error 0X8024402c on Windows Updates - A Comprehensive Fix Tutorial</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/explore-the-undiscovered-samsung-galaxy-shortcut-to-superior-bluetooth-sound-quality/"><u>Explore the Undiscovered Samsung Galaxy Shortcut to Superior Bluetooth Sound Quality</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-visual-charm-and-roleplaying-surprises-in-mlb-the-show-2019/"><u>Exploring the Visual Charm and Roleplaying Surprises in MLB The Show 2019</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-oppo-find-x7-ultra-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Oppo Find X7 Ultra Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/hp-stream-11-review/"><u>HP Stream 11 Review</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-crafting-pure-designs-erasing-backgrounds-with-canva-expertise/"><u>In 2024, Crafting Pure Designs Erasing Backgrounds with Canva Expertise</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/premier-game-applications-your-guide-to-the-best-google-play-pass-titles/"><u>Premier Game Applications: Your Guide to the Best Google Play Pass Titles</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/simplifying-your-home-network-discover-how-tp-link-deco-p9-revolutionizes-mesh-wi-fi/"><u>Simplifying Your Home Network? Discover How TP-Link Deco P9 Revolutionizes Mesh Wi-Fi</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-2019-apple-ipad-air-an-authoritative-review-for-multimedia-enthusiasts/"><u>The 2019 Apple iPad Air: An Authoritative Review for Multimedia Enthusiasts</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-fusion-of-style-and-smart-features-in-the-michael-kors-access-gen-e-mkgo-in-depth-review/"><u>The Fusion of Style and Smart Features in the Michael Kors Access Gen E Mkgo: In-Depth Review</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-ultimate-trick-for-finding-out-where-someone-is-with-their-iphone/"><u>The Ultimate Trick for Finding Out Where Someone Is with Their iPhone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-explore-the-ultimate-trivia-realm-for-24/"><u>[New] Explore the Ultimate Trivia Realm for '24</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-exploring-the-best-free-video-editing-tools-of-this-year-for-2024/"><u>[New] Exploring the Best Free Video Editing Tools of This Year for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-samsungs-vision-innovations-in-image-editor-software/"><u>[Updated] In 2024, Samsung’s Vision Innovations in Image Editor Software</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-essential-guide-to-early-success-on-youtube-steer-clear-of-these-top-8-pitfalls/"><u>2024 Approved The Essential Guide to Early Success on YouTube Steer Clear of These Top 8 Pitfalls</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/alienware-aurora-r7-review-power-for-a-price/"><u>Alienware Aurora R7 Review: Power for a Price</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/boost-your-digital-performance-advanced-tips-for-dj-pc-setup-and-video-editing-integration/"><u>Boost Your Digital Performance: Advanced Tips for DJ PC Setup & Video Editing Integration</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-asus-x441ba-evaluation-balancing-large-display-and-compromise/"><u>Comprehensive Asus X441BA Evaluation: Balancing Large Display and Compromise</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-fitbit-versa-2-the-ultimate-gadget-for-health-enthusiasts-with-advanced-smartwatch-capabilities/"><u>Comprehensive Review of the Fitbit Versa 2: The Ultimate Gadget for Health Enthusiasts with Advanced Smartwatch Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-on-moto-g-powers-superior-durability-and-excellent-energy-consumption/"><u>Comprehensive Review on Moto G Power's Superior Durability and Excellent Energy Consumption</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/conquer-any-landscape-with-the-top-race-rc-rock-crawler-a-comprehensive-evaluation/"><u>Conquer Any Landscape with the Top Race RC Rock Crawler – A Comprehensive Evaluation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/debating-over-whether-to-adopt-the-changes-in-ios-17/"><u>Debating Over Whether to Adopt the Changes in iOS 17</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-how-to-edit-images-on-a-mac-with-preview-an-easy-to-follow-manual/"><u>Discover How to Edit Images on a Mac With Preview - An Easy-to-Follow Manual</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-critical-considerations-for-purchasing-a-new-video-game-console-today/"><u>Discover the Critical Considerations for Purchasing a New Video Game Console Today</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/expert-review-how-the-2019-apple-ipad-air-is-revolutionizing-multimedia-consumption/"><u>Expert Review: How the 2019 Apple iPad Air Is Revolutionizing Multimedia Consumption</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-samsung-galaxy-m14-4g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Samsung Galaxy M14 4G to New Phone | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-unearthing-the-untouched-public-domains-hidden-gems/"><u>In 2024, Unearthing the Untouched Public Domain's Hidden Gems</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-guide-to-samsung-unpacked-2025-what-you-need-to-know-before-the-big-reveal/"><u>The Ultimate Guide to Samsung Unpacked 2025: What You Need to Know Before the Big Reveal</u></a></li>
 </ul></div>
 

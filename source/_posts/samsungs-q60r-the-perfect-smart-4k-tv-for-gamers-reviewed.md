@@ -1,7 +1,7 @@
 ---
 title: "Samsung's Q60R: The Perfect Smart 4K TV for Gamers, Reviewed"
-date: 2024-12-12T17:07:07.292Z
-updated: 2024-12-16T16:44:24.825Z
+date: 2025-01-04T16:01:40.848Z
+updated: 2025-01-10T16:00:24.566Z
 categories:
   - BestProducts
 description: "This Article Describes Samsung's Q60R: The Perfect Smart 4K TV for Gamers, Reviewed"
@@ -13,12 +13,16 @@ thumbnail: https://thmb.techidaily.com/c563864243d3f7e3fd56bac1818e569ba605d41e0
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Insta360 One X2
 
 ![Insta360 One X2](https://www.lifewire.com/thmb/9u9WmKWD9-s05N5xJb7xlPowUbc=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Insta360_One_X2_HeroSquare-80809b6088f0400baa121b1e7d14e4b1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
@@ -49,7 +53,7 @@ Lifewire / Andy Zahn
 ![Insta360 One X2](https://www.lifewire.com/thmb/SA87_MJD5mJRnYY0t31c9ELFmlc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Insta360_One_X2_HeroSquare-80809b6088f0400baa121b1e7d14e4b1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
@@ -90,10 +94,6 @@ Lifewire / Andy Zahn
 
  Controls consist of a shutter button, power button, and circular touchscreen. An[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) light indicates the camera's status, and there is a standard tripod mount on the underside of the camera.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Setup Process: Mostly straightforward
 
  The One X2 came partially charged and ready to go once I inserted a[microSD card](https://www.lifewire.com/best-sd-cards-to-buy-4072362) , though first I had to install the Insta360 app on my phone and activate the camera. This turned out to be a bit of a pain, with the Bluetooth connection used to activate the One X2 and set up the Wi-Fi connection repeatedly timing out and failing. Eventually, I got it up and running, and aside from the one hiccup, the process was fairly smooth, if more complex than I’d typically expect from a camera.
@@ -119,7 +119,7 @@ Lifewire / Andy Zahn
  Though it may be the bare minimum for decent 360 footage, the 5.7L video footage the One X2 captures is still highly demanding in how much storage space it requires. A single short video clip easily takes up hundreds of megabytes of space, so you’ll want a big microSD card and plenty of hard drive space on your PC and/or[smartphone](https://www.lifewire.com/best-smartphones-4043781) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Software: Brilliant but buggy
@@ -144,6 +144,10 @@ Lifewire / Andy Zahn
 
 Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Price: Good value
 
  With an MSRP of $430, the One X2 is only a little more expensive than a high-end action camera, but it’s not bad for a 360 camera. It’s a good value if being able to shoot 360-degree video is a necessity for you.
@@ -157,10 +161,6 @@ Lifewire / Andy Zahn
  **Despite its flaws, the Insta360 One X2 offers easy 360-degree recording in a waterproof package.**
 
  I had something of a rough start with the Insta360 One X2, but after dealing with setup issues and a steep learning curve, its small size, lightweight, and ease of use made up for its flaws It’s ideal for capturing videos in circumstances where you can’t be bothered to film with a traditional camera.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -207,19 +207,21 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-vidvibes-merge-android-and-ios-insta-photos/"><u>[New] 2024 Approved VidVibes Merge Android & iOS Insta Photos</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-effortless-and-expert-use-of-obs-studio-with-android-devices/"><u>[New] In 2024, Effortless and Expert Use of OBS Studio with Android Devices</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-expert-review-of-vivacuts-latest-edits-and-enhancements/"><u>[New] In 2024, Expert Review of VivaCut's Latest Edits and Enhancements</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-exploration-of-distinct-video-camera-kinds/"><u>2024 Approved Exploration of Distinct Video Camera Kinds</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/in-depth-analysis-of-the-new-features-in-samsung-galaxy-tab-s6-explore-s-pen-and-dex-mode/"><u>In-Depth Analysis of the New Features in Samsung Galaxy Tab S6 - Explore S Pen & Dex Mode</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Google Pixel 8 Pro? | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/revolutionize-your-email-experience-with-a-single-trick-to-eliminate-clutter-no-complex-setups-needed/"><u>Revolutionize Your Email Experience with a Single Trick to Eliminate Clutter - No Complex Setups Needed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/subscribe-to-disney-bundle-with-verizon-receive-free/"><u>Subscribe to Disney Bundle with Verizon – Receive Free!</u></a></li>
-<li><a href="https://some-tips.techidaily.com/the-most-effective-calendar-coordinators-enhancing-team-output-with-12-picks/"><u>The Most Effective Calendar Coordinators: Enhancing Team Output with 12 Picks</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-truth-behind-steam-deck-security-certification-should-you-doubt-it/"><u>The Truth Behind Steam Deck Security Certification – Should You Doubt It?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-how-game-controllers-elevate-your-pc-gaming-experience/"><u>The Ultimate Guide: How Game Controllers Elevate Your PC Gaming Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-reason-behind-my-decision-no-more-game-subscriptions/"><u>The Ultimate Reason Behind My Decision: No More Game Subscriptions!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/troubleshooting-ea-app-issues-quick-solutions-to-restore-functionality/"><u>Troubleshooting EA App Issues - Quick Solutions to Restore Functionality</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-the-ultimate-guide-to-creating-personalized-dvds-with-movie-making-software-for-2024/"><u>Updated The Ultimate Guide to Creating Personalized DVDs with Movie Making Software for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-achieve-sharpness-camera-tips-without-a-tripod/"><u>[New] Achieve Sharpness Camera Tips Without a Tripod</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-reviewing-and-analyzing-previous-tweets-for-2024/"><u>[New] Reviewing and Analyzing Previous Tweets for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-boost-engagement-advanced-youtube-tag-strategies-revealed/"><u>2024 Approved Boost Engagement Advanced YouTube Tag Strategies Revealed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-home-flight-enjoyed-with-the-syma-107g-rc-helicopter-our-expert-review-inside/"><u>Affordable Home Flight Enjoyed with the Syma 107G RC Helicopter - Our Expert Review Inside!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-radar-detectors-for-budget-conscious-motorists-check-out-our-s55-analysis-from-scratch-to-screen/"><u>Affordable Radar Detectors for Budget-Conscious Motorists - Check Out Our 'S55' Analysis From Scratch to Screen.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/amazon-kindle-2019-review-a-basic-kindle-for-an-affordable-price/"><u>Amazon Kindle (2019) Review: A Basic Kindle for an Affordable Price</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/assessing-smartphone-upgrade-cycles/"><u>Assessing Smartphone Upgrade Cycles</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/automated-pet-care-enjoy-stress-free-feeding-with-the-arf-automatic-pet-feeder/"><u>Automated Pet Care: Enjoy Stress-Free Feeding with the Arf Automatic Pet Feeder</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/bloodborne-critique-exploring-the-shadowy-depths-of-a-gritty-fantasy/"><u>Bloodborne Critique: Exploring the Shadowy Depths of a Gritty Fantasy</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-apples-latest-phones-iphone-15-plus-versus-pro-max/"><u>Comparing Apple's Latest Phones: IPhone 15 Plus Versus Pro Max</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lava-yuva-3-lock-screen-password-by-drfone-android/"><u>How To Change Lava Yuva 3 Lock Screen Password?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-realme-11-5g-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Realme 11 5G Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-google-pixel-8-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Google Pixel 8 Location | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/navigating-common-outlook-issues-in-windows/"><u>Navigating Common Outlook Issues in Windows</u></a></li>
+<li><a href="https://win-dash.techidaily.com/navigating-through-troubled-waters-addressing-and-solving-i2c-hid-driver-malfunctions/"><u>Navigating Through Troubled Waters: Addressing and Solving I2C-HID Driver Malfunctions</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-ranking-mac-software-insights-and-picks/"><u>Top-Ranking Mac Software - Insights & Picks</u></a></li>
 </ul></div>
 
