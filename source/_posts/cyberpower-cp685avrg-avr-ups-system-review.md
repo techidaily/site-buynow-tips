@@ -1,7 +1,7 @@
 ---
 title: Cyberpower CP685AVRG AVR UPS System Review
-date: 2025-01-08T17:50:12.760Z
-updated: 2025-01-10T14:14:11.494Z
+date: 2025-01-13T22:20:37.878Z
+updated: 2025-01-15T21:34:16.039Z
 categories:
   - BestProducts
 description: This Article Describes Cyberpower CP685AVRG AVR UPS System Review
@@ -13,13 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/wtXsun69DD8udLlpyE2hV3wzITA=/400x300/fi
 
 4.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Anker PowerCore+ 26800 Battery Pack
 
 ![Anker](https://www.lifewire.com/thmb/lNQbd16pbRC0R9DGxN2t8vYzL7o=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_HEROWebSQUARE-5c90fd70c9e77c0001eb1cc6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -45,10 +45,6 @@ Lifewire / Gannon Burgett
 
 ![Anker](https://www.lifewire.com/thmb/B8fIpC1_9JQjWCu_QhJoNePOP2Y=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_HEROWebSQUARE-5c90fd70c9e77c0001eb1cc6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Gannon Burgett
 
 [View On Amazon $100](https://www.amazon.com/dp/B07XRJZXKY?tag=lifewire-onsite-prod-20&ascsubtag=4589459%7Cne013ed3beb0f470caee172c55826658d22%7CB07XRJZXKY)
@@ -71,15 +67,15 @@ Lifewire / Gannon Burgett
 
  Anker has made a name for itself as one of the most reliable gadgets and accessories manufacturers in the game. Despite their reasonable prices, the quality continues to impress and its Anker PowerCore+ 26800 PD with 30W Power Delivery Charger is no exception. We've spent some time with this laptop battery charger and put it to the test to see just how well Anker's compact battery pack holds up against a variety of gadgets.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Plush and light for travelers**
 
  If you've owned any Anker products, you'll immediately recognize the PowerCore+ 26800\. It features a minimal rectangular design made of extruded aluminum with rounded edges for a very smooth look and feel. It weighs roughly 1.3 pounds, which gives it a premium feel without feeling too heavy.
 
 ![Anker](https://www.lifewire.com/thmb/brfc42RYlVrJLOHjyc0IbNzEQ0k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_5Web-5c90fc18c9e77c0001ac191d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -92,7 +88,7 @@ Lifewire / Gannon Burgett
 ![Anker](https://www.lifewire.com/thmb/Ps-fDFicjMGSS8OppN-xw5yn_mg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_1-Web-5c90fc3dc9e77c0001eb1cc5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
@@ -100,6 +96,10 @@ Lifewire / Gannon Burgett
  Our device came approximately 50% charged based on the battery life indicator lights on the top. We immediately burned through what battery life it had so we could start fresh with testing to see how quickly the 30W wall charger could fill the 26800mAh capacity.
 
  It's a no-frills design that looks great when paired with any clean, modern device if you care about form as much as function.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Charging Speed and Battery: Slow and steady wins this race**
 
@@ -113,13 +113,13 @@ Lifewire / Gannon Burgett
 
 ![Anker](https://www.lifewire.com/thmb/tJwshohQXfV-U0_iKVTCkHEhFLU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_6Web-5c90fcc6c9e77c0001a92733.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Gannon Burgett
 
  We tested the PowerCore+ 26800 on our 2016 MacBook Pro 15-inch four different times to get a solid average. With the laptop completely dead, the battery pack managed to charge it to 100% in just three and a half hours with a little battery life to spare.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Perfectly priced for its power**
 
@@ -175,20 +175,14 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-seamlessly-add-vimeo-videos-to-insta-feed/"><u>[Updated] How to Seamlessly Add Vimeo Videos to Insta Feed</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-polishing-your-tiktok-content-a-guide-to-filters/"><u>2024 Approved Polishing Your TikTok Content A Guide to Filters</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-sensational-tale-tiler-system/"><u>2024 Approved Sensational Tale Tiler System</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-epson-wf-2940-printer-software-compatible-with-windows-7-81-and-10/"><u>Download Epson WF-2940 Printer Software Compatible with Windows 7, 8.1 & 10</u></a></li>
-<li><a href="https://win-forum.techidaily.com/efficient-techniques-to-clear-memory-dump-files-on-your-pc-running-windows-n/"><u>Efficient Techniques to Clear Memory Dump Files on Your PC Running Windows N</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-framed-facets-guide-to-the-best-apps-and-sites-for-frame-upgrades/"><u>In 2024, Framed Facets Guide to the Best Apps & Sites for Frame Upgrades</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/navigating-new-features-in-monterey-release/"><u>Navigating New Features in Monterey Release</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/netgear-ex3700-wi-fi-signal-amplifier-with-ac750-standard-expert-review/"><u>Netgear EX3700 Wi-Fi Signal Amplifier with AC750 Standard - Expert Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/netgear-orbi-unveiled-why-its-the-leading-pick-for-reliable-wi-fi-coverage/"><u>Netgear Orbi Unveiled: Why It's The Leading Pick For Reliable Wi-Fi Coverage</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/nintendo-faceoff-unveiling-the-features-and-functionality-of-switch-lite-vs-switch-oled/"><u>Nintendo Faceoff: Unveiling the Features and Functionality of Switch Lite Vs. Switch OLED</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/powering-up-on-the-go-comprehensive-review-of-the-poweradd-pilot-pro2-charger/"><u>Powering Up on the Go: Comprehensive Review of the POWERADD Pilot Pro2 Charger</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/prime-live-soundscapes-for-fans/"><u>Prime Live Soundscapes for Fans</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/scrutinizing-apple-tvs-market-pricing/"><u>Scrutinizing Apple TV's Market Pricing</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/top-5-xiaomi-mix-fold-3-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Xiaomi Mix Fold 3 Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/ultimate-guide-converting-high-quality-dvds-into-wmv-format-using-windows/"><u>Ultimate Guide: Converting High-Quality DVDs Into WMV Format Using Windows</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2023s-best-value-pruveeo-f5-full-hd-1080p-dash-cam-comprehensive-review-for-safe-journeys/"><u>2023'S Best Value Pruveeo F5 Full HD 1080P Dash Cam - Comprehensive Review for Safe Journeys</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-assessing-luminance-for-hd-raises-questions/"><u>2024 Approved Assessing Luminance for HD Raises Questions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-fresh-look-at-yokus-island-express-bold-adventures-in-unexpected-directions/"><u>A Fresh Look at Yoku’s Island Express: Bold Adventures in Unexpected Directions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/acer-xfa240-evaluation-prioritizing-performance-and-utility/"><u>Acer XFA240 Evaluation: Prioritizing Performance and Utility</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/advantages-and-disadvantages-a-comprehensive-review-of-the-webex-virtual-conferencing-platform/"><u>Advantages & Disadvantages: A Comprehensive Review of the Webex Virtual Conferencing Platform</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-videos-from-your-nokia-105-classic-by-fonelab-android-recover-video/"><u>How to recover old videos from your Nokia 105 Classic</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-samsung-galaxy-m14-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Samsung Galaxy M14 5G Location by Number | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-pinnacle-studio-not-your-cup-of-tea-explore-these-mac-alternatives/"><u>New 2024 Approved Pinnacle Studio Not Your Cup of Tea? Explore These Mac Alternatives</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolve-the-stuck-startup-a-users-manual-for-windows-preparing-glitches-on-computers/"><u>Resolve the Stuck Startup: A User's Manual for Windows Preparing Glitches on Computers</u></a></li>
 </ul></div>
 

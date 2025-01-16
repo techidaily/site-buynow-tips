@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of the TP-Link RE305 Wireless Network Enhancer (AC1200)
-date: 2025-01-08T16:10:02.035Z
-updated: 2025-01-10T08:06:02.476Z
+date: 2025-01-10T08:29:19.150Z
+updated: 2025-01-16T07:29:34.376Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of the TP-Link RE305 Wireless Network Enhancer (AC1200)
@@ -64,7 +64,7 @@ Lifewire / Claire Cohen
  We spent over a week testing it in our home, evaluating design, ease of setup and network performance.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design:** **Neither seen nor heard**
@@ -80,7 +80,7 @@ Lifewire / Claire Cohen
  There's an[Ethernet port](https://www.lifewire.com/what-is-an-ethernet-port-817546) at the bottom of the device as well as a pinhole reset button, just in case it needs rebooted at any point. It's a bit awkward to hang an[Ethernet cord](https://www.lifewire.com/what-is-an-ethernet-cable-817548) from the extender depending on where you've placed it in your home, but it's a useful addition to bring Ethernet to a desktop, TV, or gaming console without having to put holes in your wall.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Simple and quick**
@@ -102,7 +102,7 @@ Lifewire / Claire Cohen
  There is one important pain point, however, to keep in mind during setup. The extender's administrative password utilizes a default "admin/admin" login, so you'll want to change that to keep unauthorized users out. It can be changed via the TP-Link Tether app, which isn't clearly lined out in the instructions. It isn't required, but if you want to keep your network as secure as possible, it's an important part of setup.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Connectivity and Network Performance:** **Strong, multi-device connectivity**
@@ -121,10 +121,6 @@ Lifewire / Claire Cohen
 
  It's a bit bereft of some functionality for veteran extender users who may want to fiddle with settings and skip the "easy mode" setup, but it does its job particularly well. It even includes a[QR code](https://www.lifewire.com/scan-qr-codes-on-smartphone-4154658) to scan for users to download the wireless management app straight from the setup page. It doesn't take any real doing to reach this website either, and can be accessed at any time from the network.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: A deal at any price**
 
  At a list price of $59.99, the RE305 is a fantastic deal, considering it's typically on sale for much cheaper, often $10 to $15 less than retail. It isn't TP-Link's lowest-end option, but the performance and speeds offered for the price are certainly more than your money's worth, especially if you live in a larger home and pay for higher internet speeds. It’s important to keep in mind that it won’t include all the features you’ll get with pricier extenders like multiple ethernet ports or additional antennas, but this basic setup is just about all the average user needs, anyway.
@@ -132,7 +128,7 @@ Lifewire / Claire Cohen
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/bG-oXoYxR83gVSUH4vzz37hfYxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-1-5c92424b46e0fb000172f127.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
@@ -148,6 +144,10 @@ Lifewire / Claire Cohen
 **A no-frills option for smaller homes.**
 
  The TP-Link AC1200 Wi-Fi Range Extender RE305 is a no-frills extender with supports dual-band Wi-Fi support and an Ethernet port for wired connectivity. It won’t fare well in homes beyond 2,000 square feet, but it's a value-priced extender that can be relied on at shorter ranges.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -182,16 +182,18 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-achieving-proficiency-comprehensive-photoshop-hdr-tutorial-for-2024/"><u>[New] Achieving Proficiency Comprehensive Photoshop HDR Tutorial for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-fix-live-video-interrupted-on-facebook-in-2024/"><u>[Updated] How to Fix Live Video Interrupted on Facebook, In 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-youtubes-twist-rearranging-queue-from-end-to-beginning/"><u>[Updated] YouTube's Twist Rearranging Queue From End to Beginning</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-chorus-of-services-integrating-your-musical-library/"><u>2024 Approved Chorus of Services Integrating Your Musical Library</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-the-premier-power-converters-expert-picks/"><u>Discover the Premier Power Converters: Expert Picks</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-the-world-of-simple-technology-with-hp-stream-11s-slim-design/"><u>Discover the World of Simple Technology with HP Stream 11'S Slim Design</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/elevate-your-hobby-with-the-syma-fpas-black-q2-an-insightful-and-affordable-rc-helicopter-analysis/"><u>Elevate Your Hobby with the Syma FPAS BLACK Q2 - An Insightful and Affordable RC Helicopter Analysis</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/embrace-easy-and-timely-meals-for-your-furry-friend-with-arfs-automatic-feeder/"><u>Embrace Easy and Timely Meals for Your Furry Friend with Arf’s Automatic Feeder</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/entry-level-rebel-t6-reviewed-economical-image-capture/"><u>Entry-Level Rebel T6 Reviewed: Economical Image Capture</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-oneplus-nord-n30-se-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor OnePlus Nord N30 SE Activity | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/no-more-downtime-log-in-to-your-origin-profile-now-that-the-issue-is-resolved/"><u>No More Downtime: Log In to Your Origin Profile Now That the Issue Is Resolved</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unlocking-virtual-presence-enhanced-screen-focus-on-ms-teams/"><u>[Updated] Unlocking Virtual Presence Enhanced Screen Focus on MS Teams</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/f4vmp4/"><u>劣化なしでF4VをMP4にするための完全ワークフロー</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/apple-integrates-openais-chatgpt-into-ios-ipados-and-macos-a-new-era-of-conversational-interfaces/"><u>Apple Integrates OpenAI's ChatGPT Into iOS, iPadOS & MacOS: A New Era of Conversational Interfaces</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-assessment-affordable-cross-cut-amazon-basics-shredding-solution/"><u>Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-id-on-your-apple-iphone-se-without-security-questions-by-drfone-ios/"><u>How to Unlock Apple ID On your Apple iPhone SE without Security Questions?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-realme-10t-5g-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from Realme 10T 5G to Gmail | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/linksys-ac1900-mesh-wifi-router-assessment-the-ideal-networking-device-for-every-user/"><u>Linksys AC1900 Mesh WiFi Router Assessment - The Ideal Networking Device for Every User</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/redefining-taskbar-interaction-proposing-key-changes-to-microsofts-design/"><u>Redefining Taskbar Interaction: Proposing Key Changes to Microsoft's Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revisiting-tech-history-thorough-evaluation-of-the-vintage-netgear-c3000-dual-functional-device-for-internet-connectivity/"><u>Revisiting Tech History: Thorough Evaluation of the Vintage Netgear C3000 Dual-Functional Device for Internet Connectivity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-definitive-ranking-master-the-list-of-most-exceptional-17-inch-laptops-available/"><u>The Definitive Ranking: Master the List of Most Exceptional 17-Inch Laptops Available</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/top-6-proven-artificial-intelligence-tools-for-superior-video-resolution-enhancement/"><u>Top 6 Proven Artificial Intelligence Tools for Superior Video Resolution Enhancement</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-netgear-orbi-assessment-ultimate-guide-to-the-premier-wireless-mesh-system/"><u>Top Netgear Orbi Assessment: Ultimate Guide to the Premier Wireless Mesh System</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-guide-getting-msi-afterburner-to-detect-gpu-on-windows-11-systems/"><u>Troubleshooting Guide: Getting MSI Afterburner to Detect GPU on Windows 11 Systems</u></a></li>
 </ul></div>
 

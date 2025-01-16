@@ -1,7 +1,7 @@
 ---
 title: "Master Your Network On a Budget: Comprehensive Review of the TP-Link Archer A6 AC1200 Router"
-date: 2025-01-04T01:52:30.917Z
-updated: 2025-01-10T15:10:41.881Z
+date: 2025-01-14T07:22:02.056Z
+updated: 2025-01-16T01:04:51.528Z
 categories:
   - BestProducts
 description: "This Article Describes Master Your Network On a Budget: Comprehensive Review of the TP-Link Archer A6 AC1200 Router"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/cef699ffd22d6808899594afa50b73f9f6bcef39d
 ## In-Depth Review of the TP-Link Ac1200 WiFi Booster RE305: Enhance Your Network Today
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## TP-Link RE305 AC1200 Wi-Fi Range Extender
 
@@ -40,10 +44,6 @@ Lifewire / Claire Cohen
 
 ![TP-Link AC1200 Wi-Fi Range Extender RE305](https://www.lifewire.com/thmb/C8f1R4cMjb3MUZ1ViPdvQ67Q7tE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4LW4043312-0cb211cf35c746879e5136b3f9d62b63.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Claire Cohen
 
 [View On Amazon $38](https://www.amazon.com/dp/B01N8ROH7G/?tag=lifewire-onsite-prod-20&ascsubtag=4589559%7Cn7c9facd8b2a7476ea5e744a63f18481911%7CB01N8ROH7G) [View On Walmart $38](https://www.walmart.com/ip/TP-Link-RE305-AC1200-Wi-Fi-Range-Extender-works-with-any-router-or-WiFi-system/981199634) [View On Best Buy $50](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Ftp-link-ac1200-dual-band-wi-fi-range-extender-white%2F6295316.p)
@@ -67,6 +67,10 @@ Lifewire / Claire Cohen
 
  We spent over a week testing it in our home, evaluating design, ease of setup and network performance.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design:** **Neither seen nor heard**
 
  The RE305 is quite small and unobtrusive, with a plastic white exterior and silver accents that’s meant to blend in, not stand out. At just 3.1 x 3.1 x 2.4 (LWH) inches unboxed and 6.4 ounces, it's one of the most diminutive Wi-Fi solutions on the market. That means it's simple to plug into a spare outlet anywhere your wireless signal needs bolstering.
@@ -87,10 +91,6 @@ Lifewire / Claire Cohen
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/PS8-Iywv5MsnOo99Fir-jNOiPF8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-4-5c924206c9e77c0001ff0bb8.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Claire Cohen
 
  You'll create a password, let the device scan your network for an applicable router, and then enter the SSID and password to your current wireless network from there. There are options to change the extender network’s SSID and password if you so choose, but otherwise, it’ll remain the same as your default network. Once completed, the 2.4 GHz and/or 5GHz lights on the device should come on, depending on[your router's functionality](https://www.lifewire.com/what-is-a-router-2618162) . The entire process from unboxing to surfing the web took about 7 minutes.
@@ -101,10 +101,6 @@ Lifewire / Claire Cohen
 
  There is one important pain point, however, to keep in mind during setup. The extender's administrative password utilizes a default "admin/admin" login, so you'll want to change that to keep unauthorized users out. It can be changed via the TP-Link Tether app, which isn't clearly lined out in the instructions. It isn't required, but if you want to keep your network as secure as possible, it's an important part of setup.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Connectivity and Network Performance:** **Strong, multi-device connectivity**
 
  Several devices were connected to our wireless network, including a MacBook Pro,[iPhone X](https://www.lifewire.com/iphone-x-4150706) , iPad Pro,[Nintendo Switch](https://www.lifewire.com/what-is-the-nintendo-switch-4148184) , and[PlayStation 4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) . When testing the wireless extender's range, at 10 feet to around 70 or so feet away from the router in a 2,100 square foot home, its signal was quite strong, with full bars on an iPhone X and iPad Pro in most areas. One bathroom on the first floor did suffer from occasionally spotty connectivity at around 1,500 feet away from the router.
@@ -113,11 +109,11 @@ Lifewire / Claire Cohen
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/Lyz1QcuQDPYlUp5pPBJiL0YKSag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-2-5c9241dcc9e77c0001a92785.jpg)
 
- Lifewire / Claire Cohen
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Claire Cohen
 
 ## **Software: Clean and easy to understand**
 
@@ -125,15 +121,15 @@ Lifewire / Claire Cohen
 
  It's a bit bereft of some functionality for veteran extender users who may want to fiddle with settings and skip the "easy mode" setup, but it does its job particularly well. It even includes a[QR code](https://www.lifewire.com/scan-qr-codes-on-smartphone-4154658) to scan for users to download the wireless management app straight from the setup page. It doesn't take any real doing to reach this website either, and can be accessed at any time from the network.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: A deal at any price**
 
  At a list price of $59.99, the RE305 is a fantastic deal, considering it's typically on sale for much cheaper, often $10 to $15 less than retail. It isn't TP-Link's lowest-end option, but the performance and speeds offered for the price are certainly more than your money's worth, especially if you live in a larger home and pay for higher internet speeds. It’s important to keep in mind that it won’t include all the features you’ll get with pricier extenders like multiple ethernet ports or additional antennas, but this basic setup is just about all the average user needs, anyway.
 
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/bG-oXoYxR83gVSUH4vzz37hfYxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-1-5c92424b46e0fb000172f127.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
 
@@ -148,6 +144,10 @@ Lifewire / Claire Cohen
 **A no-frills option for smaller homes.**
 
  The TP-Link AC1200 Wi-Fi Range Extender RE305 is a no-frills extender with supports dual-band Wi-Fi support and an Ethernet port for wired connectivity. It won’t fare well in homes beyond 2,000 square feet, but it's a value-priced extender that can be relied on at shorter ranges.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -182,24 +182,18 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-from-bland-to-breatited-the-ultimate-video-title-guide/"><u>[New] In 2024, From Bland to Breatited The Ultimate Video Title Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-googles-take-on-ar-stickers-an-overview-and-beyond/"><u>[New] In 2024, Google's Take on AR Stickers An Overview & Beyond</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-integrating-obs-for-youtube-and-twitch-streaming-for-2024/"><u>[New] Integrating OBS for YouTube & Twitch Streaming for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-warriors-path-a-list-of-intense-fighting-games/"><u>[Updated] In 2024, Warrior's Path A List of Intense Fighting Games</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/budget-friendly-high-performance-photo-companion/"><u>Budget-Friendly, High-Performance Photo Companion</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/choosing-your-tablet-wisely-in-depth-analysis-of-ipad-vs-ipad-air-features/"><u>Choosing Your Tablet Wisely: In-Depth Analysis of iPad Vs. IPad Air Features</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/critique-on-the-jackery-powerbar-highlighting-its-convenient-built-in-wall-socket-functionality/"><u>Critique on the Jackery PowerBar – Highlighting Its Convenient Built-In Wall Socket Functionality</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/cutting-edge-laptop-showdown-lenovo-yoga-a940-assessment/"><u>Cutting-Edge Laptop Showdown: Lenovo Yoga A940 Assessment</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discovering-the-best-features-of-the-versatile-samsung-galaxy-tab-s4-in-this-detailed-review/"><u>Discovering the Best Features of the Versatile Samsung Galaxy Tab S4 in This Detailed Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/efficient-acer-aspire-c27-the-sleek-comprehensive-desktop-computer/"><u>Efficient Acer Aspire C27 - The Sleek, Comprehensive Desktop Computer</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-the-midland-lxt500vp3-range-high-tech-communication-tools-that-fall-short-in-execution/"><u>Evaluating the Midland LXT500VP3 Range: High-Tech Communication Tools That Fall Short in Execution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exclusive-oculus-quest-2-elite-gaming-headset-straps-extra-battery-and-protective-case-unboxed/"><u>Exclusive Oculus Quest 2 Elite Gaming Headset - Straps, Extra Battery & Protective Case Unboxed!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/experience-precision-on-a-budget-with-the-moto-g-stylus-our-in-depth-analysis/"><u>Experience Precision on a Budget with the Moto G Stylus – Our In-Depth Analysis</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-do-google-pixel-fold-screen-sharing-drfone-by-drfone-android/"><u>How To Do Google Pixel Fold Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Motorola Moto G13 | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/1722987245835-no-more-game-crashes-decode-and-repair-your-cod-vanguard-en-error-0x00001338-on-pc-now/"><u>No More Game Crashes – Decode and Repair Your COD Vanguard E:N (Error 0X00001338) on PC Now</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/spooktacular-desktop-backgrounds-for-halloween-enthusiasts-immersive-visuals-by-yl-creative-suite/"><u>Spooktacular Desktop Backgrounds for Halloween Enthusiasts – Immersive Visuals by YL Creative Suite</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1723964488313-steal-a-deal-iconic-famicom-style-retro-keyboard-by-8bitdo-now-just-59/"><u>Steal a Deal: Iconic Famicom-Style Retro Keyboard by 8BitDo Now Just $59</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/strength-training-your-prompt-skills-on-chatgpt-as-a-fitness-aficionado/"><u>Strength Training Your Prompt Skills on ChatGPT as a Fitness Aficionado</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ehind-the-scenes-filmmaking-tips-from-youtube-experts/"><u>[New] Behind-the-Scenes Filmmaking Tips From YouTube Experts</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-unleash-creativity-with-these-free-web-photo-editors/"><u>[New] In 2024, Unleash Creativity with These Free Web Photo Editors</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-choosing-the-right-tool-for-your-youtube-to-avi-desire/"><u>[Updated] 2024 Approved Choosing the Right Tool for Your YouTube-to-AVI Desire</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-reviving-vintage-visual-storytelling-techniques-today/"><u>[Updated] Reviving Vintage Visual Storytelling Techniques Today</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/captivating-images-mastering-the-art-of-motion-blur-in-ps/"><u>Captivating Images Mastering the Art of Motion Blur in PS</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-apple-imacs-style-and-strength-an-in-depth-review-of-the-215-4k-monitor/"><u>Exploring the Apple iMac's Style & Strength: An In-Depth Review of the 21.5 4K Monitor</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Realme C67 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/key-considerations-the-right-camera-recorder-selection/"><u>Key Considerations: The Right Camera Recorder Selection</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/navigate-new-horizons-with-these-10-travel-vids/"><u>Navigate New Horizons with These 10 Travel Vids</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-the-skies-an-in-depth-look-at-the-indooroutdoor-capabilities-of-blades-blh4100-120-rtf-helicopter/"><u>Navigating the Skies: An In-Depth Look at the Indoor/Outdoor Capabilities of Blade's BLH4100 120 RTF Helicopter</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-smooth-sailing-the-top-free-online-video-stabilization-software/"><u>New 2024 Approved Smooth Sailing The Top Free Online Video Stabilization Software</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-thermaltake-massive-tm-laptop-cooling-pad-insight-a-wealth-of-pros-with-a-pricey-tag/"><u>The Thermaltake Massive TM Laptop Cooling Pad Insight: A Wealth of Pros with a Pricey Tag</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-features-of-the-jackery-powerbar-with-integrated-ac-outlet-detailed-assessment/"><u>Unveiling the Features of the Jackery PowerBar with Integrated A/C Outlet – Detailed Assessment</u></a></li>
 </ul></div>
 

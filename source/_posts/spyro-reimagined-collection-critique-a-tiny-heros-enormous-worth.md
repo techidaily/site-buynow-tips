@@ -1,7 +1,7 @@
 ---
 title: "Spyro Reimagined Collection Critique: A Tiny Hero's Enormous Worth"
-date: 2025-01-03T09:00:10.246Z
-updated: 2025-01-10T02:15:44.332Z
+date: 2025-01-10T22:47:27.037Z
+updated: 2025-01-16T04:34:45.958Z
 categories:
   - BestProducts
 description: "This Article Describes Spyro Reimagined Collection Critique: A Tiny Hero's Enormous Worth"
@@ -40,6 +40,10 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/8XGs9qzQ6hLIBySEKXEvBMfEkq4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Kelsey Simon
 
 [View On Amazon](https://www.amazon.com/dp/B075NFTX36/?tag=lifewire-onsite-prod-20&ascsubtag=4685718%7Cn0dc423de187c40659bf9fd9ffcd5e7ec22%7CB075NFTX36) [View On Walmart](https://www.walmart.com/ip/829171723)
@@ -62,21 +66,17 @@ Lifewire / Kelsey Simon
 
  The Elder Scrolls V: Skyrim is an action role-playing game focused on single-player immersion in a fantasy world. It was originally released in 2011 and has most recently been ported over to the Switch. We took a close look at this game on its newest platform, playing it on the go to test the handheld gameplay experience, along with the plot and graphics.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Simple for all users**
 
  As with other games on the Nintendo Switch, you’ll need to insert the cartridge into your device. Skyrim does take a while to launch, so be patient as it loads up. There shouldn’t be any special downloads required, like with other games, and as soon as things load you’ll be able to play.
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/uXDVHaBrdIlv5tI-qRgiPK0Iig4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460721-e6a53664e7eb4e65a75bf5cceb928e28.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Plot: A huge world with loads to explore**
 
@@ -97,7 +97,7 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/1fxH7ty_kqxpugJDk2tIQndKvI0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546078-6bdc67e56311473f9c1edeab00d2caa5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -120,23 +120,11 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/2Fk-UTwglmoCdE7IXrXqlnXs9do=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460712-6cec58625d13430db671be3144451cbc.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Graphics: A bit outdated**
 
  The graphics in Skyrim aren’t awful, but they haven't progressed much since 2011\. If you’ve played any other version of Skyrim, you can overlook it, simply because you know what you’re getting into. Bethesda attempted to make Skyrim look realistic, likely in their desire to give you a fully immersive experience. But these days, Skyrim’s graphics just aren’t as realistic as what other, more recent games have accomplished. In places, the mountains look blocky and the grass a little patchy. Character’s faces sometimes seem deeply sunken around the eyes, with the skin looking more like leather than flesh. It’s not that the graphics are overly bad, they’re just not as good as what you can get with better hardware on the PC.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Platform: Take Skyrim on the go**
 
@@ -150,13 +138,25 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/Iik6f_7RIRMWo5R6zGYxgGeL4n0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546076-8fb741faa7144fa6bafe386d2b7d8296.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: A tad expensive**
 
  The Elder Scrolls V: Skyrim costs roughly $60 dollars for the Switch (MSRP). You might be able to find it on sale on Amazon for less, but it’s still on the more expensive side like other popular Switch games. This is disappointing since you can find Skyrim on other platforms for a fraction of the cost, even snatching it up for sale on Steam for $25 or less on PC. Considering the cost difference, the PC version of the game is the better deal, especially since the gameplay is better looking. But if you’re looking to take Skyrim on the go, or a Switch is your preferred gaming system, the price isn’t unreasonable.
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -198,20 +198,18 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-comprerant-and-reviewed-the-ultimate-list-of-ios-video-edits/"><u>[New] 2024 Approved Compreran't & Reviewed The Ultimate List of iOS Video Edits</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-affordable-action-cam-top-picks/"><u>[New] Affordable Action Cam Top Picks</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-cyber-celebrity-countdown-worldwide-subscribers/"><u>[New] In 2024, Cyber Celebrity Countdown Worldwide Subscribers</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-boosting-your-windows-photos-feed-incorporating-audio-elements/"><u>[Updated] 2024 Approved Boosting Your Windows Photos Feed Incorporating Audio Elements</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-slimmed-down-cloud-keeping-at-low-cost-high-space/"><u>[Updated] Slimmed-Down Cloud Keeping at Low Cost, High Space</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/acquiring-free-music-youtube-video-edition-for-2024/"><u>Acquiring Free Music YouTube Video Edition for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/hp-stream-14-examined-balancing-cost-and-performance-in-a-mid-range-windows-notebook/"><u>HP Stream 14 Examined: Balancing Cost and Performance in a Mid-Range Windows Notebook</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ideal-iphones-for-gamers-which-model-should-you-buy/"><u>Ideal iPhones for Gamers: Which Model Should You Buy?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/improved-camera-features-the-s21-fe-offers-an-upgraded-camera-system-compared-to-the-original-fan-edition-models-with-better-image-processing-and-additional155/"><u>Improved Camera Features: The S21 FE Offers an Upgraded Camera System Compared to the Original Fan Edition Models, with Better Image Processing and Additional Features Like 4K Video Recording at Higher Frame Rates.</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unlocking-deep-sleep-with-asmr-strategies/"><u>In 2024, Unlocking Deep Sleep with ASMR Strategies</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-27000mah-chargetech-battery-pack-is-it-worth-your-money/"><u>In-Depth Analysis of the 27000mAh ChargeTech Battery Pack: Is It Worth Your Money?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/iphone-versus-android-determining-the-best-fit-for-your-lifestyle/"><u>IPhone versus Android: Determining the Best Fit for Your Lifestyle</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-mobility-ranking-the-top-8-most-engaging-mobile-games/"><u>Mastering Mobility: Ranking the Top 8 Most Engaging Mobile Games</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/oneplus-9-pro-evaluation-exquisite-aesthetics-blazing-fast-processor-and-innovative-photographic-capabilities/"><u>OnePlus 9 Pro Evaluation: Exquisite Aesthetics, Blazing Fast Processor & Innovative Photographic Capabilities</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-6-must-have-journaling-applications-for-organized-note-taking/"><u>Top 6 Must-Have Journaling Applications for Organized Note Taking</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-elevate-podcasting-quality-selecting-the-right-interface/"><u>[New] In 2024, Elevate Podcasting Quality Selecting the Right Interface</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-crafting-authenticity-secrets-of-successful-video-endorsements/"><u>[Updated] Crafting Authenticity Secrets of Successful Video Endorsements</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-synergy-in-copywriting-the-trio-technique-to-boost-your-fb-campaigns-performance/"><u>2024 Approved Synergy in Copywriting The Trio Technique to Boost Your FB Campaign's Performance</u></a></li>
+<li><a href="https://discover-help.techidaily.com/error-404-the-link-is-missing/"><u>Error 404: The Link Is Missing</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/practical-methods-reflecting-video-via-vlc-software-for-2024/"><u>Practical Methods Reflecting Video via VLC Software for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/the-complete-checklist-for-uploading-videos-on-twitpic-for-2024/"><u>The Complete Checklist for Uploading Videos on Twitpic for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-sleek-small-sound-of-sony-lx310bt-review/"><u>The Sleek, Small Sound of Sony LX310BT Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-thrills-and-pleasures-found-in-the-world-of-pokemon-shining-pearl/"><u>The Thrills and Pleasures Found in the World of Pokémon Shining Pearl</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-conclusion-of-hitman-series-in-hitman-3-expert-analysis/"><u>The Ultimate Conclusion of Hitman Series in Hitman 3 - Expert Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-leveraging-buysellads-for-successful-blogging-monetization/"><u>The Ultimate Guide to Leveraging BuySellAds for Successful Blogging Monetization</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-microsoft-sculpt-keyboard-comfort-meets-great-savings/"><u>The Ultimate Guide to the Microsoft Sculpt Keyboard - Comfort Meets Great Savings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-verdict-on-microsoft-flight-simulator-x-gold-edition-a-lasting-gem-for-pilots-and-enthusiasts/"><u>The Ultimate Verdict on Microsoft Flight Simulator X Gold Edition: A Lasting Gem for Pilots and Enthusiasts</u></a></li>
 </ul></div>
 

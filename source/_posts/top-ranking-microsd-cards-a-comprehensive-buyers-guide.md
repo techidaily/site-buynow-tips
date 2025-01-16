@@ -1,7 +1,7 @@
 ---
 title: "Top-Ranking MicroSD Cards : A Comprehensive Buyer's Guide"
-date: 2025-01-08T16:00:52.472Z
-updated: 2025-01-10T16:02:00.734Z
+date: 2025-01-14T23:50:37.519Z
+updated: 2025-01-16T07:45:02.721Z
 tags:
   - buying-guides
 categories:
@@ -59,16 +59,8 @@ Best SD Card for Raspberry Pi
 ![vanja sd card reader](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/12/vanja-sd-card-reader.png)  
 #####  Vanja SD Card Reader  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Best MicroSD Card Adapter  
 [$10 at Amazon](https://www.amazon.com/dp/B0B3XPBTVS?tag=hotoge-20&ascsubtag=UUhtgUeUpU202147&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F884563%2Fbest-microsd-cards%2F&asc%5Fcampaign=Commerce)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##  What to Look For With a MicroSD Card in 2023
 
@@ -97,9 +89,17 @@ Best MicroSD Card Adapter
 
  How-To Geek's product recommendations come from the same team of experts that have helped people fix their gadgets over one billion times. We only recommend the best products based on our research and expertise. We never accept payment to endorse or review a product. [Read More »](https://win-howtos.techidaily.com/resolving-unresponsive-mousepad-problems-on-windows-systems-windows-7810/) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Best MicroSD Card Overall: [Samsung Pro Plus](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fsamsung-pro-plus-256gb-microsdxc-memory-card%2F6540988.p%3FskuId%3D6540988) 
 
 ![person inserting samsung pro plus micro SD into GoPro](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/12/samsung-pro-plus-1.png) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Samsung
 
@@ -128,6 +128,10 @@ Samsung's Pro Plus line of microSD cards offers a variety of storage sizes at a 
 
 [See at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fsamsung-pro-plus-256gb-microsdxc-memory-card%2F6540988.p%3FskuId%3D6540988) [$19 at Amazon](https://www.amazon.com/SAMSUNG-microSDXC-Expanded-MB-MD128KA-AM/dp/B09B1G89YQ?tag=hotoge-20&ascsubtag=UUhtgUeUpU202147&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F884563%2Fbest-microsd-cards%2F&asc%5Fcampaign=Commerce) [See at Samsung](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fus%2Fbusiness%2Fcomputing%2Fmemory-storage%2Fmemory-cards%2Fpro-plus-adapter-microsdxc-128gb-2-pack-bndl-1646662567081%2F) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Best Budget MicroSD Card: [Kingston Canvas Go Plus MicroSDXC](https://www.amazon.com/Kingston-128GB-microSDXC-Adapter-SDCG3/dp/B0858MY6RT?tag=hotoge-20&ascsubtag=UUhtgUeUpU202147&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F884563%2Fbest-microsd-cards%2F&asc%5Fcampaign=Commerce) 
 
 [](https://www.amazon.com/Kingston-128GB-microSDXC-Adapter-SDCG3/dp/B0858MY6RT?tag=hotoge-20&ascsubtag=UUhtgUeUpU202147&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F884563%2Fbest-microsd-cards%2F&asc%5Fcampaign=Commerce)
@@ -152,15 +156,7 @@ Samsung's Pro Plus line of microSD cards offers a variety of storage sizes at a 
 
 ![kingston canvas go plus](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/12/kingston-canvas-go-plus.png) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Best Budget MicroSD Card
 
@@ -177,6 +173,10 @@ This budget microSDXC is a high-performance card without the high price tag ofte
 [](https://www.amazon.com/dp/B09X7MPX8L?tag=hotoge-20&ascsubtag=UUhtgUeUpU202147&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F884563%2Fbest-microsd-cards%2F&asc%5Fcampaign=Commerce)
 
 [![Sandisk extreme microSD on purple background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/04/sandisk-extreme.jpg) SanDisk](https://www.amazon.com/dp/B09X7MPX8L?tag=hotoge-20&ascsubtag=UUhtgUeUpU202147&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F884563%2Fbest-microsd-cards%2F&asc%5Fcampaign=Commerce)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [](https://www.amazon.com/dp/B09X7MPX8L?tag=hotoge-20&ascsubtag=UUhtgUeUpU202147&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F884563%2Fbest-microsd-cards%2F&asc%5Fcampaign=Commerce) 
 
@@ -195,14 +195,10 @@ This budget microSDXC is a high-performance card without the high price tag ofte
 ![sandisk extreme plus 1TB](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/12/sandisk-extreme-plus-1tb.png) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Best 1TB MicroSD Card
 
@@ -236,10 +232,6 @@ SanDisk's 1TB microSDXC card can handle 4K and 5K videos and achieve high read a
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Best SD Card for Steam Deck
 
 #####  SanDisk Extreme Pro Micro Memory Card
@@ -268,15 +260,7 @@ The Extreme Pro is a blazingly fast microSD card for the Steam Deck, capable of 
 
 ![sandisk extreme plus](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/12/sandisk-extreme-plus.png) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Best MicroSD for Nintendo Switch
 
@@ -310,6 +294,10 @@ Although not the cheapest MicroSDXC card around, the A2-rated Extreme PLUS is ex
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-best_of-generic.png) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Best SD Card for Raspberry Pi
 
 #####  Silicon Power 3D NAND MicroSD Card
@@ -317,6 +305,10 @@ Best SD Card for Raspberry Pi
 This economic card works great on Raspberry Pi devices while delivering fast performance for general file transfers.
 
 [$9 at Amazon](https://www.amazon.com/Silicon-Power-Speed-MicroSD-Adapter/dp/B07Q384TPK?tag=hotoge-20&ascsubtag=UUhtgUeUpU202147&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F884563%2Fbest-microsd-cards%2F&asc%5Fcampaign=Commerce) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Best MicroSD Card Adapter: [Vanja SD Card Reader](https://www.amazon.com/dp/B0B3XPBTVS?tag=hotoge-20&ascsubtag=UUhtgUeUpU202147&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F884563%2Fbest-microsd-cards%2F&asc%5Fcampaign=Commerce) 
 
@@ -352,7 +344,15 @@ Vanja offers a multi-use card reader that works with microSD and SD cards and su
 
 [$10 at Amazon](https://www.amazon.com/dp/B0B3XPBTVS?tag=hotoge-20&ascsubtag=UUhtgUeUpU202147&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F884563%2Fbest-microsd-cards%2F&asc%5Fcampaign=Commerce) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## FAQ
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What's the difference between a microSD card and an SD card?
 
@@ -367,7 +367,7 @@ Vanja offers a multi-use card reader that works with microSD and SD cards and su
  The classes of a microSD card refer to the “Speed Class” and includes “Speed Class,” “UHS Speed Class,” and “Video Speed Class.” The standard Speed Class is broken up into Class 2, Class 4, Class 6, and Class 10\. UHS Speed Class only has two designations, U3 and U1\. Finally, Video Speed Class is identified by V6, V10, V30, V60, and V90\. The higher the speed class, the faster the microSD card is capable of being.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Why can't I delete files from my microSD card?
@@ -393,15 +393,20 @@ Vanja offers a multi-use card reader that works with microSD and SD cards and su
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-ideal-selfie-sticks-for-iphone-users/"><u>[New] In 2024, Ideal Selfie Sticks for iPhone Users</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-live-stream-heroes-face-off-xsplit-vs-obs-showcase-for-2024/"><u>[New] Live Stream Heroes Face Off – XSplit Vs. OBS Showcase for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-streamlined-video-calls-synchronizing-zoom-and-gmail-for-better-communication/"><u>2024 Approved Streamlined Video Calls Synchronizing Zoom & Gmail for Better Communication</u></a></li>
-<li><a href="https://games-able.techidaily.com/architecting-advanced-connectivity-for-the-next-generation-expert-tips-by-zdnet/"><u>Architecting Advanced Connectivity for the Next Generation - Expert Tips by ZDNet</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/conversion-facil-y-gratuita-de-raw-a-formato-bmp-online-descubra-el-poderoso-servicio-de-movavi/"><u>Conversión Fácil Y Gratuita De RAW a Formato BMP Online: Descubra El Poderoso Servicio De Movavi</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-the-latest-windows-compatible-sapphire-driver-updates-now/"><u>Get the Latest Windows-Compatible Sapphire Driver Updates Now</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-wi-fi-travel-routers-a-comprehensive-guide/"><u>Top Rated Wi-Fi Travel Routers : A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/uniqueness/"><u>Uniqueness</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-features-of-kobo-clara-colour-the-ultimate-e-reader-assessment/"><u>Unveiling the Features of Kobo Clara Colour - The Ultimate E-Reader Assessment</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-google-nest-doorbell-with-battery-backup-a-detailed-review/"><u>Unveiling the Google Nest Doorbell with Battery Backup - A Detailed Review</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-idea-to-execution-creating-youtube-trailers-in-filmora/"><u>[New] 2024 Approved From Idea to Execution Creating YouTube Trailers in Filmora</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-strategies-to-find-the-perfect-power-source-for-drones/"><u>[New] Strategies to Find the Perfect Power Source for Drones</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-snickerscribble-program/"><u>2024 Approved SnickerScribble Program</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-messages-files-on-nubia-red-magic-8s-proplus-by-fonelab-android-recover-messages/"><u>Complete guide for recovering messages files on Nubia Red Magic 8S Pro+</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-leading-alternatives-to-microsoft-office/"><u>Discover the Leading Alternatives to Microsoft Office</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fixing-the-issue-making-hidden-or-missing-app-icons-reappear-on-iphones/"><u>Fixing the Issue: Making Hidden or Missing App Icons Reappear on iPhones</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-poco-x6-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Poco X6 to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lg-um7300-49-smart-4k-television-comprehensive-review-of-a-cost-effective-4k-set/"><u>LG UM7300 49 Smart 4K Television: Comprehensive Review of a Cost-Effective 4K Set</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/m06-bluetooth-hearing-aids-reliable-connection/"><u>M06 Bluetooth Hearing Aids: Reliable Connection</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/razer-book-13-evaluation-compact-device-with-impressive-performance/"><u>Razer Book 13 Evaluation: Compact Device with Impressive Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-alert-the-high-performance-docooler-usb-20-12mp-compact-digital-slr-examined/"><u>Review Alert: The High-Performance Docooler USB 2.0 12MP Compact Digital SLR Examined</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-totobabays-second-generation-luminous-awakening-light-the-smart-way-to-start-your-morning-on-a-budget/"><u>Review: Totobabay's Second Generation Luminous Awakening Light – The Smart Way to Start Your Morning on a Budget</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sonys-acoustic-revolution-an-in-depth-study-of-wh-1000xm4/"><u>Sony's Acoustic Revolution: An In-Depth Study of WH-1000XM4</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/survival-sweepstakes-robust-jabra-audio-devices/"><u>Survival Sweepstakes: Robust Jabra Audio Devices</u></a></li>
+<li><a href="https://win-premium.techidaily.com/taxistikh-metatroph-live-video-se-mp3-xwris-dwrhma-anapoympoystos-and-eydisk/"><u>Ταχιστική Μετατροπή Live Video Σε MP3 Χωρίς Δώρημα - [Αναπουμπούστος & Εύδιsk]</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Review of Twelve South's Compact Traveler - A Masterclass in Portable Camping Gear
-date: 2025-01-06T13:51:29.391Z
-updated: 2025-01-10T03:06:25.407Z
+date: 2025-01-13T00:56:10.485Z
+updated: 2025-01-16T08:27:57.242Z
 categories:
   - BestProducts
 description: This Article Describes Review of Twelve South's Compact Traveler - A Masterclass in Portable Camping Gear
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/RbH1L50C2WDwsCIJHL9rumjvuMg=/400x300/fi
 ## Master Your Game with the Comfortable Design of the Mavix M9 Chair - Reviewed
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Mavix M9 Gaming Chair
 
@@ -63,7 +67,7 @@ Lifewire / Rebecca Isaacs
  A poor computer chair may lead to backaches, pains, and a whole mess of skeletal and muscular issues. When I began to have these symptoms, I decided it was time for a change to my chair, and got the Mavix M9 Gaming Chair for review. After over 20 hours of testing, it’s safe to say that I’ve found my favorite piece of gaming equipment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Design: A gamer’s dream
@@ -72,15 +76,15 @@ Lifewire / Rebecca Isaacs
 
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/tSFIFAR8G-C5W7DBBLPJ5GiE3EM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_03-8842478b07bd4585ba7f1843afcd29dc.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
 
  Despite this mesh exterior, the M9 chair is incredibly sleek and modern and adds style to any modern gaming setup. This is not only because of the mesh support but the rest of the chair is upholstered in beautiful, smooth leather. The logo on the headrest stands out, but it’s not really a detriment to the overall design of the chair.
 
  At 56 x 26 x 22.75 inches (HWD), the chair has a wide seat for spreading out and comes with an optional headrest. Even the wheels are prepped for hours of gameplay and come with a locking feature to ensure stability.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Comfort: It’s all in the ergonomics
 
@@ -91,10 +95,6 @@ Lifewire / Rebecca Isaacs
  In fact, nearly everything can be adjusted from the seat depth to the headrest angle—the chair is easy to mold to your personal needs.
 
 ![Mavix M9 Gaming Chair headrest ](https://www.lifewire.com/thmb/dk-8es8V-f2VzVltDiUNw0nCs2o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_02-acc7e137bc7a4b25837fbbe065ac1416.jpeg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -111,7 +111,7 @@ Lifewire / Rebecca Isaacs
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/WWvjEhKERcoOvm-8u1GtzfLuV7M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_05-91c5a721612e45cbbdc432ec9ab67e4b.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
@@ -121,6 +121,10 @@ Lifewire / Rebecca Isaacs
  And even better, if you decide that a nap is in order but you’d prefer not to move, you can invoke the M9’s Extended Recline, which allows the chair to recline up to 127 degrees.
 
  Only want to go back a few degrees? You can adjust that thanks to the levers underneath the chair seat. This feature also helped relieve my back when I started feeling like I’d been sitting in the chair too long. It’s a great, relaxing addition.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Price: Hits the wallet hard
 
@@ -141,10 +145,6 @@ Lifewire / Rebecca Isaacs
 **A great gaming chair for all-day use.**
 
  While it can’t really be customized outside of cosmetic options, the M9 gaming chair is a solid, easy way to enjoy any gaming hobby without worrying about backaches. The reclining technology and the locking wheels are especially nice bonuses. The price may seem a little high, but it’s a worthy investment for any gamer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -179,24 +179,21 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/updated-rgbs-role-in-modern-color-standards-compared-to-srgb-for-2024/"><u>[Updated] Rgb's Role in Modern Color Standards Compared to Srgb for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-high-definition-options-best-4k-camera-support-systems/"><u>2024 Approved High Definition Options Best 4K Camera Support Systems</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-resolution-duel-comparing-gopro-hero-and-polaroid-cube/"><u>2024 Approved Resolution Duel Comparing GoPro Hero and Polaroid Cube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-vimeo-and-youtube-the-ultimate-showdown/"><u>2024 Approved Vimeo and YouTube The Ultimate Showdown</u></a></li>
-<li><a href="https://article-tips.techidaily.com/best-qpr-index-for-sluggish-video-content-for-2024/"><u>Best QPR Index for Sluggish Video Content for 2024</u></a></li>
-<li><a href="https://media-tips.techidaily.com/effortless-guide-transforming-your-ringtone-from-m4r-to-mp3-audio/"><u>Effortless Guide: Transforming Your Ringtone From M4R to MP3 Audio</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/in-2024-top-hashtags-to-leverage-on-tiktok-for-more-followers/"><u>In 2024, Top Hashtags to Leverage on TikTok for More Followers</u></a></li>
-<li><a href="https://driver-install.techidaily.com/logitech-webcam-safe-installation/"><u>Logitech Webcam - Safe Installation</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/pioneering-sound-technology-2024s-top-headphones/"><u>Pioneering Sound Technology - 2024'S Top Headphones</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/pondering-the-impact-of-higher-featured-apple-watch-on-daily-use/"><u>Pondering the Impact of Higher Featured Apple Watch on Daily Use</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/premier-noise-blocking-audio-tech-2024/"><u>Premier Noise-Blocking Audio Tech 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/preserve-records-present-sound-audio-technica-at-lp120xusb/"><u>Preserve Records, Present Sound - Audio-Technica AT-LP120XUSB</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/selecting-superior-storage-the-best-portable-drives-of-2024/"><u>Selecting Superior Storage: The Best Portable Drives of 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/speedy-and-reliable-unpacking-the-features-of-the-tp-link-av2000-the-best-and-worst-in-design/"><u>Speedy and Reliable? Unpacking the Features of the TP-Link AV2000: The Best and Worst in Design</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/streamlined-guide-producing-mp3s-with-optimal-speed-and-quality-on-windows-or-mac/"><u>Streamlined Guide: Producing MP3s with Optimal Speed and Quality on Windows or Mac</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/taking-flight-simulation-to-new-heights-a-closer-look-at-x-planes-latest-release-with-exceptional-graphics/"><u>Taking Flight Simulation to New Heights: A Closer Look at X-Plane's Latest Release with Exceptional Graphics</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-budget-wifi-champion-unpacking-features-and-performance-of-the-tp-link-archer-c9/"><u>The Budget WiFi Champion: Unpacking Features and Performance of the TP-Link Archer C9</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-final-mission-completed-hitman-3-gets-the-spotlight-in-our-detailed-review/"><u>The Final Mission Completed - Hitman 3 Gets the Spotlight in Our Detailed Review</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-expert-advice-incorporating-voiceovers-for-visual-impact/"><u>[New] Expert Advice Incorporating Voiceovers for Visual Impact</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-resounding-videos-a-tutorial-on-instagrams-musical-integration/"><u>[Updated] 2024 Approved Resounding Videos A Tutorial on Instagram's Musical Integration</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-achieving-peak-zoom-resolution-effective-techniques/"><u>2024 Approved Achieving Peak Zoom Resolution Effective Techniques</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-excellence-in-affordability-the-comprehensive-review-of-acer-aspire-e-15/"><u>Discovering Excellence in Affordability - The Comprehensive Review of Acer Aspire E 15</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-high-end-wifi-ambient-weather-observer-ws-1002-is-it-worth-its-price-tag/"><u>Evaluating the High-End WiFi Ambient Weather Observer (WS-1002): Is It Worth Its Price Tag?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-on-the-functionality-of-googles-voice-communication-tool/"><u>Expert Analysis on the Functionality of Google's Voice Communication Tool</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expertly-curated-selection-of-the-best-samsung-tv-apps-2024-edition/"><u>Expertly Curated Selection of the Best Samsung TV Apps - 2024 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-cutting-edge-features-in-amazons-revolutionary-4th-gen-echo-review/"><u>Exploring the Cutting-Edge Features in Amazon's Revolutionary 4Th Gen Echo Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/family-friendly-and-high-speed-the-complete-netgear-nighthawk-x6-wifi-router-evaluation/"><u>Family Friendly and High Speed: The Complete Netgear Nighthawk X6 WiFi Router Evaluation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/from-close-ups-to-far-off-landscapes-sx70s-zoom-mastery/"><u>From Close-Ups to Far Off Landscapes - SX70's Zoom Mastery</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-honor-magic-5-pro-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Honor Magic 5 Pro in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-a-guide-to-sustaining-longer-gopro-battery-life/"><u>In 2024, A Guide to Sustaining Longer GoPro Battery Life</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-fitbit-charge-6-wearable-tracker/"><u>In-Depth Analysis: Fitbit Charge 6 Wearable Tracker</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-enhance-your-footage-color-correction-in-final-cut-pro-2023/"><u>New In 2024, Enhance Your Footage Color Correction in Final Cut Pro 2023</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/top-8-linux-screenshot-utilities-compared/"><u>Top 8 Linux Screenshot Utilities Compared</u></a></li>
+<li><a href="https://games-able.techidaily.com/unveiling-the-flaws-a-closer-look-at-6-reasons-mac-isnt-ideal-for-gamers/"><u>Unveiling the Flaws: A Closer Look at 6 Reasons Mac Isn't Ideal for Gamers</u></a></li>
 </ul></div>
 

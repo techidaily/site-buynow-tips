@@ -1,7 +1,7 @@
 ---
 title: "Holy Stone HS170 Predator Mini RC Helicopter Drone Review: A Drone on a Budget"
-date: 2025-01-03T19:20:56.148Z
-updated: 2025-01-10T05:32:12.675Z
+date: 2025-01-14T19:06:14.115Z
+updated: 2025-01-15T21:56:56.446Z
 categories:
   - BestProducts
 description: "This Article Describes Holy Stone HS170 Predator Mini RC Helicopter Drone Review: A Drone on a Budget"
@@ -13,13 +13,13 @@ thumbnail: https://thmb.techidaily.com/05c8c6fd73c6fec22a2f538188954b893a706bcf3
 
 3
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Netgear C3000 Cable Modem Router
 
 ![Netgear C3000](https://www.lifewire.com/thmb/r2nn71mNtfamPTZ4ju27N_m1tIk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-4_1-3b77a598c3cd4836b8b632578b3b437e.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Bill Thomas
 
@@ -40,10 +40,6 @@ Lifewire / Bill Thomas
 [View On Amazon](https://www.amazon.com/NETGEAR-Wi-Fi-DOCSIS-Router-C3000/dp/B00IF0JAIU/?tag=lifewire-onsite-prod-20&ascsubtag=4686086%7Cn2f00e06f401442688fa093d4158749eb13%7CB00IF0JAIU) [View On Walmart](https://www.walmart.com/ip/NETGEAR-N300-8x4-WiFi-Cable-Modem-Router-Combo-C3000-DOCSIS-3-0-Certified-for-Xfinity-by-Comcast-Spectrum-COX-more-C3000/36009476)
 
 3
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Netgear C3000 Cable Modem Router
 
@@ -84,28 +80,24 @@ Lifewire / Bill Thomas
 ![Netgear C3000](https://www.lifewire.com/thmb/vcoYESWM5JJLo3l3KiPZd0A4uEU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_4-b3293ad0ed2b4bffb51f8e5f71f1914d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/_9ERrc4mSXFjpZAVMAwwqbfpLwM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_3-2f5e1e38512d41019430d063e63b7f9b.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/8U-jHJ6otxXt5vRq8FVLubPNOpI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_2-a6aa93cceeaf4d9ca6bb0d989200b2ea.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Bill Thomas
 
 ![Netgear C3000](https://www.lifewire.com/thmb/7eGgp_5LZf8d-PMDe578GB4_hEI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_5-7c5c666203504b9ab932de0b70f14522.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
@@ -123,6 +115,10 @@ Lifewire / Bill Thomas
 
  Lifewire / Bill Thomas
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Network Performance: Keep your expectations low
 
  This device has an N300 network rating, which means your speeds should top out at 300Mbps on a single band. But your actual network speed won’t reach that. In testing the wireless performance of the Netgear C3000, our wireless speed topped out at 54 Mbps just three feet from the modem. We pay for a 250 Mbps plan, so we were getting about 20% of our rated speed.
@@ -130,10 +126,6 @@ Lifewire / Bill Thomas
  The range was also an issue—in short, this will not suffice if you live in a mid-sized home or bigger. Just 300 feet away, behind a wall and a staircase, our wireless speeds dipped all the way down to 15 Mbps. This doesn’t really matter if you live in a studio apartment, but for everyone else, we’d recommend combining this modem with a[separate wireless router](https://www.lifewire.com/best-wireless-routers-4038590) .
 
  There is a silver lining: the wired performance is reliable. When connected this way, we consistently got our rated 250 Mbps speeds with little to no drops. We spent some time playing The Division 2 while hardwired into the Netgear C3000 and didn’t run into any lag. That’s surprising given that a 8x4 DOCSIS 3.0 modem is capable of just 343 Mbps download speeds. But Netgear delivered where it truly counts: modem performance.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Software: Pretty standard and easy to use
 
@@ -151,6 +143,10 @@ Lifewire / Bill Thomas
 
  Unless you’re dead-set on buying an all-in-one device, buying a separate modem and router is going to be the more economical option.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Netgear C3000 vs. TP-Link TC-W7960S
 
  In terms of competition, we looked at the TP-LINK TC-W7960S, which is almost identical spec-for-spec but more a bit more expensive. It will set you back $97 if you’re buying it full price. Fortunately, the TP-Link Modem has two more wired ports so you can have more devices hard-wired in, and you won’t have to rely so much on wireless. Either way, with so many devices these days needing wireless connections, picking up a dedicated wireless router is never a bad idea.
@@ -160,6 +156,10 @@ Lifewire / Bill Thomas
 **Only buy it if you can find it on sale.**
 
  The Netgear C3000 first hit the market more than five years ago, and it might have been worth the price of admission back then. These days, it’s hard to justify spending so much cash on a dated product. The modem gets the job done, but as soon as you rely on the built-in wireless router, you’re going to be in for a disappointment.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -200,17 +200,24 @@ Lifewire / Bill Thomas
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-top-online-free-video-editing-hacks/"><u>[New] 2024 Approved Top Online Free Video Editing Hacks</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-expert-advice-for-flawless-recordings-on-mi-11-phones/"><u>[New] Expert Advice for Flawless Recordings on Mi 11 Phones</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-for-the-tech-sleuth-dissecting-the-best-top-10-fb-videos-downloaders-for-2024/"><u>[New] For the Tech Sleuth Dissecting the Best Top 10 FB Videos Downloaders for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-intro-to-graphic-motion-artistry-and-usage/"><u>2024 Approved Intro to Graphic Motion Artistry and Usage</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/harness-free-methods-to-download-vimeo-videos-with-ease-for-2024/"><u>Harness Free Methods to Download Vimeo Videos with Ease for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/top-apps-and-online-tools-to-track-xiaomi-13t-pro-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Xiaomi 13T Pro Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-programming-lessons-the-ultimate-guide-to-learning/"><u>Top Rated Programming Lessons: The Ultimate Guide to Learning</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-reviews-on-blades-e-flite-mcx2-rtf-chopper-find-the-ultimate-pre-assembled-rc-helicopter/"><u>Top Reviews on Blade's E-Flite mCX2 RTF Chopper: Find the Ultimate Pre-Assembled RC Helicopter</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/toshiba-lf711u20-the-ultimate-55-inch-fire-tv-smart-led-tv-for-prime-shoppers/"><u>Toshiba LF711U20 - The Ultimate 55-Inch Fire TV Smart LED TV for Prime Shoppers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/tp-links-budget-champion-inside-the-archer-a9-router-for-less-than-100/"><u>TP-Link's Budget Champion: Inside the Archer A9 Router for Less Than 100</u></a></li>
-<li><a href="https://games-able.techidaily.com/ultimate-list-of-premium-gaming-desks-curated-by-zdnet/"><u>Ultimate List of Premium Gaming Desks Curated by ZDNet</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-google-pixel-n-4a-5g-top-review-for-an-economical-high-performance-smartphone/"><u>Unveiling the Google Pixel N 4a 5G: Top Review for an Economical, High-Performance Smartphone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-delve-into-discussions-of-dedicated-viewers/"><u>[Updated] 2024 Approved Delve Into Discussions of Dedicated Viewers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-blueprint-for-buzz-elevating-interactions-on-instagram/"><u>[Updated] In 2024, The Blueprint for Buzz Elevating Interactions on Instagram</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-navigate-the-vlogiverse-6-curated-questionnaires-for-discerning-viewers/"><u>[Updated] Navigate the Vlogiverse 6 Curated Questionnaires for Discerning Viewers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-review-spotlight-on-jabras-speak-25-fast-charges-long-talks/"><u>A Review Spotlight on Jabra's Speak 25: Fast Charges, Long Talks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-dawn-experience-totobays-second-gen-wake-up-light-reviewed-for-early-risers-seeking-value/"><u>Affordable Dawn Experience: Totobay's Second Gen Wake-Up Light Reviewed for Early Risers Seeking Value</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-of-the-best-top-external-bd-drives-reviewed-for-202e/"><u>Best of the Best - Top External BD Drives Reviewed for 202E</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/brand-new-dbpower-peak-pro-review-reliability-durability-and-value-for-price/"><u>Brand New DBPOWER Peak Pro Review – Reliability, Durability & Value for Price</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-smartphone-showdown-why-the-samsung-galaxy-a20-still-stands-out/"><u>Budget Smartphone Showdown: Why the Samsung Galaxy A20 Still Stands Out</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/choosing-your-chat-platform-a-deep-dive-into-signal-vs-whatsapp/"><u>Choosing Your Chat Platform: A Deep Dive Into Signal Vs. WhatsApp</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-apple-homepod-mini-analysis-features-on-sound-quality-smart-assistant-capabilities-and-beyond/"><u>Comprehensive Apple HomePod Mini Analysis: Features on Sound Quality, Smart Assistant Capabilities & Beyond</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/conquering-gaming-challenges-with-fifa-19-the-apex-of-sport-themed-interactive-experiences/"><u>Conquering Gaming Challenges with FIFA 19 - The Apex of Sport-Themed Interactive Experiences</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elevate-your-vr-experience-with-the-essential-oculus-quest-2-elite-carrying-case-unbox-test-and-reveal-proscons/"><u>Elevate Your VR Experience with the Essential Oculus Quest 2 Elite Carrying Case – Unbox, Test & Reveal Pros/Cons!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Motorola Defy 2 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-realme-c53-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Realme C53? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-clock-companion-for-wedding-planners-and-couples/"><u>In 2024, The Ultimate Clock Companion for Wedding Planners & Couples</u></a></li>
+<li><a href="https://win-tips.techidaily.com/is-it-possible-to-install-multiple-antivirus-applications-alongside-windows-defender-insights-from-yl-computing/"><u>Is It Possible To Install Multiple Antivirus Applications Alongside Windows Defender? Insights From YL Computing</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/top-10-netflix-substitutes-for-watching-films-at-no-cost-explore-the-best-options-available/"><u>Top 10 Netflix Substitutes for Watching Films at No Cost: Explore the Best Options Available</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-cellphone-bargains-on-independence-day-exclusive-offers-from-top-brands/"><u>Top Cellphone Bargains on Independence Day: Exclusive Offers From Top Brands</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-professionals-are-choosing-the-dji-mavic-2-pro-an-in-depth-reveal-and-ranking/"><u>Why Professionals Are Choosing the DJI Mavic 2 Pro - An In-Depth Reveal and Ranking</u></a></li>
 </ul></div>
 

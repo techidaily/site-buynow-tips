@@ -1,7 +1,7 @@
 ---
 title: Mastering STEM with Makeblock – A Thorough Review of the Innovative mBot Coding Kit
-date: 2025-01-03T00:22:40.910Z
-updated: 2025-01-10T12:41:50.863Z
+date: 2025-01-11T19:22:52.224Z
+updated: 2025-01-15T22:46:17.087Z
 categories:
   - BestProducts
 description: This Article Describes Mastering STEM with Makeblock – A Thorough Review of the Innovative mBot Coding Kit
@@ -37,13 +37,13 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Amazon Echo Dot (4th Gen)
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/wkHXB7KTws9HfL-i1yYYsWIMm5w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Amazon-Echo-Dot-4th-Generation-1-fc73a047312d4d588ffcbeae7bdd3368.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -67,13 +67,13 @@ Lifewire / Erika Rawes
 
  Amazon’s[Echo](https://www.lifewire.com/what-is-the-amazon-echo-4147189) Dot has become a go-to option for those looking for a compact and affordable smart speaker. The brand has now released a 4th generation of its[Echo Dot](https://www.lifewire.com/amazon-dot-4149509) , and the new version has a totally different look than its predecessors. What else is new and different about the Echo Dot (4th Gen)? How does the new Dot perform? I tested the Echo Dot (4th Gen) to find out.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: A completely new look**
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/TtbQpfhvpeKgt-Aso1WoKQ6m2VI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-2-89fbd54fb6a14efba195a0094b8d7b6f.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -86,7 +86,7 @@ Lifewire / Erika Rawes
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/HELf_jWdoxnVe1w7XOL9sC7GoO8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-4-f100069b4b7d40dc8661b1614e150934.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -101,7 +101,15 @@ Lifewire / Erika Rawes
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/dVUkRuy5SxFHmCHXxSseZY5tjhw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-3-320d298cdb18405d9d326c272464ef0d.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Sound Quality: A front-firing speaker**
 
@@ -115,19 +123,11 @@ Lifewire / Erika Rawes
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/UFZM9HpoakK6sRg-7Vm2W8uLIQ8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-6-with-Clock-86c91da96d4043369f0a4e97b22c4209.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **Features: The same Alexa**
 
  The Echo Dot (4th Gen) is powered by[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) . The Alexa voice assistant on the new Echo Dot is the same Alexa that you get on the Echo Dot (3rd Gen). You’ll be able to control your smart devices, listen to music, hear the news, set routines, shop, manage your schedule, and do all of the same things you could do before.[Alexa is always learning new skills](https://www.lifewire.com/alexa-skills-4126799) though. Amazon announced new Alexa features (coming soon) like Care Hub, which is a free feature that lets you check in on loved ones.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Echo Dot (4th Gen) With Clock: A Design Game Changer**
 
@@ -145,15 +145,15 @@ Lifewire / Erika Rawes
 
  I like the Echo Dot (4th Gen) with Clock better than the regular Echo Dot (4th Gen), as the regular version feels like it’s missing something.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: $60 with clock, $50 without**
 
  The Echo Dot (4th Gen) retails for $50, and for $10 more, you can pick up the “with clock” version. The clock is very much worth it simply because the device looks so much better with it (aside from the obvious added functionality), and for first-time buyers, the default model is definitely worth $50\. It looks great, sounds good, and provides an affordable way to access Alexa and control your smart home.
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/fdW9QpFUSBjNMTYTGdjFggaOH9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-5-Comparison-6841e2f32a734282b509976489bd0383.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -199,22 +199,20 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-shrink-it-down-youtubes-video-trimming-process/"><u>[Updated] Shrink It Down YouTube's Video Trimming Process</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-top-12-wildlife-wonders-for-your-android-device/"><u>[Updated] Top 12 Wildlife Wonders for Your Android Device</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-fitness-companion-the-ultimate-guide-to-the-fitbit-versa/"><u>Affordable Fitness Companion: The Ultimate Guide to the Fitbit Versa</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/amazon-kindle-paperwhite-2018-review/"><u>Amazon Kindle Paperwhite (2018) Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/battle-of-the-handheld-consoles-a-comprehensive-nintendo-switch-lite-x-nintendo-switch-oled-review/"><u>Battle of the Handheld Consoles: A Comprehensive Nintendo Switch Lite X Nintendo Switch OLED Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-the-extollo-lansocket-1500-high-velocity-data-transmission-and-low-delay-with-power-pass-through-functionality/"><u>Comprehensive Analysis of the Extollo LANSocket 1500: High-Velocity Data Transmission & Low Delay with Power Pass-Through Functionality</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-protecting-your-macbook-pro-13-with-a-high-quality-fintie-case/"><u>Comprehensive Analysis: Protecting Your MacBook Pro 13 with a High-Quality Fintie Case</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-lg-stylo-6-sleek-design-meets-precision-stylus/"><u>Comprehensive Review: LG Stylo 6 – Sleek Design Meets Precision Stylus</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/creating-visual-wonders-and-learning-strategy-explore-what-chatgpts-my-gpt-bots-can-do-beyond-games/"><u>Creating Visual Wonders & Learning Strategy: Explore What ChatGPT's My GPT Bots Can Do Beyond Games</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/demystifying-the-small-yet-stunningly-capable-apple-iphone-12-mini-an-essential-tech-reveal/"><u>Demystifying the Small Yet Stunningly Capable Apple iPhone 12 Mini: An Essential Tech Reveal</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-why-the-new-microsoft-surface-laptop-4-reigns-supreme-in-tech/"><u>Discover Why the New Microsoft Surface Laptop 4 Reigns Supreme in Tech</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/easily-install-sound-blaster-audigy-fx-drivers-click-to-save-now/"><u>Easily Install Sound Blaster Audigy FX Drivers - Click to Save Now</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/expert-tips-to-get-your-astro-a20-microphone-working-again/"><u>Expert Tips to Get Your Astro A20 Microphone Working Again</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/highlighting-hps-robust-fourth-quarter-achievements-and-optimistic-first-quarter-predictions-silicon-insights/"><u>Highlighting HP's Robust Fourth Quarter Achievements and Optimistic First-Quarter Predictions | Silicon Insights</u></a></li>
-<li><a href="https://ai-editing-video.techidaily.com/new-vsdc-free-video-editor-review/"><u>New VSDC Free Video Editor Review</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/universal-unlock-pattern-for-vivo-s17-by-drfone-android/"><u>Universal Unlock Pattern for Vivo S17</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/upcoming-release-alert-yl-computing-announces-january-2024-shipment-date-for-bitmains-cutting-edge-antminer-t21/"><u>Upcoming Release Alert: YL Computing Announces January 2024 Shipment Date for Bitmain’s Cutting-Edge Antminer T21</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-youtubes-digital-canvas-studio-essentials-for-2024/"><u>[Updated] Navigating YouTube's Digital Canvas Studio Essentials for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-ultimate-list-of-steadicams-for-uav-videography-enthusiasts/"><u>2024 Approved Ultimate List of Steadicams for UAV Videography Enthusiasts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/digital-dreams-unite-conference/"><u>Digital Dreams Unite Conference</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-capabilities-of-pioneers-bdr-xs06-a-portable-blu-ray-burning-solution-assessed-for-performance/"><u>Exploring the Capabilities of Pioneer's BDR-XS06: A Portable Blu-Ray Burning Solution Assessed for Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fitbit-charge-3-assessment-is-it-still-a-worthwhile-pick/"><u>Fitbit Charge 3 Assessment - Is It Still a Worthwhile Pick?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ford-f-150-and-galaxy-rivalry-unveiled-the-ultimate-remote-control-truck-faceoff/"><u>Ford F-150 & Galaxy Rivalry Unveiled: The Ultimate Remote Control Truck Faceoff</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-to-select-an-ergonomic-keyboard-for-maximum-productivity-in-202-cufflinks/"><u>How to Select an Ergonomic Keyboard for Maximum Productivity in 202 Cufflinks</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-elevate-your-snaps-techniques-for-captivating-marketing-visuals/"><u>In 2024, Elevate Your Snaps Techniques for Captivating Marketing Visuals</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Itel P55 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-assessment-netgear-ac1200-wireless-range-extender-ex6200-features-and-performance/"><u>In Depth Assessment: Netgear AC1200 Wireless Range Extender (EX6200) Features and Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-photoscape-analysis-top-features-of-this-complimentary-graphic-design-tool/"><u>In-Depth Photoscape Analysis: Top Features of This Complimentary Graphic Design Tool</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-zmi-powerpack-20000-analysis-the-ultimate-portable-energy-solution/"><u>In-Depth ZMI PowerPack 20000 Analysis - The Ultimate Portable Energy Solution</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/tips-for-extracting-tweets-as-mp3-audio-files-for-2024/"><u>Tips for Extracting Tweets as MP3 Audio Files for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/transformez-gratuitement-vos-fichiers-wav-en-formats-swf-sur-ligne-avec-movavi/"><u>Transformez Gratuitement Vos Fichiers WAV en Formats SWF Sur Ligne Avec Movavi</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-he-article-will-list-top-9-free-mp4-cutters-for-windows-mac-and-online/"><u>Updated In 2024, He Article Will List Top 9 Free MP4 Cutters for Windows, Mac and Online</u></a></li>
 </ul></div>
 

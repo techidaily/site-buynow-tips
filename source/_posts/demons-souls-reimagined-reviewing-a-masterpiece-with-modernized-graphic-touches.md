@@ -1,7 +1,7 @@
 ---
 title: Demon's Souls Reimagined - Reviewing a Masterpiece with Modernized Graphic Touches
-date: 2025-01-03T08:05:52.668Z
-updated: 2025-01-10T03:10:26.693Z
+date: 2025-01-11T17:27:05.239Z
+updated: 2025-01-16T03:23:44.052Z
 categories:
   - BestProducts
 description: This Article Describes Demon's Souls Reimagined - Reviewing a Masterpiece with Modernized Graphic Touches
@@ -13,13 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/dEOCkzkzYSEO1EFWdx9dkv38Hw8=/400x300/fi
 
 4.9
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## LG OLED C9 65" 4K Smart TV
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/Z82osxXGuhEbZyidLLG58VdbbJ0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_HeroSquare-b4b1522941d44a18b75a586155788477.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -48,10 +48,6 @@ Lifewire / Emily Isaacs
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/-RQ5Ui3BjE0KxHGHYE-UjNz7EY4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_HeroSquare-b4b1522941d44a18b75a586155788477.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Emily Isaacs
 
 [View On Amazon $1,499](https://www.amazon.com/dp/B07NHQ4CXM?tag=lifewire-onsite-prod-20&ascsubtag=4782074%7Cnbf356f5c2a82467e96b6fbc9b5b4691023%7CB07NHQ4CXM) [View On Walmart $3,497](https://www.walmart.com/ip/LG-65-Class-OLED-C9-Series-4K-2160P-Smart-Ultra-HD-HDR-TV-OLED65C9PUA-2019-Model/543371577)
@@ -78,10 +74,6 @@ Lifewire / Emily Isaacs
 
  Lifewire / Emily Isaacs
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Smart and sleek**
 
 [OLED TVs](https://www.lifewire.com/oled-tv-basics-1846926) are among the best money can buy, characterized by their ability to produce a wide range of colors alongside deep, rich blacks by toggling individual pixels to emit their own light. On top of this, OLED frames are thinner and lighter than their LED predecessors. It’s a powerful combination that makes for a startlingly realistic picture alongside an expanded range of placement options. In the case of the LG C9, it’s a design that’s as smart as it is sleek thanks to the inclusion of Google Assistant and Alexa.
@@ -94,7 +86,15 @@ Lifewire / Emily Isaacs
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/mxKfDJGuIKYcsSIQoKfzwDbYYmg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_02-3da87ff8439343f691cf02e9234d1f04.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Do it yourself worthy, but you’ll need a hand**
 
@@ -109,10 +109,6 @@ Lifewire / Emily Isaacs
  The other important factor when selecting a mount is the weight and screen size the mount is capable of holding. In this case, these measurements are 65 inches and 56 pounds. After this, considerations are based on preferences rather than hardware limitations. Do you want your mount to be fixed or flexible? Would you prefer installing the TV at eye level or would you like it to rest higher? Will you be placing it in a corner or on a flat wall? These are important questions to ask because they influence the kind of mount you’ll bring home. When in doubt, most manufacturers include a compatibility check for the TV’s make and model on their website. If you’re not comfortable measuring, leveling, and drilling into studs, it's well worth the peace of mind to hire a handyman once you’ve made your selection.
 
  Once the TV has been installed, LG’s WebOS guides the first-time setup process by prompting inputs for settings ranging from time zone and language up to and including any necessary user agreements. The LG C9 will complete a scan in order to identify the devices and then you’re free to customize the TV’s settings by pressing the gear button on the LG Magic Remote. The first setting we changed was the Auto Power Saving (APS) picture mode, which reduces power use by dimming the brightness of the TV. The other important setting to disable is TruMotion, which smooths motion in TV shows and movies by altering the frame rate of the programming. If your LG’s picture looks a bit too much like a soap opera, chances are you need to disable this setting.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Image Quality: Stunning picture**
 
@@ -131,7 +127,7 @@ Lifewire / Emily Isaacs
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/SZUaFESJi6OZubIeLdK1e9L9FEM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_04-c559e4cc6de64f0c8baf4470f883dd9e-4844a7694fb74eb2904f1128ba93f760.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
@@ -149,6 +145,10 @@ Lifewire / Emily Isaacs
  65-inch 4K TV’s generally retail for between $800-$5,000, and this cost jumps further as screen size increases. The LG C9 is a premium 4K TV that sits at the top of this curve, offering integrated smart technologies and excellent picture with an intuitive, easy-to-use interface. As such, it comes at a premium price of $2,500 (Amazon) that exceeds the cost of many competitor models, but with so many additional features it’s worth the high price—even if it’s difficult to swallow.
 
 [How to Buy a TV For Your Home in 2024](https://www.lifewire.com/best-60-inch-tvs-4580159)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **LG OLED C9 65-inch vs. Samsung 65-inch Class Q60R**
 
@@ -211,18 +211,19 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-strategies-for-complementing-core-shots-with-b-roll/"><u>[New] Strategies for Complementing Core Shots with B-Roll</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-esports-news-and-analysis-from-top-vloggers/"><u>[Updated] 2024 Approved Esports News and Analysis From Top Vloggers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-audio-mastery-your-guide-to-youtube-soundtracking/"><u>2024 Approved Audio Mastery Your Guide to Youtube Soundtracking</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/complete-fixes-to-solve-apple-iphone-6s-plus-randomly-asking-for-apple-id-password-drfone-by-drfone-ios/"><u>Complete Fixes To Solve Apple iPhone 6s Plus Randomly Asking for Apple ID Password | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-google-pixel-8-pro-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Google Pixel 8 Pro to iPhone Easily | Dr.fone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-essential-tactics-for-android-video-capture/"><u>In 2024, Essential Tactics for Android Video Capture</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-unlocking-creativity-in-youtube-video-splitting/"><u>In 2024, Unlocking Creativity in YouTube Video Splitting</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-the-latest-bluetooth-handsets-of-2024/"><u>Ultimate Guide to the Latest Bluetooth Handsets of 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unboxing-and-review-the-new-samsung-galaxy-s2ebrity-a-new-model-that-has-been-released-recently-it-offers-a-combination-of-performance-and-style-with-its-sl108/"><u>Unboxing and Review: The New Samsung Galaxy S2ebrity, a New Model that Has Been Released Recently. It Offers a Combination of Performance and Style with Its Sleek Design and Advanced Features. Here Are some Key Points About This Smartphone:</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unboxing-and-testing-the-samsung-qn55q6f-smart-tv-a-comprehensive-4k-hdr-evaluation/"><u>Unboxing and Testing the Samsung QN55Q6F Smart TV: A Comprehensive 4K HDR Evaluation</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-best-budget-friendly-indoor-antenna-a-thorough-review-of-the-1byone-digital-hdtv-model/"><u>Unveiling the Best Budget-Friendly Indoor Antenna: A Thorough Review of the 1Byone Digital HDTV Model</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-performance-and-value-of-the-miniaturized-samsung-galaxy-s10e/"><u>Unveiling the Performance and Value of the Miniaturized Samsung Galaxy S10e</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-potential-a-comprehensive-look-at-the-updated-amazon-fire-hd-8/"><u>Unveiling the Potential: A Comprehensive Look at the Updated Amazon Fire HD 8</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-expert-tips-on-figma-seamless-bg-erasure-techniques-for-2024/"><u>[New] Expert Tips on Figma Seamless BG Erasure Techniques for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-live-streaming-capture-services/"><u>[New] In 2024, Live-Streaming Capture Services</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unified-vision-ventures-a-complete-cms-selection-journey/"><u>[Updated] 2024 Approved Unified Vision Ventures A Complete CMS Selection Journey</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-leading-10-digital-subtitling-platforms/"><u>[Updated] Leading 10 Digital Subtitling Platforms</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-top-online-platforms-for-youtube-media-growth/"><u>2024 Approved Top Online Platforms for YouTube Media Growth</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-unlock-youtube-beats-26-favorite-audio-splitters-at-zero-cost/"><u>2024 Approved Unlock YouTube Beats 26 Favorite Audio Splitters at Zero Cost</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/breakthrough-sleep-cycle-enhancement-the-heimvision-sunrise-a80s-alarm-clock-evaluation/"><u>Breakthrough Sleep Cycle Enhancement - The HeimVision Sunrise A80S Alarm Clock Evaluation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/brilliant-illumination-from-large-studiofx-lighting-kit/"><u>Brilliant Illumination From Large StudioFX Lighting Kit</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/classy-contemporary-and-convenient-a-full-evaluation-of-the-flexispot-theodore-adjustable-desk-for-professionals/"><u>Classy, Contemporary & Convenient: A Full Evaluation of the Flexispot Theodore Adjustable Desk for Professionals</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/crafting-musical-bliss-a-comprehensive-overview-of-nest-audio-for-sound-enthusiasts/"><u>Crafting Musical Bliss: A Comprehensive Overview of Nest Audio for Sound Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/dbpowers-ultimate-jump-starter-the-600a-with-an-impressive-18000mah-battery-in-depth-analysis/"><u>DBPower's Ultimate Jump Starter: The 600A with an Impressive 18,000mAh Battery - In-Depth Analysis</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/extracting-files-made-easy-a-windows-users-walkthrough-by-yl-software-experts/"><u>Extracting Files Made Easy: A Windows User's Walkthrough by YL Software Experts</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-itel-p55-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Itel P55 phone? | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/swift-remedies-for-the-delayed-folder-upload-issue-onedrive-errors/"><u>Swift Remedies for the Delayed Folder Upload Issue: OneDrive Errors</u></a></li>
 </ul></div>
 

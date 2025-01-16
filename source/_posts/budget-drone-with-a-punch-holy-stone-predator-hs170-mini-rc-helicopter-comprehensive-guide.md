@@ -1,7 +1,7 @@
 ---
 title: "Budget Drone with a Punch: Holy Stone Predator HS170 Mini RC Helicopter Comprehensive Guide"
-date: 2025-01-05T00:11:47.460Z
-updated: 2025-01-09T16:25:12.911Z
+date: 2025-01-15T00:33:09.844Z
+updated: 2025-01-16T05:10:44.888Z
 categories:
   - BestProducts
 description: "This Article Describes Budget Drone with a Punch: Holy Stone Predator HS170 Mini RC Helicopter Comprehensive Guide"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/280259a94399ccf1b5e6712c32ed577ed325bfc9a
 ## Acer Aspire E 15
 
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/c79DXaJ-n7yWNexbj5-KwdH2TP0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1lW4043278-Acer-Aspire-5-c1e432cd86444d3a9d55eb391bdffb0b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -76,10 +80,14 @@ Lifewire / Jeremy Laukkonen
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/urRsU5n3D2A-nzQe6NGdQgrDGwM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1lW4043278-Acer-Aspire-2-4cb96f03e4c748a583d14f0c8c9224dc.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: A decent plastic case, but not exactly a premium look**
 
@@ -92,10 +100,6 @@ Lifewire / Jeremy Laukkonen
 Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  The keyboard is roomy and comfortable and the keys feel sharp and springy. The trackpad is massive and responsive, but it doesn’t feel as robust as the keyboard. The left and right buttons are incorporated into the main body of the trackpad, and they have far too much give—if we pressed down with more than the absolute minimum necessary force, it felt like the trackpad might collapse.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process:** **A ton of bloatware to remove**
 
@@ -114,7 +118,7 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
  The display has decent viewing angles and great contrast, but the colors are a bit washed out. It’s fine for watching videos on YouTube and Netflix—and DVDs, of course—but it wouldn’t be our first choice for movie night. It’s definitely a display that’s best suited for work, with media and gaming as afterthoughts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Outperforms the competition, but suffers from a slow HDD**
@@ -139,10 +143,6 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  The takeaway is that we absolutely wouldn’t recommend buying this laptop for the purpose of playing games, but it is capable of rising to the task if you’re willing to lower the settings and stick to older games.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Productivity: Gets the job done at work, home, or on the go**
 
  The Aspire E 15 is designed with productivity in mind. While we found that it was capable of some light gaming, it’s definitely intended for students and people who need a basic[business laptop](https://www.lifewire.com/best-laptops-to-buy-4043650) .
@@ -153,19 +153,11 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Audio: Decent speakers, but no bass response**
 
  The speakers are decent enough, but the audio quality is still one of the Aspire E 15’s weaker points. They just don’t get all that loud, and when we did crank the volume all the way up, we noticed a bit of distortion in some frequency ranges. There isn’t a whole lot of bass, either, so everything sounds a little tinny—and that only gets worse at louder volumes.
 
  Strangely enough, the audio is actually louder and clearer when the[laptop](https://www.lifewire.com/14-16-inch-laptops-833846) is sitting on a flat surface. It seems like there is a lot of sound escaping from the vents as well as through the actual speaker grills, and placing it on a solid surface seems to improve the audio quality.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Network: Great speeds on both 5 GHz and 2.4 GHz networks**
 
@@ -179,6 +171,10 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  The included webcam is capable of capturing 720p video, and while it works well enough for basic video calls on Skype or Discord, it may not be up to the standards necessary for professional video conferencing. It also takes grainy still images, although that may not be a huge concern unless you really need to take[photos](https://www.lifewire.com/best-laptops-to-buy-4043650) with your webcam for some reason.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery: Fantastic battery life that goes all day**
 
  The battery in the Aspire E 15 is exceptional, especially compared to the mediocre offerings found in similarly-priced competitors. Acer advertises a 12-hour battery life, and we found that to be a pretty accurate claim.
@@ -189,11 +185,19 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  In a category where a lot of competing devices die out after four or five hours, that’s pretty remarkable.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: Bogged down by bloatware**
 
  The Acer Aspire E 15 comes with Windows 10, some basic Windows apps, and a free trial of[Microsoft 365](https://www.lifewire.com/how-to-install-office-365-4589808) . It also comes with a whole bunch of bloatware from Acer, Netflix, Evernote, an outdated version of Firefox, and several games you probably won’t want or need.
 
  If you’re a Firefox user, it might be nice to have that already downloaded (just remember to update it immediately). But the rest of this bloatware is most likely going to be an annoyance that needs to get uninstalled.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Extremely competitive pricing**
 
@@ -214,10 +218,6 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
  **Worth buying (and spending extra for the upgraded version if you can).**
 
  The Acer Aspire E 15 hits almost all the right notes while keeping the price way, way down. If you have a little room in your budget, it’s worth investing in the more expensive configuration of this laptop, which comes with a discrete NVIDIA graphics card for gaming, extra RAM, and a speedy SSD.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -254,22 +254,22 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-tailoring-soundtracks-for-impact-in-canva-videos/"><u>[New] 2024 Approved Tailoring Soundtracks for Impact in Canva Videos</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-the-ultimate-guide-to-turning-fb-videos-into-audible-mp3s/"><u>2024 Approved The Ultimate Guide to Turning Fb Videos Into Audible MP3s</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-honor-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Honor</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/beyond-expectations-an-in-depth-review-of-motorolas-stellar-mid-range-device-the-one-hyper/"><u>Beyond Expectations: An In-Depth Review of Motorola's Stellar Mid-Range Device, The One Hyper</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-dreame-bot-l10-pro-the-smart-mopping-and-vacuuming-robot/"><u>Comprehensive Review of the Dreame Bot L10 Pro: The Smart Mopping and Vacuuming Robot</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/cost-vs-benefit-of-replacing-apple-device-batteries/"><u>Cost Vs. Benefit of Replacing Apple Device Batteries</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/cutting-edge-psd-drop-shadows/"><u>Cutting-Edge PSD Drop Shadows</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/d-links-pl-2000-powerline-solution-evaluation-user-friendly-setup-lightning-fast-data-sharing/"><u>D-Link's PL 2000 Powerline Solution Evaluation - User-Friendly Setup, Lightning-Fast Data Sharing</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/decoding-the-advantages-of-applecare-plus-extended-coverage/"><u>Decoding the Advantages of AppleCare Plus Extended Coverage</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-the-powerful-capabilities-inside-the-samsung-galaxy-tab-s5e-a-detailed-overview/"><u>Discover the Powerful Capabilities Inside the Samsung Galaxy Tab S5e – A Detailed Overview</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722957437025-download-perfected-wi-fi-card-drivers-for-seamless-internet-experience/"><u>Download Perfected Wi-Fi Card Drivers for Seamless Internet Experience!</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/elevating-effects-a-tiktok-guide/"><u>Elevating Effects A TikTok Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/eliminators-last-stand-a-critical-review-of-hitman-3/"><u>Eliminator's Last Stand: A Critical Review of Hitman 3</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/essential-criteria-to-assess-while-shopping-for-your-ideal-exercise-bands/"><u>Essential Criteria to Assess While Shopping for Your Ideal Exercise Bands</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-t2x-5g-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Vivo T2x 5G Phone Without Password?</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-infinix-hot-40i-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Infinix Hot 40i FRP</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ltimate-guide-to-refining-your-youtube-videos-after-publishing/"><u>The Ultimate Guide to Refining Your YouTube Videos After Publishing</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-subscription-made-simple-building-a-user-friendly-button-for-channels/"><u>[New] 2024 Approved Subscription Made Simple Building a User-Friendly Button for Channels</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-prime-mkv-deck-for-pcandroid-users/"><u>[New] In 2024, Prime MKV Deck for PC/Android Users</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-expedited-guide-to-distinguishing-genuine-followers-on-instagram-for-2024/"><u>[Updated] Expedited Guide to Distinguishing Genuine Followers on Instagram for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-mastering-fading-techniques-for-less-intensity-in-logic-pro-tracks/"><u>[Updated] Mastering Fading Techniques for Less Intensity in Logic Pro Tracks</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-poco-c50-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Poco C50?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ensuring-your-furry-friends-well-being-with-the-secure-automated-petsafe-feeder/"><u>Ensuring Your Furry Friend’s Well-Being with the Secure, Automated PetSafe Feeder</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/exacting-speech-recognition-via-googles-precision-tools/"><u>Exacting Speech Recognition via Google's Precision Tools</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/explore-googles-critical-reviews-of-battery-operated-nest-doorbell-devices/"><u>Explore Google's Critical Reviews of Battery Operated Nest Doorbell Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/garmin-forerunner-745-review/"><u>Garmin Forerunner 745 Review</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-investigating-whether-sns-hdr-offers-superior-ux/"><u>In 2024, Investigating Whether SNS HDR Offers Superior UX</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-activity-watches-for-health-enthusiasts-2024s-picks/"><u>Leading Activity Watches for Health Enthusiasts: 2024'S Picks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lg-k51-phone-analysis-stunning-design-vs-sluggish-performance/"><u>LG K51 Phone Analysis: Stunning Design Vs. Sluggish Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-the-stars-with-offworld-trading-company-a-critical-guide-to-dominating-intergalactic-commerce/"><u>Navigating the Stars with Offworld Trading Company: A Critical Guide to Dominating Intergalactic Commerce</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-and-insights-on-taotronics-trendy-tt-dl16-led-lampsphere/"><u>Review and Insights on TaoTronics' Trendy TT-DL16 LED Lampsphere</u></a></li>
+<li><a href="https://howto.techidaily.com/tecno-spark-20c-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Tecno Spark 20C Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-definitive-verdict-on-apple-iphone-xs-max-a-blend-of-luxury-and-performance/"><u>The Definitive Verdict on Apple iPhone XS Max: A Blend of Luxury and Performance</u></a></li>
+<li><a href="https://fox-where.techidaily.com/traditional-japan-inspired-desktop-wallpaper-collection-by-yl-software/"><u>Traditional Japan-Inspired Desktop Wallpaper Collection by YL Software</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Navigating the Stars with Offworld Trading Company: A Critical Guide to Dominating Intergalactic Commerce"
-date: 2025-01-06T01:43:06.704Z
-updated: 2025-01-10T15:42:13.177Z
+date: 2025-01-11T18:22:48.204Z
+updated: 2025-01-16T01:45:05.457Z
 categories:
   - BestProducts
 description: "This Article Describes Navigating the Stars with Offworld Trading Company: A Critical Guide to Dominating Intergalactic Commerce"
@@ -14,12 +14,16 @@ thumbnail: https://thmb.techidaily.com/b9ef13db0d4015b8f432338d38cc3c79dffc2187f
 2.7
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/HYgHMUDMFh7JI98Hj0JMbI2wcpw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -40,13 +44,13 @@ Lifewire / Kelsey Simon
 
 2.7
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -65,10 +69,6 @@ Lifewire / Kelsey Simon
 * [Specs](https://www.lifewire.com/#toc-full-spec)
 
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
@@ -89,10 +89,6 @@ Lifewire / Kelsey Simon
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -118,10 +114,6 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Only worth it if you’re keen on the story**
 
  Torment: Tides of Numenera is still an expensive game, costing $50 on[Steam](https://www.lifewire.com/best-free-steam-games-4176308) when it’s not on sale. It’s a game created with a very specific type of player in mind―and I suspect most people are not going to like it.
@@ -129,6 +121,10 @@ Lifewire / Kelsey Simon
  That said, if role-playing games with a text-heavy focus are of interest to you, then the game does have a lot to offer for the cost. The world of Numenera is vast, and considering all the prompts that alter the story, the game also has a lot of replayability. While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else, and for those players, the $50 cost will be worth it.
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Other story focused RPGs**
 
@@ -141,6 +137,10 @@ Lifewire / Kelsey Simon
  **A text-heavy RPG that doesn’t live up to its predecessor.**
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -165,24 +165,17 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-ipados-masterpieces-best-pencil-programs/"><u>[New] 2024 Approved IPadOS Masterpieces Best Pencil Programs</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-channel-branding-made-simple-and-free/"><u>[Updated] Channel Branding Made Simple & Free</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-crafting-your-professional-space-setting-up-an-account-on-ig-for-2024/"><u>[Updated] Crafting Your Professional Space Setting Up an Account on IG for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-pristine-palette-aligner/"><u>2024 Approved Pristine Palette Aligner</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-evaluation-of-the-new-apple-watch-series-9-a-comprehensive-guide/"><u>Expert Evaluation of the New Apple Watch Series 9: A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-roundup-leading-the-pack-a-critical-look-at-2024s-most-impressive-17-notebook-computers/"><u>Expert Roundup: Leading the Pack - A Critical Look at 2024'S Most Impressive 17 Notebook Computers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/final-act-of-hitman-series-examined-stellar-finish/"><u>Final Act of Hitman Series Examined: Stellar Finish</u></a></li>
-<li><a href="https://win-dash.techidaily.com/hassle-free-hp-auditory-devices-configuration-with-free-drivers/"><u>Hassle-Free HP Auditory Devices Configuration with Free Drivers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/hero9-review-superb-imaging-at-a-steep-price/"><u>HERO9 Review - Superb Imaging at a Steep Price</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/high-end-softbox-lighting-systems-reviewed-2024/"><u>High-End Softbox Lighting Systems Reviewed 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-the-value-packed-fitbit-versa-stacks-up-an-in-depth-review-for-savvy-shoppers/"><u>How the Value-Packed Fitbit Versa Stacks Up: An In-Depth Review for Savvy Shoppers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/hunt-for-amazing-prime-day-bargains-score-apple-deals/"><u>Hunt for Amazing Prime Day Bargains – Score Apple Deals</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-meditative-tunes-compilation-top-10-legal-streams/"><u>In 2024, Meditative Tunes Compilation - Top 10 Legal Streams</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-kootek-laptop-chiller-analysis-the-ultimate-heat-dispeller/"><u>In-Depth Kootek Laptop Chiller Analysis: The Ultimate Heat Dispeller</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-lenovo-ideapad-robust-design-meets-simple-performance/"><u>In-Depth Look at the Lenovo Ideapad: Robust Design Meets Simple Performance</u></a></li>
-<li><a href="https://article-files.techidaily.com/innovative-auditory-transitions-with-logic-pro-x/"><u>Innovative Auditory Transitions with Logic Pro X</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/jumpstart-your-photo-editing-skills-with-these-must-have-pixlr-tips-for-2024/"><u>Jumpstart Your Photo-Editing Skills with These Must-Have Pixlr Tips for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/mastering-the-fix-what-to-do-when-your-fortnite-entry-point-is-missing/"><u>Mastering the Fix: What to Do When Your Fortnite Entry Point Is Missing</u></a></li>
-<li><a href="https://program-issues.techidaily.com/practices-like-crop-rotation-intercropping-organic-amendments-and-biological-pest-control-decrease-reliance-on-chemical-fertilizers-and-pesticides-while-pro446/"><u>Practices Like Crop Rotation, Intercropping, Organic Amendments, and Biological Pest Control Decrease Reliance on Chemical Fertilizers and Pesticides While Promoting Natural Soil Fertility and Plant Health</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-engaging-content-creation-videography-tips-in-education/"><u>[New] In 2024, Engaging Content Creation Videography Tips in Education</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-mastering-photography-with-nikon-d7500/"><u>[Updated] 2024 Approved Mastering Photography with Nikon D7500</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-profitable-streaming-start-top-8-income-strategies/"><u>[Updated] 2024 Approved Profitable Streaming Start Top 8 Income Strategies</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-demystifying-ps4s-capture-features-a-comprehensive-walkthrough-for-2024/"><u>[Updated] Demystifying PS4's Capture Features A Comprehensive Walkthrough for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-gain-massive-audience-on-youtube-in-minutes-2-ways/"><u>[Updated] In 2024, Gain Massive Audience on YouTube in Minutes (2 Ways)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/enter-new-realms-hot-list-of-vr-peripherals-top-10/"><u>Enter New Realms Hot List of VR Peripherals (Top 10)</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-itel-a60-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Itel A60 to New Android? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-oled-televisions-a-comprehensive-guide/"><u>Top Rated OLED Televisions : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-solar-garden-lights-an-ultimate-guide/"><u>Top Rated Solar Garden Lights : An Ultimate Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-smartphone-stabilizers-in-2o24/"><u>Top-Rated Smartphone Stabilizers in 2O24</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-television-sets-a-buyers-guide/"><u>Top-Rated Television Sets : A Buyer's Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-wireless-charging-pads/"><u>Top-Rated Wireless Charging Pads</u></a></li>
 </ul></div>
 

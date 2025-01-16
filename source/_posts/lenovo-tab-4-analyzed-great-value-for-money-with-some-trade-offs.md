@@ -1,7 +1,7 @@
 ---
 title: "Lenovo Tab 4 Analyzed: Great Value for Money with Some Trade-Offs"
-date: 2025-01-09T15:46:38.912Z
-updated: 2025-01-10T10:03:10.106Z
+date: 2025-01-12T06:32:54.050Z
+updated: 2025-01-15T20:54:56.024Z
 categories:
   - BestProducts
 description: "This Article Describes Lenovo Tab 4 Analyzed: Great Value for Money with Some Trade-Offs"
@@ -75,6 +75,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -92,7 +96,7 @@ Lifewire / Andy Zahn
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Battery life: No worries**
@@ -102,7 +106,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
@@ -138,7 +142,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Modes: Plenty to choose from (and only some are useful)**
@@ -155,10 +159,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Video Quality: A mixed bag**
 
  The SX70 HS fumbles a bit when it comes to video. It’s no slouch by any means, but the footage is nothing to brag about. You can record up to 4K resolution, but unfortunately, the camera has to crop in to record at this resolution. Also, we found that footage is never especially sharp compared to other cameras.
@@ -173,6 +173,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -183,15 +187,15 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Big brand, big price tag**
 
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
 
@@ -208,10 +212,6 @@ Lifewire / Andy Zahn
  **A tremendously fun camera that is exceedingly well-rounded if a bit pricey.**
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -253,19 +253,21 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-unlocking-high-profile-discussions/"><u>[New] In 2024, Unlocking High-Profile Discussions</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-skaldic-epic-odins-final-stand-for-2024/"><u>[New] Skaldic Epic Odin's Final Stand for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-essential-mac-screen-capturing-substitutes-for-bandicam/"><u>2024 Approved Essential Mac Screen Capturing Substitutes for Bandicam</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Xiaomi 13T | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-oppo-a18-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Oppo A18 | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721478417958-solutions-for-accessing-texts-and-calls-during-ios-do-not-disturb-settings-top-8-tips/"><u>Solutions for Accessing Texts and Calls During iOS Do Not Disturb Settings - Top 8 Tips!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-portable-powerhouse-uncovering-the-hidden-value-of-sandisks-player/"><u>The Portable Powerhouse: Uncovering the Hidden Value of SanDisk's Player</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-aukey-usb-30-hub-a-blend-of-style-and-speed-reviewed/"><u>The Ultimate Guide to the Aukey USB 3.0 Hub – A Blend of Style & Speed Reviewed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-review-for-chargetechs-long-lasting-27000mah-battery-solution/"><u>Top Review for ChargeTech's Long-Lasting 27000mAh Battery Solution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-havit-5-pc-desktop-tower-with-rgb-lighting-expert-analysis-and-performance-insights/"><u>Ultimate HAVIT #5 PC Desktop Tower with RGB Lighting - Expert Analysis and Performance Insights</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unbeatable-prime-day-offers-on-benq-monitors-and-projector-technology/"><u>Unbeatable Prime Day Offers on BenQ Monitors and Projector Technology</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unleash-the-power-of-nature-on-your-screen-the-durable-55-inch-veranda-tv-by-sunbrite/"><u>Unleash the Power of Nature on Your Screen - The Durable 55-Inch Veranda TV by SunBrite</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-how-to-download-videoleap-on-macbook-for-2024/"><u>Updated How to Download Videoleap on MacBook for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/youtube-crafting-made-easy-with-free-templates-for-2024/"><u>YouTube Crafting Made Easy with FREE Templates for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-top-20-free-footage-sites-a-comprehensively-curated-list/"><u>[New] Top 20 Free Footage Sites A Comprehensively Curated List</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-no-cost-mp3-creation-10-youtube-transformers-explained/"><u>[Updated] No-Cost MP3 Creation 10 YouTube Transformers Explained</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-unlock-the-secrets-of-slow-motion-expert-advice-using-photo-apps-and-websites-for-2024/"><u>[Updated] Unlock the Secrets of Slow Motion Expert Advice Using Photo Apps & Websites for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-chill-vibes-current-hits-to-match-your-yt-short-tunes/"><u>2024 Approved Chill Vibes Current Hits to Match Your YT Short Tunes</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-vivid-8-enhancements-to-transform-your-live-footage/"><u>In 2024, Vivid 8 Enhancements to Transform Your Live Footage</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-tp-link-archer-c8e-sub-100-wireless-router-with-impressive-speed/"><u>In Depth Analysis of the TP-Link Archer C8e - Sub $100 Wireless Router with Impressive Speed!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-googles-new-second-gen-nest-hub-functionality-and-features-without-the-need-for-cameras/"><u>In-Depth Analysis of Google's New Second Gen Nest Hub - Functionality and Features Without the Need for Cameras</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-stylishly-smart-samsung-galaxy-timepiece/"><u>In-Depth Analysis of the Stylishly Smart Samsung Galaxy Timepiece</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-of-pioneer-bdr-xd05b-blu-ray-player-identifying-key-design-flaws/"><u>In-Depth Evaluation of Pioneer BDR-XD05B Blu-Ray Player - Identifying Key Design Flaws</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-of-the-mavix-m9-gaming-chair-for-long-gaming-sessions/"><u>In-Depth Evaluation of the Mavix M9 Gaming Chair for Long Gaming Sessions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-external-dvdcd-drives-reviewed-find-the-ideal-device-today/"><u>Leading External DVD/CD Drives Reviewed : Find the Ideal Device Today!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-wi-fi-range-amplifiers-reviewed-2024-edition/"><u>Leading Wi-Fi Range Amplifiers Reviewed: 2024 Edition</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-11-creative-gpt-inquiries-to-shape-your-storys-characters/"><u>Top 11 Creative GPT Inquiries to Shape Your Story's Characters</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/top-free-win11-dvd-ripper-tools-of-2023-complete-guide-and-download/"><u>Top Free Win11 DVD Ripper Tools of 2023: Complete Guide & Download</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-how-to-restore-functionality-on-a-malfunctioning-dell-keyboardmouse/"><u>Troubleshooting Guide: How To Restore Functionality on a Malfunctioning Dell Keyboard/Mouse</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-mastering-melody-match-identifying-tunes-on-your-iphone-devices/"><u>Updated In 2024, Mastering Melody Match Identifying Tunes on Your iPhone Devices</u></a></li>
 </ul></div>
 

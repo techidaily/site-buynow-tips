@@ -1,7 +1,7 @@
 ---
 title: Experience Enhanced Comfort at Your Desk - An In-Depth Look at the Ergohead Mat
-date: 2024-08-09T00:56:16.748Z
-updated: 2024-08-10T00:56:16.748Z
+date: 2025-01-12T07:45:43.588Z
+updated: 2025-01-16T01:32:37.425Z
 categories:
   - BestProducts
 description: This Article Describes Experience Enhanced Comfort at Your Desk - An In-Depth Look at the Ergohead Mat
@@ -14,8 +14,9 @@ thumbnail: https://www.lifewire.com/thmb/l3lcZFoyS_6034_LA-RAW0vz2ME=/400x300/fi
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## M MOOCK Car Jump Starter
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/KCvyWCCSvwCtAvcRekce_ETLqRE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
@@ -42,16 +43,13 @@ thumbnail: https://www.lifewire.com/thmb/l3lcZFoyS_6034_LA-RAW0vz2ME=/400x300/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ## M MOOCK Car Jump Starter
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/9HsjvcJhUjJuGMXLaAGh2B_0bAw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -88,9 +86,6 @@ thumbnail: https://www.lifewire.com/thmb/l3lcZFoyS_6034_LA-RAW0vz2ME=/400x300/fi
 
  The accessory kit that comes with the unit is full-bodied. The main piece is the jump starter module which has the two jumper clamps coming off a plastic module that plugs into the unit. To charge the unit you can choose to use either a wall charger for home use or a power port charger for use within a running vehicle. Finally, a set of laptop port adapters and a short DC cable to use with them can be used to[charge your laptop](https://www.lifewire.com/overcharging-laptop-battery-causes-life-span-to-decrease-2378126) or similar device.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process: It takes time to find a spot just right to set up for a jump**
 
  Positioning the MOOCK to jump start a car is a little more difficult than it needs to be. Plugging the jumper cable module into the unit and turning it on is the easy part. Due to the short length of the cables, however, it's difficult to get them connected while also keeping the unit secure in the engine bay. Thankfully once you find that Goldilocks spot, the terminal clamps are on the small side and easy to attach, even if the area around the clamping location is cramped.
@@ -100,8 +95,9 @@ thumbnail: https://www.lifewire.com/thmb/l3lcZFoyS_6034_LA-RAW0vz2ME=/400x300/fi
  To charge other devices there’s a lot less fuss involved. You simply need to plug the device into the USB or DC power port and turn the unit on. A Micro USB cable is provided, so if you have a device that uses a more modern charging port, you'll want to put an extra cable for it in the MOOCK case as well.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: A nice jolt of power to start even the most drained of vehicles**
 
  Assuming you’ve carefully placed the M MOOCK in a spot where it can securely clamp onto the battery yet not fall out of the engine bay, you’ll find that the unit does a good job of jump starting a car. The test vehicle had a battery depleted down to 10V, and while the vehicle did momentarily struggle to start initially, it started just fine after double-checking the connections. It’s hard to say if that initial struggle was due to the unit’s relatively lower start and peak output currents, or if it truly just boiled down to a connectivity issue.
@@ -111,6 +107,10 @@ An inexpensive option considering what it can do.
  Plug a phone into the 5V/2A USB port and you’ll find that it delivers a charge rate of 1,200mAh, fast enough to rapidly top off even the thirstiest phones. For example, the Samsung Galaxy S10 would charge it from fully depleted to full in just over three hours. With the unit’s 18,000mAh capacity you could, in theory, do that repeatedly, but it's recommended to leave at least 50 percent of the unit’s battery for jump starts.
 
 Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Key Features: A bright flashlight, but in a decidedly narrow band**
 
@@ -141,9 +141,9 @@ A good choice with just a few nagging flaws.
  The M Moock 1000A Peak 18000mAh Car Jump Starter is a surprisingly solid choice in jump starters. It has few glaring flaws, and the ones that it does have (like the short cables) just make it marginally more difficult to use, as opposed to being true deal breakers. That said, there are other units available on the market that share some or all the same features but have fewer drawbacks. Overall, the unit's successful but flawed, yet very reliable when you need it most.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Car Jump Starter
@@ -165,11 +165,33 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-apeak-recorder-reviewed-speed-quality-and-ease-of-use-scored-for-2024/"><u>[New] Apeak Recorder Reviewed Speed, Quality, and Ease of Use Scored for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-broadcasting-innovations-combining-tv-and-social-media/"><u>[New] In 2024, Broadcasting Innovations Combining TV & Social Media</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-navigating-through-iphones-persistent-photo-blur/"><u>[New] In 2024, Navigating Through iPhone's Persistent Photo Blur</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-revolutionize-design-with-the-top-tier-plugins-for-ae/"><u>[Updated] Revolutionize Design with the Top-Tier Plugins for AE</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-master-techniques-for-live-sport-broadcast-recording/"><u>2024 Approved Master Techniques for Live Sport Broadcast Recording</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-premium-sound-with-beehive-earbuds/"><u>Affordable, Premium Sound with BeeHive Earbuds</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apex-review-the-dji-mavic-2-pro-unmatched-royalty-of-professional-drone-flight/"><u>Apex Review: The DJI Mavic 2 Pro - Unmatched Royalty of Professional Drone Flight</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/cutting-edge-recording-win-11s-superior-camcorders-for-2024/"><u>Cutting-Edge Recording Win 11'S Superior Camcorders for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/economical-luxe-illumination-with-studiokitxz/"><u>Economical Luxe Illumination with StudioKitXZ</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/getting-started-with-the-latest-blink-outdoor-floodlight-camera-your-complete-guide-for-ultimate-security-and-peace-of-mind/"><u>Getting Started with the Latest Blink Outdoor Floodlight Camera - Your Complete Guide for Ultimate Security & Peace of Mind</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-for-removing-personal-security-pins-from-your-windows-10-device/"><u>How-To for Removing Personal Security PINs From Your Windows 10 Device</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-comical-calls-leading-platforms-for-laugh-rings/"><u>In 2024, Comical Calls Leading Platforms for Laugh-Rings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-acer-chromebook-r-11-fashionable-and-featherlight-tech/"><u>In-Depth Analysis of the Acer Chromebook R 11 - Fashionable & Featherlight Tech</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/in-depth-chipolo-one-assessment-a-solidly-dependable-bluetooth-tracking-device/"><u>In-Depth Chipolo One Assessment: A Solidly Dependable Bluetooth Tracking Device</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-evaluation-of-the-mobvoi-ticwatch-pro-3-advanced-gps-tracking-and-extended-life-from-dual-display-technology/"><u>In-Depth Evaluation of the Mobvoi TicWatch Pro 3: Advanced GPS Tracking and Extended Life From Dual Display Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-the-charge-a-guide-to-the-most-outstanding-game-systems-of-2econd-quarter-century/"><u>Leading the Charge: A Guide to the Most Outstanding Game Systems of 2Econd Quarter-Century</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/leverage-cookiebot-technology-for-enhanced-web-analytics-and-seo-success/"><u>Leverage Cookiebot Technology for Enhanced Web Analytics and SEO Success</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/master-builders-rejoice-in-depth-analysis-of-the-captivating-city-planner-game/"><u>Master Builders Rejoice: In-Depth Analysis of the Captivating City Planner Game</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/pioneering-photo-printing-websites-top-10-to-watch/"><u>Pioneering Photo Printing Websites: Top 10 to Watch</u></a></li>
+</ul></div>
+

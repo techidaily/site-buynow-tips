@@ -1,7 +1,7 @@
 ---
 title: Get Free, Crisp TV Channels with AmazonBasics' Flat Antenna – The Savvy Shopper’s Guide
-date: 2025-01-05T06:18:42.467Z
-updated: 2025-01-09T18:46:01.916Z
+date: 2025-01-11T00:25:19.348Z
+updated: 2025-01-16T06:42:29.508Z
 categories:
   - BestProducts
 description: This Article Describes Get Free, Crisp TV Channels with AmazonBasics' Flat Antenna – The Savvy Shopper’s Guide
@@ -16,10 +16,6 @@ thumbnail: https://thmb.techidaily.com/f8ecdc6c33144a8756139b14ccc37972ba5fac512
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/rS-RQyeAxU8gdzYheTg1qi5PFEY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -40,10 +36,6 @@ Lifewire / Erika Rawes
 [View On Amazon](https://www.amazon.com/dp/B075ZQXB26/?tag=lifewire-onsite-prod-20&ascsubtag=4845569%7Cn4bcb8b1996c24cd3b14f62e195599b0615%7CB075ZQXB26)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## AmazonBasics Ultra-Thin Antenna
 
@@ -90,6 +82,10 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Almost two dozen channels (in a rural area)**
 
  So many things[affect an antenna’s performance](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) —location, household electronics, tree cover, tower location, and more. The antenna displays channels of high quality. However, sometimes the channels would take a few seconds to load, and other times, I’d see a pixelated effect when I first changed the channel that would clear up after a few seconds. Once the picture was fully loaded, it was in clear high definition. The antenna is capable of displaying a clear HD picture, so I couldn’t tell the difference between the antenna’s picture and the picture from streaming services like Hulu or Netflix.
@@ -97,13 +93,13 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Range: 35 miles**
@@ -114,6 +110,10 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
@@ -121,10 +121,6 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
@@ -135,6 +131,10 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -167,22 +167,18 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-how-to-record-gameplay-using-fbx-game-recorder/"><u>[Updated] In 2024, How To Record Gameplay Using FBX Game Recorder</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-iphone-tips-free-techniques-to-incorporate-music-in-video-projects/"><u>2024 Approved IPhone Tips Free Techniques to Incorporate Music in Video Projects</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-streaming-showdown-which-superior-broadcaster-tool-are-you/"><u>2024 Approved Streaming Showdown Which Superior Broadcaster Tool Are You?</u></a></li>
-<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-oppo-a59-5g-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Oppo A59 5G Location Settings | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/efficient-methods-to-rectify-server-stumbled-issues-on-windows/"><u>Efficient Methods to Rectify Server Stumbled Issues on Windows</u></a></li>
-<li><a href="https://os-tips.techidaily.com/how-to-resolve-an-apple-watch-displaying-the-apple-logo-instead-of-boot-up-screen/"><u>How to Resolve an Apple Watch Displaying the Apple Logo Instead of Boot-Up Screen</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Sony Xperia 1 V? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Oppo K11x? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-pixel-slate-assessment-navigating-through-chrome-os-chaos/"><u>In-Depth Pixel Slate Assessment: Navigating Through Chrome OS Chaos</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/inside-look-at-the-amazon-fire-hd-10-for-kids-exceptional-content-filtering-and-supervision-tools/"><u>Inside Look at the Amazon Fire HD 10 for Kids: Exceptional Content Filtering and Supervision Tools</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/inside-the-world-of-garmin-venu-an-in-depth-look-at-your-247-partner-for-fitness-and-health-insights/"><u>Inside the World of Garmin Venu: An In-Depth Look at Your 24/7 Partner for Fitness and Health Insights</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-17-inch-laptop-reviews-and-picks-for-the-year-2024/"><u>Leading 17-Inch Laptop Reviews and Picks for the Year 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lenovos-2020-tablet-triumph-the-tab-m10-fhd-plus-delivers-high-end-displays-on-a-budget/"><u>Lenovo's 2020 Tablet Triumph: The Tab M10 FHD Plus Delivers High-End Displays on a Budget</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maisto-remote-control-rock-crawler-evaluation-an-all-age-suitable-rc-vehicle/"><u>Maisto Remote Control Rock Crawler Evaluation: An All-Age Suitable RC Vehicle</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/master-the-art-of-creating-and-programming-a-comprehensive-look-at-the-innovative-makeblock-mbot-diy-robotic-kit/"><u>Master the Art of Creating & Programming: A Comprehensive Look at the Innovative Makeblock mBot DIY Robotic Kit</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/melodic-mobile-alerts-download-classical-ringtones-here-for-2024/"><u>Melodic Mobile Alerts Download Classical Ringtones Here for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mohu-blade-tv-latch-review-distinct-design-features-for-optimal-inside-broadcast-performance/"><u>Mohu Blade TV Latch Review: Distinct Design Features for Optimal Inside Broadcast Performance</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-graphic-gaze-decoding-youtubes-factful-17-narrative-for-2024/"><u>[New] The Graphic Gaze Decoding YouTube's Factful '17 Narrative for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-how-to-unleash-funimate-with-apk-on-your-phone-for-2024/"><u>[Updated] How to Unleash Funimate with APK on Your Phone for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ion-tailgater-plus-user-guide-immerse-in-continuous-low-end-beats-effortlessly/"><u>ION Tailgater Plus User Guide: Immerse in Continuous Low-End Beats Effortlessly</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/key-factors-to-assess-when-purchasing-an-unlockable-mobile-device/"><u>Key Factors To Assess When Purchasing An Unlockable Mobile Device</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lenovo-yoga-9i-analysis-striking-the-balance-between-large-display-and-mobility/"><u>Lenovo Yoga 9I Analysis - Striking the Balance Between Large Display and Mobility</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lg-gram-17-takes-laptop-game-by-storm-a-detailed-look-at-this-ultra-lightweight-high-performing-device/"><u>LG Gram 17 Takes Laptop Game by Storm: A Detailed Look at This Ultra-Lightweight, High-Performing Device.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mars-encounter-brings-urban-planning-chaos-igniting-blustery-excitement-and-joyful-fun/"><u>Mars Encounter Brings Urban Planning Chaos, Igniting Blustery Excitement and Joyful Fun</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/next-gen-android-headphones-samsungs-buds-pro/"><u>Next-Gen Android Headphones: Samsung's Buds Pro</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/sculpting-your-online-presence-with-top-niche-creators/"><u>Sculpting Your Online Presence with Top Niche Creators</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-to-resetting-your-account-key-for-formerly-known-as-twitter/"><u>Step-by-Step Guide to Resetting Your Account Key for Formerly Known as Twitter</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/uncover-the-hidden-in-win11-finding-missing-controls/"><u>Uncover the Hidden in Win11: Finding Missing Controls</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ling-the-leaders-free-top-6-youtube-snackers/"><u>Unveiling the Leaders Free Top 6 YouTube Snackers</u></a></li>
 </ul></div>
 
