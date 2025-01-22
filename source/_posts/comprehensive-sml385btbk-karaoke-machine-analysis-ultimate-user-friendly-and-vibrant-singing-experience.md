@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive SML385BTBK Karaoke Machine Analysis: Ultimate User-Friendly & Vibrant Singing Experience"
-date: 2025-01-11T18:08:50.702Z
-updated: 2025-01-16T04:25:23.105Z
+date: 2025-01-20T03:23:23.493Z
+updated: 2025-01-21T17:35:30.557Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive SML385BTBK Karaoke Machine Analysis: Ultimate User-Friendly & Vibrant Singing Experience"
@@ -37,12 +37,16 @@ Lifewire / Kelsey Simon
 2.7
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -68,6 +72,10 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
  This whole introduction is slow moving and boring, and getting through it is rough. But even past this, things don’t necessarily pick up and get more interesting. The game has such a heavy hand with its narration, telling you the game’s visuals even though you can see them right there on your screen. The whole game reads like someone wrote a novel, couldn’t publish it, and then decided making a[video game](https://www.lifewire.com/best-gaming-consoles-4154610) was a better idea, and instead of trimming the fat, they left every unnecessary description and detail in the game’s prompt.
@@ -76,15 +84,15 @@ Lifewire / Kelsey Simon
 
  You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Gameplay: Dialogue prompts and effort**
 
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -99,10 +107,6 @@ Lifewire / Kelsey Simon
  Overall, this game was a weak attempt at offering players the experience of a novel in[video game](https://www.lifewire.com/game-play-and-streaming-4781449) format. The storytelling is very heavy-handed. The writing is weak and full of repeated telling of things you can easily see on-screen around you. There’s little to no direction about where to go or what exactly you should be doing, and combined with the long paragraphs of text, things becomes boring fast. The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way. It’s just a shame that it gets buried under such heavy, inactive storytelling.
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Graphics: Outdated and simplistic**
 
@@ -123,7 +127,7 @@ Lifewire / Kelsey Simon
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: Other story focused RPGs**
@@ -137,10 +141,6 @@ Lifewire / Kelsey Simon
  **A text-heavy RPG that doesn’t live up to its predecessor.**
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -165,17 +165,19 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-achieve-uninterrupted-youtube-experience-across-os-platforms/"><u>[New] In 2024, Achieve Uninterrupted YouTube Experience Across OS Platforms</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-captivate-audiences-perfecting-snapchats-boomerang-feature/"><u>[Updated] 2024 Approved Captivate Audiences Perfecting Snapchat's Boomerang Feature</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-exploring-mobile-photography-with-android-lightroom-application/"><u>[Updated] 2024 Approved Exploring Mobile Photography with Android Lightroom Application</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-top-30-pro-freefire-hashtags-for-boosting-video-popularity/"><u>[Updated] 2024 Approved Top 30 Pro-FreeFire Hashtags for Boosting Video Popularity</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/becoming-an-exclusive-guest-on-tiktok-live-for-2024/"><u>Becoming an Exclusive Guest on TikTok Live for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-vivo-x100-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Vivo X100 Phones with/without a PC</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-s23-pictures-an-easy-method-explained-by-fonelab-android-recover-pictures/"><u>How to Restore Deleted S23 Pictures An Easy Method Explained.</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/on-the-go-bibliophiles-rejoice-with-kobo-clara-hd-top-portable-e-reader-unveiled/"><u>On-the-Go Bibliophiles Rejoice with Kobo Clara HD - Top Portable E-Reader Unveiled</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/overcooked-2-game-analysis-relishing-pandemonium-in-cooking-frenzy/"><u>Overcooked! 2 Game Analysis: Relishing Pandemonium in Cooking Frenzy</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/prime-position-tripod-essential-for-adventures/"><u>Prime Position Tripod: Essential for Adventures</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/star-wars-squadrons-gameplay-breakdown-a-riveting-journey-through-interstellar-combat/"><u>Star Wars: Squadrons Gameplay Breakdown - A Riveting Journey Through Interstellar Combat</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/swagtron-swagboard-t1-a-step-up-for-fitness-enthusiasts-despite-its-premium-price-point/"><u>Swagtron Swagboard T1 - A Step Up for Fitness Enthusiasts, Despite Its Premium Price Point</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-blend-your-belief-with-mobile-melodies/"><u>[New] Blend Your Belief with Mobile Melodies</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-mastering-iphone-shots-the-ultimate-hdr-guide-for-2024/"><u>[New] Mastering iPhone Shots The Ultimate HDR Guide for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-the-pathway-to-visual-storytelling-through-gifs/"><u>[Updated] 2024 Approved The Pathway to Visual Storytelling Through GIFs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-your-next-great-story-selecting-free-android-editing-tools/"><u>[Updated] 2024 Approved Your Next Great Story Selecting Free Android Editing Tools</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-explore-top-5-apps-combining-photography-and-soundscape/"><u>[Updated] In 2024, Explore Top 5 Apps Combining Photography & Soundscape</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-sony-a6400-why-is-my-video-playback-failed/"><u>[Updated] In 2024, Sony A6400 Why Is My Video Playback Failed?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-realme-narzo-60-5g-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Realme Narzo 60 5G is off? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/eco-friendly-shift-amazon-eliminates-plastic-air-pillows-for-sustainable-wrapping-options/"><u>Eco-Friendly Shift: Amazon Eliminates Plastic Air Pillows for Sustainable Wrapping Options</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/embracing-the-classics-how-i-prefer-retro-gaming-over-modern-titles/"><u>Embracing the Classics: How I Prefer Retro Gaming Over Modern Titles</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/free-or-paid-spotify-evaluating-the-benefits-to-decide-if-premium-membership-is-right-for-you/"><u>Free or Paid Spotify: Evaluating the Benefits to Decide if Premium Membership Is Right for You</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-using-a-keyboard-and-mouse-can-enhance-gaming-experience-on-xboxps5/"><u>How Using a Keyboard and Mouse Can Enhance Gaming Experience on Xbox/PS5</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lg-smart-tv-compatibility-now-available-in-kodi-version-210-omega/"><u>LG Smart TV Compatibility Now Available in Kodi Version 21.0 Omega</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/massive-ticketmaster-incident-personal-details-of-up-to-560-million-users-might-have-been-compromised/"><u>Massive Ticketmaster Incident: Personal Details of Up to 560 Million Users Might Have Been Compromised</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unveiling-7-free-online-services-for-sending-and-receiving-faxes/"><u>Unveiling 7 Free Online Services for Sending and Receiving Faxes</u></a></li>
 </ul></div>
 

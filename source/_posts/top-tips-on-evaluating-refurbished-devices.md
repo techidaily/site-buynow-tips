@@ -1,7 +1,7 @@
 ---
 title: Top Tips on Evaluating Refurbished Devices
-date: 2025-01-11T18:11:51.590Z
-updated: 2025-01-15T17:01:34.643Z
+date: 2025-01-19T04:18:44.550Z
+updated: 2025-01-22T10:22:31.787Z
 categories:
   - BestProducts
 description: This Article Describes Top Tips on Evaluating Refurbished Devices
@@ -12,10 +12,6 @@ thumbnail: https://thmb.techidaily.com/c71f8b11a9475a90b96c899fdeade9228f855c7ed
 ## Breaking Down the Exceptional Capabilities of HERO7 Black
 
 4.3
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## GoPro HERO7 Black
 
@@ -79,10 +75,6 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Classic action camera design**
 
  The GoPro HERO7 Black measures in at 2.4 x 1.3 x 1.8 inches, so it’s super compact and almost a cube. The device is all black with a very nice rubber casing around the unit that makes it feel soft to the touch.
@@ -93,11 +85,19 @@ Lifewire / Jeff Dojillo
 
  While testing the GoPro HERO7 Black we noticed that the body of the device becomes very hot when used for long periods of time. We tested it for a few hours nonstop and noticed it was still very warm even when it was not recording. This can be a big concern if the device is used for long recordings in hot temperatures.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Display: Bright and visible**
 
  The back of the GoPro HERO7 Black has a two-inch touchscreen that is bright and easy to read. While testing the camera, we were able to navigate through the menus with the single touch of a finger, which are intuitive and easy to adjust. Simply tap to select.
 
  Lifewire / Jeff Dojillo
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup: Updates out of the box**
 
@@ -108,7 +108,7 @@ Lifewire / Jeff Dojillo
  Lifewire / Jeff Dojillo
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Sensor: Small but mighty**
@@ -118,10 +118,6 @@ Lifewire / Jeff Dojillo
  We took the GoPro out and recorded some handheld video as we walked around, which would normally have some shake to it. The footage from the HERO7 Black was smooth and it did not contain any camera shake, almost as if we’d been using a gimbal.
 
  It makes your footage impressively stable even when filming handheld or while riding on rough terrain.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Lens: Great for video**
 
@@ -167,11 +163,19 @@ Lifewire / Jeff Dojillo
 
  Inside the app, there are also options to edit mode settings, change the original set up, review camera info, changed Wi-Fi remotes, as well as monitor the battery level and[SD card](https://www.lifewire.com/how-to-format-sd-card-camera-4587017) capacity. It also makes it easier to review footage and images that the camera captures.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery Life: High-res video drains it quickly**
 
  When recording 4K video at 60 fps, the HERO7 Black’s battery only lasts about 50 minutes, so if you’re going to be shooting all day, it would be smart to have a few extra batteries available.
 
  Another option to extend shooting time would be to connect the GoPro HERO7 Black to an external battery pack via the[USB port.](https://www.lifewire.com/what-is-a-usb-port-818166)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Fairly priced for what you get**
 
@@ -182,7 +186,7 @@ Lifewire / Jeff Dojillo
  The portability of the GoPro HERO7 Black is perfect for adventurers, filmmakers, and vloggers that need a rugged and compact camera to create content on the go.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: Less rugged, but better with still photography**
@@ -212,10 +216,6 @@ Lifewire / Jeff Dojillo
 * [AKASO EK7000 Pro 4K Action Camera](https://www.lifewire.com/akaso-ek7000-pro-4k-action-camera-review-4770265)
 * [Canon PowerShot G7 X Mark II](https://www.lifewire.com/canon-powershot-g7-x-mark-ii-review-4706895)
 * [Sony DSC-W800](https://www.lifewire.com/sony-dsc-w800-review-4589510)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -248,19 +248,22 @@ Lifewire / Jeff Dojillo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-essential-guide-unraveling-ios-screen-capture-magic/"><u>[New] In 2024, Essential Guide Unraveling IO's Screen Capture Magic</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-webp-mastery-converting-to-jpeg/"><u>2024 Approved WebP Mastery Converting to JPEG</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-tp-link-re2er-ax6000-wi-fi-signal-booster-evaluation/"><u>Affordable TP-Link RE2er AX6000 Wi-Fi Signal Booster Evaluation</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-sml385btbk-karaoke-machine-analysis-ultimate-user-friendly-and-vibrant-singing-experience/"><u>Comprehensive SML385BTBK Karaoke Machine Analysis: Ultimate User-Friendly & Vibrant Singing Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-the-leading-usb-flash-drive-choices/"><u>Discover the Leading USB Flash Drive Choices</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixing-the-issue-overcome-driver-failed-after-adjusting-user-preferences/"><u>Fixing the Issue: Overcome 'Driver Failed' After Adjusting User Preferences</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on HTC U23 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ring-youtubes-feature-switch-between-commenting-states-for-2024/"><u>Mastering YouTube's Feature Switch Between Commenting States for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/no-more-worry-arf-pets-delivers-timely-meals-with-its-advanced-feeder/"><u>No More Worry: Arf Pets Delivers Timely Meals with Its Advanced Feeder</u></a></li>
-<li><a href="https://discover-community.techidaily.com/seamless-windows-update-configuration-a-step-by-step-guide-from-yl-computing/"><u>Seamless Windows Update Configuration: A Step-by-Step Guide From YL Computing</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-mohu-blade-television-receiver-evaluating-its-cutting-edge-layout-for-superior-indoor-viewing-experience/"><u>The Mohu Blade Television Receiver: Evaluating Its Cutting-Edge Layout for Superior Indoor Viewing Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-most-advanced-cable-modemrouter-packages-of-202c-compare-and-choose-wisely/"><u>The Most Advanced Cable Modem/Router Packages of 202C: Compare & Choose Wisely</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-tips-fixing-persistent-crashes-in-darkest-dungeon-2-on-windows/"><u>Troubleshooting Tips: Fixing Persistent Crashes in Darkest Dungeon 2 on Windows</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/unveiling-the-secrets-of-successful-cryptocurrency-investments-with-yl-software-insights/"><u>Unveiling the Secrets of Successful Cryptocurrency Investments with YL Software Insights</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-battlefield-geniuses-discovering-the-quintessential-7-total-war-experiences/"><u>[New] 2024 Approved Battlefield Geniuses Discovering the Quintessential 7 Total War Experiences</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-gopro-start-up-must-haves-decoded/"><u>[New] GoPro Start-Up Must-Haves Decoded</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-crafting-professional-edits-including-sounds-in-premiere-projects/"><u>[Updated] In 2024, Crafting Professional Edits Including Sounds in Premiere Projects</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/acers-ultimate-prime-day-offers-save-big-during-the-2024-sales-event/"><u>Acer's Ultimate Prime Day Offers: Save Big During the 2024 Sales Event!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/analyzing-iphones-latest-features-a-must-upgrade/"><u>Analyzing iPhone's Latest Features: A Must-Upgrade?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/anticipating-apple-m4-when-to-expect-it-and-what-power-it-packs/"><u>Anticipating Apple M4: When to Expect It and What Power It Packs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-gotrax-gxl-v2-the-ultimate-urban-commuter-electric-scooter/"><u>Comprehensive Evaluation of the Gotrax GXL V2 - The Ultimate Urban Commuter Electric Scooter</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-the-latest-features-on-the-fitbit-charge-6-smartwatch-reviewed/"><u>Comprehensive Guide to the Latest Features on the Fitbit Charge 6 Smartwatch Reviewed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/dive-into-long-exposure-iphone-photography/"><u>Dive Into Long-Exposure iPhone Photography</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-twitterscape-in-focus-your-route-to-watching-hd-videos/"><u>In 2024, Twitterscape in Focus Your Route to Watching HD Videos</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-the-skies-with-djis-mavic-air-n-s-top-reviews-and-insights/"><u>Mastering the Skies with DJI's Mavic Air N S – Top Reviews & Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/overwatch-critique-immersive-gunfights-and-strategic-team-dynamics/"><u>Overwatch Critique: Immersive Gunfights and Strategic Team Dynamics</u></a></li>
+<li><a href="https://driver-error.techidaily.com/reviving-hd-audio-on-windows-11/"><u>Reviving HD Audio on Windows 11</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/solar-generator-reveal-by-aeiousy-top-notch-inverter-for-medical-equipment-preservation-and-efficiency-checked-out/"><u>Solar Generator Reveal by Aeiousy: Top-Notch Inverter for Medical Equipment Preservation & Efficiency Checked Out</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-poco-c55-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Poco C55 | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/unlocking-your-pcs-potential-a-step-by-step-tutorial-to-check-system-info-in-windows-control-panel-with-yl-computing-solutions/"><u>Unlocking Your PC's Potential: A Step-by-Step Tutorial to Check System Info in Windows Control Panel with YL Computing Solutions</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-the-impact-why-gemini-version-15s-million-token-capacity-alters-everything/"><u>Unveiling the Impact: Why Gemini Version 1.5'S Million-Token Capacity Alters Everything</u></a></li>
 </ul></div>
 

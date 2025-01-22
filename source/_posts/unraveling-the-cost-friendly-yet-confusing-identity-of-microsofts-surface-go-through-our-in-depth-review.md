@@ -1,7 +1,7 @@
 ---
 title: Unraveling the Cost-Friendly Yet Confusing Identity of Microsoft's Surface Go Through Our In-Depth Review
-date: 2025-01-09T18:20:07.210Z
-updated: 2025-01-15T23:37:39.962Z
+date: 2025-01-18T06:42:32.166Z
+updated: 2025-01-22T05:06:58.852Z
 categories:
   - BestProducts
 description: This Article Describes Unraveling the Cost-Friendly Yet Confusing Identity of Microsoft's Surface Go Through Our In-Depth Review
@@ -13,13 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/O0Cyh5NwiSO2LW6YwP7Ceow5hDQ=/400x300/fi
 
 4.3
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Microsoft Surface Laptop Go
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/2bvxbVTYSDGrHTNRBt9DslXolEg=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_Hero5x4-c5d70a06640a47aca3f64903cf5af851.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -51,7 +51,7 @@ Lifewire / Andy Zahn
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/fvtiWpBnRJ1dR-89xJ_kOkkEUSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_Hero5x4-c5d70a06640a47aca3f64903cf5af851.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
@@ -93,10 +93,6 @@ Lifewire / Andy Zahn
 
  Port selection is rather limited, with a[USB-C](https://www.lifewire.com/usb-c-4149490) port, a USB-A port, a 3.5mm audio jack, and a Surface Connect port which is used for power but can also be used to connect to a Surface Dock. This is really the bare minimum for I/O, and was one of the most frustrating issues for me when using the device.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Display: Ideal for productivity**
 
  The 12.4-inch display on the Surface Laptop Go seems larger than the size would suggest, thanks to its 3:2 aspect ratio. Because of that aspect ratio, this laptop is purpose-built for productivity. In fact, it was the ideal device for typing out this article. The 1536x1024 resolution is quite sharp, and colors are sharp and accurate with great contrast. Due to the 3:2 aspect ratio, you get black bars on the top and bottom when watching movies and shows, but they still look great due to the quality of the screen.
@@ -104,10 +100,14 @@ Lifewire / Andy Zahn
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/kz6EW4svzivooWEtdVJ5TAnOYOs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_06-07315e6a9862481bba3820f745d49887.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Speakers: Loud and proud**
 
@@ -120,10 +120,6 @@ Lifewire / Andy Zahn
  Cameras on laptops are never very good, but the one on the Surface Laptop Go is particularly poor. It’s only capable of 720p, but it’s not the low resolution itself that really lets it down. Even in decent lighting conditions the video and still images produced by this camera are extremely grainy and low quality so it’s not a great option even for[Zoom](https://www.lifewire.com/what-is-zoom-and-how-does-it-work-4800476) meetings.
 
  The Surface Laptop Go is certainly not the most powerful laptop around, but with 8GB of RAM, an Intel Core i5-1035G1 CPU, and a fast solid-state drive for storage it feels zippy and responsive.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Decent power for the price**
 
@@ -147,14 +143,10 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/R8WVIj9pTzxwTOIwiZpDPRc6Bws=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_03-d503f456e6df4db4a3ad76a6a9a49e72.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: A decision to make**
@@ -171,7 +163,15 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/_QEntMJEPlaXArgv2l576Qnr7MU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_04-21f4f7c4d0f54436bb1449bf36a42460.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Microsoft Surface Laptop Go vs. HP Pavilion 14 HD**
 
@@ -222,22 +222,20 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-subtle-harmonies-on-desktop-systems/"><u>[New] In 2024, Subtle Harmonies on Desktop Systems</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-ghostly-movie-editing-hacks/"><u>[Updated] Ghostly Movie Editing Hacks</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-guide-to-customized-text-editing-techniques/"><u>2024 Approved The Ultimate Guide to Customized Text Editing Techniques</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/behind-the-scenes-the-ios-15-transition-process/"><u>Behind the Scenes: The iOS 15 Transition Process</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-look-at-the-cost-effective-amazon-basics-6-sheets-cross-cut-shredder/"><u>Comprehensive Look at the Cost-Effective Amazon Basics 6-Sheets Cross-Cut Shredder</u></a></li>
-<li><a href="https://common-error.techidaily.com/dealing-with-high-cpu-error-caused-by-runtime-broker-in-windows-10-solution/"><u>Dealing with High CPU Error Caused by Runtime Broker in Windows 10 [Solution]</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/distinguishing-wi-fi-from-the-internet-uncovering-essential-variations-and-their-importance/"><u>Distinguishing Wi-Fi From the Internet: Uncovering Essential Variations and Their Importance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-apple-imac-27-inch-4k-display-blending-elegance-with-performance/"><u>Expert Analysis of the Apple iMac 27-Inch 4K Display: Blending Elegance with Performance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/kobo-clara-colour-review/"><u>Kobo Clara Colour Review</u></a></li>
-<li><a href="https://win11.techidaily.com/mastering-ms-store-repairs-overcoming-server-slip-ups-on-windows-os/"><u>Mastering MS Store Repairs: Overcoming Server Slip-Ups on Windows OS</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolving-problems-stabilizing-the-world-of-midgards-tribes/"><u>Resolving Problems: Stabilizing the World of Midgard's Tribes</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/streaming-faceoff-which-wins-out-chromecast-or-roku/"><u>Streaming Faceoff: Which Wins Out, Chromecast or Roku?</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/streamlining-dialogue-leveraging-siri-for-chatgpt-on-iphone/"><u>Streamlining Dialogue: Leveraging Siri for ChatGPT on iPhone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-featherlight-game-changer-a-deep-dive-review-into-the-exceptional-battery-life-and-mobility-of-the-lg-gram-156-laptop-2018-edition/"><u>The Featherlight Game Changer: A Deep Dive Review Into the Exceptional Battery Life & Mobility of the LG Gram 15.6 Laptop (2018 Edition)</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/form-videos-affordable-high-quality-effs-for-2024/"><u>Transform Videos - Affordable, High-Quality Effs for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unlocking-savings-with-speed-an-expert-review-on-the-samsung-galaxy-a51-5g-smartphone/"><u>Unlocking Savings with Speed - An Expert Review on the Samsung Galaxy A51 5G Smartphone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-potential-of-google-nest-hub-gen-2-how-a-camera-feature-could-elevate-its-functionality/"><u>Unveiling the Potential of Google Nest Hub Gen 2 - How A Camera Feature Could Elevate Its Functionality</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-assembling-a-spectacular-screenplay-cut-out-for-2024/"><u>[New] Assembling a Spectacular Screenplay Cut-Out for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-polishing-your-figma-creations-expert-backdrop-extraction/"><u>2024 Approved Polishing Your Figma Creations Expert Backdrop Extraction</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/analyzing-durability-and-performance-a-complete-guide-to-uniden-r3s-superior-range-detection/"><u>Analyzing Durability & Performance - A Complete Guide to Uniden R3's Superior Range Detection</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/building-your-brand-making-money-with-vids-for-2024/"><u>Building Your Brand Making Money with Vids for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-lihan-lhfm103/"><u>Comprehensive Review of the LIHAN LHFM103</u></a></li>
+<li><a href="https://fox-place.techidaily.com/dos-metodos-eficaces-para-usar-dism-sin-conexion-y-reparar-la-imagen-de-windows-10/"><u>Dos Métodos Eficaces Para Usar DISM Sin Conexión Y Reparar La Imagen De Windows 10</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-tips-seamless-migration-to-macos-ventura/"><u>Expert Tips: Seamless Migration to macOS Ventura</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-cost-effective-vuebell-video-doorbell-option-review-and-insights/"><u>Exploring the Cost-Effective VueBell Video Doorbell Option – Review & Insights</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/exploring-the-upgrades-in-the-latest-apple-airpods-gen-3-with-zdnets-in-depth-analysis/"><u>Exploring the Upgrades in the Latest Apple AirPods (Gen 3) with ZDNET's In-Depth Analysis</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-highlighting-the-top-10-budget-friendly-video-communication-platforms-for-industry-and-academia/"><u>In 2024, Highlighting the Top 10 Budget-Friendly Video Communication Platforms For Industry & Academia</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-how-to-add-musicaudio-to-a-gif-on-mac/"><u>In 2024, How to Add Music/Audio to a GIF on Mac?</u></a></li>
+<li><a href="https://article-files.techidaily.com/proven-strategies-for-premium-picture-acquisition-gratis-for-2024/"><u>Proven Strategies for Premium Picture Acquisition Gratis for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-apple-imac-215-inch-4k-monitor-an-impeccable-mix-of-beauty-and-strength-examined-in-this-comprehensive-review/"><u>The Apple iMac 21.5-Inch 4K Monitor - An Impeccable Mix of Beauty and Strength Examined in This Comprehensive Review.</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-rated-roborock-vacuum-models-featuring-in-depth-analysis-and-reviews-by-tech-gurus-zdnet/"><u>Top-Rated Roborock Vacuum Models , Featuring In-Depth Analysis & Reviews by Tech Gurus | ZDNet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-fusion-of-form-and-function-inside-look-at-samsung-galaxy-watch/"><u>Unveiling the Fusion of Form & Function: Inside Look at Samsung Galaxy Watch</u></a></li>
 </ul></div>
 

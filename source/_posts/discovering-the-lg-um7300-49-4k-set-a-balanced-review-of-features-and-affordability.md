@@ -1,7 +1,7 @@
 ---
 title: "Discovering the LG UM7300 49 4K Set: A Balanced Review of Features and Affordability"
-date: 2025-01-13T23:48:12.433Z
-updated: 2025-01-16T02:36:41.435Z
+date: 2025-01-20T07:00:50.937Z
+updated: 2025-01-22T10:09:16.639Z
 categories:
   - BestProducts
 description: "This Article Describes Discovering the LG UM7300 49 4K Set: A Balanced Review of Features and Affordability"
@@ -13,17 +13,9 @@ thumbnail: https://thmb.techidaily.com/8a64098fc8c00724b390ed4672a78681ea9b2ccc0
 
 4.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Assassin's Creed Valhalla (PC)
 
 ![AC Vallhalla](https://www.lifewire.com/thmb/uNOEoXtNzm8yuWudHDVzDNDutY8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Assassins-Creed-Valhalla-1-b7cabc5b5656439bbb47518048f57aa5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -46,13 +38,13 @@ thumbnail: https://thmb.techidaily.com/8a64098fc8c00724b390ed4672a78681ea9b2ccc0
 
 4.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Assassin's Creed Valhalla (PC)
 
 ![AC Vallhalla](https://www.lifewire.com/thmb/1uTfLpDv2WlYuf-Ekg6qBUTQqP4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Assassins-Creed-Valhalla-1-b7cabc5b5656439bbb47518048f57aa5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -86,6 +78,10 @@ thumbnail: https://thmb.techidaily.com/8a64098fc8c00724b390ed4672a78681ea9b2ccc0
 
 ![AC Vallhalla 2](https://www.lifewire.com/thmb/pWujlWPf0ylYYpeoTEbp7X8U0yM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-4-07677871281c40a384f2df55f83e86a4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
  Perhaps more interesting than the main plot are the side quests sprinkled liberally about the world. These are typically informal, chance encounters and, though they do grant experience towards skill points, their primary point is to tell an intriguing story, which they accomplish with aplomb. The characters are almost invariably well-acted, and while short, these quests are remarkably well written and worth seeking out.
@@ -95,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/8a64098fc8c00724b390ed4672a78681ea9b2ccc0
  In total, the game’s various open world areas cover a staggering 140 square kilometers, nearly ten times the size of the prologue area. By this rough estimate, there should be at least 120 hours worth of content in this game, including a roughly 60-hour main campaign. Missions, mysteries, and treasure in abundance ensure that the wilderness never grows stale.
 
 ![AC sneak](https://www.lifewire.com/thmb/Vk4XvoE4lJwcjde1C_tJUVBc0Ac=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-9-a5e8ef2a5bef455d8cbaa9e749167f53.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -130,9 +130,17 @@ thumbnail: https://thmb.techidaily.com/8a64098fc8c00724b390ed4672a78681ea9b2ccc0
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Difficulty and Content Settings: Lots to customize**
 
  Valhalla gives you plenty of ways to customize your experience. You can adjust the difficulty of stealth, combat, and exploration separately, so you can choose which gameplay elements are difficult and which you’d rather not get in the way. Additionally, mature elements in the game such as blood and gore can be toggled on and off, which will be a[relief to parents](https://www.lifewire.com/best-pc-games-4147292) and a boon to anyone who doesn’t fancy seeing severed heads flying through the air.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Minigames: Enjoyable diversions**
 
@@ -143,7 +151,7 @@ thumbnail: https://thmb.techidaily.com/8a64098fc8c00724b390ed4672a78681ea9b2ccc0
 ![AC tattoos](https://www.lifewire.com/thmb/trRirIDsjFej03o-_HDCFsnnrzs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-6-5449cde060b441a499a5189fda9a7a0a.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
@@ -154,6 +162,10 @@ thumbnail: https://thmb.techidaily.com/8a64098fc8c00724b390ed4672a78681ea9b2ccc0
 
  I was particularly struck by the amber rays of the setting sun that slanted through the rigging of my longboat as I returned from a mountain climbing excursion.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Graphics: Epic good looks**
 
  Valhalla is an absolutely gorgeous game. Everything from the detailed character models to the vibrant open world is beautiful to look upon. Changing weather alters the mood of landscapes, and can create breathtaking moments. I was particularly struck by the amber rays of the setting sun that slanted through the rigging of my longboat as I returned from a mountain climbing excursion.
@@ -162,15 +174,7 @@ thumbnail: https://thmb.techidaily.com/8a64098fc8c00724b390ed4672a78681ea9b2ccc0
 
 ![AC Mountain](https://www.lifewire.com/thmb/YazM4IIiw6qfR_cd-AfR8Cek9pg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-10-b813058de14c4b92978d22f84715ab98.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process and Performance: A rough start**
 
@@ -182,15 +186,15 @@ thumbnail: https://thmb.techidaily.com/8a64098fc8c00724b390ed4672a78681ea9b2ccc0
 
 ![AC ruins](https://www.lifewire.com/thmb/R1pb8_CqlpJqAmK9Ka9-pgyOyJk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-3-ea07cee8afaa4cc89c4e2bb286b894a0.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
  On a[gaming PC](https://www.lifewire.com/best-gaming-pcs-4045451) with a more powerful processor, more RAM, and an RTX 2070[GPU](https://www.lifewire.com/best-graphics-cards-4692676) , I didn’t encounter any glitches. However, the game is extremely power-hungry, and I was only able to run it at max settings with 60fps at 1080p. Ubisoft titles are known for being poorly optimized at launch, so this game should perform better after a few patches. Still, it’s clearly designed for next-gen consoles and the latest PC hardware. If you are playing on PC, be sure to utilize the benchmarking tool to find the ideal settings for your system.
 
  Of course, if you’re playing on[console](https://www.lifewire.com/best-gaming-consoles-4154610) you don’t have to worry about performance issues since the game is better optimized. It’s currently available for Xbox One and PlayStation 4, and will be available for the Xbox Series X and PlayStation 5 at launch. You can also get it on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Typical AAA**
 
@@ -199,10 +203,6 @@ thumbnail: https://thmb.techidaily.com/8a64098fc8c00724b390ed4672a78681ea9b2ccc0
 ![AC horse](https://www.lifewire.com/thmb/teY5MG-6xAT5sxNurIFy_iYPPvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-2-58ab82ef1f624e01b1c1c6dab8bca06b.jpg)
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Assassin’s Creed: Valhalla vs. Watch Dogs: Legion**
 
@@ -237,24 +237,22 @@ thumbnail: https://thmb.techidaily.com/8a64098fc8c00724b390ed4672a78681ea9b2ccc0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-spotting-no-replay-in-your-chat-history/"><u>[Updated] In 2024, Spotting No Replay in Your Chat History</u></a></li>
-<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-oneplus-nord-3-5g-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your OnePlus Nord 3 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-the-leading-blu-raydvd-players-expert-rankings-unveiled/"><u>Discover the Leading Blu-Ray/DVD Players - Expert Rankings Unveiled</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ensure-your-warranty-covers-accidental-damage-and-has-an-adequate-service-period-this-way-youre-protected-against-unexpected-hardware-failures/"><u>Ensure Your Warranty Covers Accidental Damage and Has an Adequate Service Period. This Way, You're Protected Against Unexpected Hardware Failures.</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/essential-upgrades-for-your-ipad-pro-expert-picks-s-must-have-accessories/"><u>Essential Upgrades for Your iPad Pro: Expert Picks 'S Must-Have Accessories</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exclusive-picks-the-ideal-samsung-galaxy-z-fold-7-case-collection-you-cant-miss/"><u>Exclusive Picks: The Ideal Samsung Galaxy Z Fold 7 Case Collection You Can't Miss</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/fort-mcpherson-national-cemetery-and-museum/"><u>Fort McPherson National Cemetery and Museum</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-vivo-y100-5g-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Vivo Y100 5G?</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Motorola Razr 40 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-iphone-13-mini-and-android-phones-by-drfone-ios/"><u>In 2024, Top IMEI Unlokers for iPhone 13 mini and Android Phones</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/ipad-air-with-m2-chip-the-ideal-choice-for-most-users-according-to-zdnet/"><u>IPad Air with M2 Chip - The Ideal Choice for Most Users According to ZDNet</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-choices-for-outdoor-projectors-the-definitive-guide-picks/"><u>Leading Choices for Outdoor Projectors: The Definitive Guide Picks</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-innovative-smart-scale-models-for-health-tracking-2024-edition/"><u>Leading Innovative Smart Scale Models for Health Tracking - 2024 Edition</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-pcpc-systems-launched-a-comprehensive-guide/"><u>Leading PCPC Systems Launched : A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-streaming-interface-cards-unveiled-the-ultimate-list/"><u>Leading Streaming Interface Cards Unveiled: The Ultimate List</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/maximizing-efficiency-transforming-your-home-office-with-the-apple-ipad-pro-insights-from-tech-experts/"><u>Maximizing Efficiency: Transforming Your Home Office with the Apple iPad Pro – Insights From Tech Experts</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-techniques-for-extracting-youtube-clip-sections-for-2024/"><u>Proven Techniques for Extracting YouTube Clip Sections for 2024</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/streamline-functionality-with-mf4770n-driver-upgrade-for-windows-11w8w7/"><u>Streamline Functionality with MF4770n Driver Upgrade for Windows 11/W8/W7</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/anker-powerdrive-2-review-affordable-and-fast-in-car-charging/"><u>Anker PowerDrive 2 Review: Affordable and Fast In-Car Charging</u></a></li>
+<li><a href="https://article-posts.techidaily.com/bridging-platforms-instagram-and-tik-tok-synergy-manual/"><u>Bridging Platforms Instagram & Tik Tok Synergy Manual</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-a-ravaged-world-on-motorcycle-in-days-gone-our-comprehhavis-review/"><u>Exploring a Ravaged World on Motorcycle in 'Days Gone': Our Comprehhavis Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fellowes-microban-wireless-keyboard-assessment-top-affordable-choice/"><u>Fellowes Microban Wireless Keyboard Assessment - Top Affordable Choice</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-xiaomi-redmi-13c-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Xiaomi Redmi 13C without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-lenovos-tab-p11-pro-exceptional-device-with-some-limitations/"><u>In-Depth Review of Lenovo's Tab P11 Pro: Exceptional Device with Some Limitations</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/initiating-driver-verifier-tool-in-win11/"><u>Initiating Driver Verifier Tool in Win11</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/innovation-and-power-combined-why-the-2018-apple-ipad-pro-11-inch-is-a-game-changer-for-tablet-enthusiasts/"><u>Innovation and Power Combined - Why the 2018 Apple iPad Pro (11-Inch) Is a Game Changer for Tablet Enthusiasts</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/pet-safes-steady-diet-solution-the-automated-six-meal-serving-system-for-pets/"><u>Pet Safe's Steady Diet Solution: The Automated Six Meal Serving System for Pets</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/pinnacle-ai-image-manipulation-suite-for-2024/"><u>Pinnacle AI Image Manipulation Suite for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/push-the-limits-with-the-asus-rog-rapture-gt-ax11000-top-speeds-for-gamers-and-streaming-enthusiasts/"><u>Push the Limits with the Asus ROG Rapture GT-AX11000 - Top Speeds for Gamers and Streaming Enthusiasts</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/tesla-robotaxi-unveiled-anticipated-pricing-launch-timeline-and-technical-details-revealed/"><u>Tesla Robotaxi Unveiled: Anticipated Pricing, Launch Timeline & Technical Details Revealed</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-revolutionary-google-pixel-navigates-first-in-mobile-communications-with-unique-satellite-based-sos-capabilities-zdnet-exclusive-insight/"><u>The Revolutionary Google Pixel Navigates First in Mobile Communications with Unique Satellite-Based SOS Capabilities | ZDNET Exclusive Insight</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/ultimate-guide-how-to-safely-download-songs-from-saavn/"><u>Ultimate Guide: How to Safely Download Songs From Saavn</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-practical-side-of-the-acer-xfa240-in-our-latest-evaluation/"><u>Unveiling the Practical Side of the Acer XFA240 in Our Latest Evaluation</u></a></li>
+<li><a href="https://techidaily.com/you-must-know-how-to-configure-mt4-and-mt5-accounts-by-mt4copier-guide/"><u>You must know how to Configure MT4 and MT5 Accounts</u></a></li>
 </ul></div>
 

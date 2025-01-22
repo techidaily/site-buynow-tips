@@ -1,7 +1,7 @@
 ---
 title: "TP-Link Archer C9: The Ultimate Review of a Cost-Effective Wireless Router"
-date: 2025-01-13T17:29:25.253Z
-updated: 2025-01-15T16:36:46.211Z
+date: 2025-01-21T00:13:28.443Z
+updated: 2025-01-22T04:49:45.589Z
 categories:
   - BestProducts
 description: "This Article Describes TP-Link Archer C9: The Ultimate Review of a Cost-Effective Wireless Router"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/0ec3b3e91ce6c2fd312d0c52b550de8f05b444cc8
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/5SQBxSHXey906sYtaz8fIiCXm7k=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -40,13 +44,13 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/o0LkMzwRLq9UDT8tBDJerDIsp8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -68,7 +72,7 @@ Lifewire / Erika Rawes
  The TP-Link Archer C80 is an affordable[long range router](https://www.lifewire.com/best-long-range-routers-4122554) that should be ideal for medium-sized homes. With 3x3[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , parental controls, and remote control using TP-Link’s Tether app, the Archer C80 has a few admirable features for a router under $100, but it also lacks some of the things we’ve come to expect in a router in this price range (like smart assistant compatibility and no USB port). I tested the TP-Link Archer C80 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment when compared to other budget routers on the market.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Basic, but effective**
@@ -103,10 +107,6 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **Range: Even better than advertised**
@@ -126,7 +126,7 @@ Lifewire / Erika Rawes
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -146,7 +146,7 @@ Lifewire / Erika Rawes
  Even though it lacks a USB port, the Archer C80 puts out impressive speeds over a long range in homes with light to medium networking capacity. For homes that have several people streaming, gaming, and working on cloud applications, they’ll want something more high octane.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -184,18 +184,20 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-a-filmmakers-essentials-the-quintessential-5-camera-strategies/"><u>[New] A Filmmaker's Essentials The Quintessential 5 Camera Strategies</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-buzzing-the-net-with-humor-your-comprehensive-guide-to-9gag-for-2024/"><u>[New] Buzzing the Net with Humor Your Comprehensive Guide to 9GAG for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-diy-instagram-alert-tunes-a-step-by-step-guide/"><u>[Updated] 2024 Approved DIY Instagram Alert Tunes A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-streamline-your-viewing-the-facebook-auto-play-guide/"><u>[Updated] 2024 Approved Streamline Your Viewing The Facebook Auto-Play Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comparative-review-of-ring-and-nest-smart-doorbells/"><u>Comparative Review of Ring and Nest Smart Doorbells</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comparing-outlook-and-gmail-determining-the-superior-email-platform/"><u>Comparing Outlook and Gmail: Determining the Superior Email Platform</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-omnicharge-omni-20-a-multi-functional-all-in-one-portable-charger-with-qi-wireless-capability/"><u>Comprehensive Review of the Omnicharge Omni 20: A Multi-Functional, All-in-One Portable Charger with Qi Wireless Capability</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/elevate-your-health-game-why-fitbit-sense-is-an-ideal-choice-over-the-apple-watch/"><u>Elevate Your Health Game: Why Fitbit Sense Is an Ideal Choice Over the Apple Watch</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/re-free-youtube-channel-imagery-tools-for-2024/"><u>Explore Free YouTube Channel Imagery Tools for 2024</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/how-to-properly-delete-your-dating-profile-history-essential-information-you-need/"><u>How to Properly Delete Your Dating Profile History: Essential Information You Need</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-next-gen-learning-vrs-educational-impact/"><u>In 2024, Next-Gen Learning VR's Educational Impact</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/innovation-at-speed-how-to-make-stunning-slow-motion-content-with-an-android-for-2024/"><u>Innovation at Speed How to Make Stunning Slow-Motion Content with an Android for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/mastering-movie-aesthetics-through-color-grading-and-luts-for-2024/"><u>Mastering Movie Aesthetics Through Color Grading and Luts for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-expert-6-tech-for-cross-lingual-content-shift/"><u>[New] In 2024, Expert 6 Tech for Cross-Lingual Content Shift</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-obs-glitch-fix-stop-frames-from-dropping/"><u>[New] OBS Glitch Fix Stop Frames From Dropping</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-swap-periscope-for-success-best-replacements-for-iphoneandroid/"><u>[Updated] Swap Periscope for Success Best Replacements for iPhone/Android</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-ultimate-framework-for-crafting-compelling-live-video-thumbnails/"><u>2024 Approved The Ultimate Framework for Crafting Compelling Live Video Thumbnails</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/asus-chromebook-flip-c302ca-breaking-down-its-cheap-price-tag-and-exceptional-features/"><u>Asus Chromebook Flip C302CA: Breaking Down Its Cheap Price Tag and Exceptional Features!</u></a></li>
+<li><a href="https://win-net.techidaily.com/complete-step-by-step-tutorial-on-performing-a-clean-reset-of-windows-11-while-preserving-your-personal-files-and-applications/"><u>Complete Step-by-Step Tutorial on Performing a Clean Reset of Windows 11 While Preserving Your Personal Files and Applications</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/get-premium-features-in-a-wallet-friendly-package-discover-the-lg-2amotv-24lh4830-model/"><u>Get Premium Features in a Wallet-Friendly Package: Discover the LG 2amoTV 24LH4830 Model</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/high-end-or-overpriced-a-comprehensive-review-of-the-samsung-un65nu8000fxza-smart-tv/"><u>High-End or Overpriced? A Comprehensive Review of the Samsung UN65NU8000FXZA Smart TV</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/how-to-make-your-own-rugged-bootable-usb-stick-using-windows-10-or-11/"><u>How to Make Your Own Rugged Bootable USB Stick Using Windows 10 or 11</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirror-your-apple-iphone-14-pro-display-drfone-by-drfone-ios/"><u>In 2024, How to Screen Mirror your Apple iPhone 14 Pro Display? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/kids-mirari-alarm-clock-evaluation-the-ultimate-guide/"><u>Kids' Mirari Alarm Clock Evaluation: The Ultimate Guide</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-corsair-k70-installation-guide-and-downloads-for-optimal-performance/"><u>Latest Corsair K70 Installation Guide and Downloads for Optimal Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/proactive-positioner-tripod-a-nomads-ideal-ally/"><u>Proactive Positioner Tripod: A Nomad's Ideal Ally</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/skyrim-review-for-the-nintendo-switch-dive-into-an-enchanting-richly-crafted-game-world/"><u>Skyrim Review for the Nintendo Switch - Dive Into an Enchanting, Richly Crafted Game World</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-the-garmin-vivomove-hr-a-chic-choice-for-active-living/"><u>The Ultimate Review of the Garmin Vivomove HR - A Chic Choice for Active Living</u></a></li>
 </ul></div>
 

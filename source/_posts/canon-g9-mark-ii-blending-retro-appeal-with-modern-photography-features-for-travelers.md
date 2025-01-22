@@ -1,7 +1,7 @@
 ---
 title: "Canon G9 Mark II: Blending Retro Appeal with Modern Photography Features for Travelers"
-date: 2024-08-09T00:56:22.065Z
-updated: 2024-08-10T00:56:22.065Z
+date: 2025-01-15T04:29:39.189Z
+updated: 2025-01-21T20:37:29.433Z
 categories:
   - BestProducts
 description: "This Article Describes Canon G9 Mark II: Blending Retro Appeal with Modern Photography Features for Travelers"
@@ -37,27 +37,11 @@ Lifewire / Rebecca Isaacs
 4.6
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Ergodriven Topo Standing Desk Mat
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/GZTKidZtByl51GvkYiB-jNjEjbE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Ergodriven-Topo-Comfort-Mat-1-ccd96f7c454945c3b974a2f5cba4fe79.jpg)
 
 Lifewire / Rebecca Isaacs
@@ -79,21 +63,27 @@ Lifewire / Rebecca Isaacs
 
  A standing desk isn’t complete without a standing desk mat, at least not if you value your comfort. We tried out the Topo by Ergodriven Standing Desk Mat, testing it for comfort, design, and performance. We decided to test it for a few hours a day over the course of a week to see how it worked.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/KYfJPJ0jHZhmy15IUeGxDL8kmRw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ergodriven-Topo-Comfort-Mat-2-547d9823c4ac47cbb5a360040866172a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Simply modern**
 
  At 26.2 inches by 29 inches (LW), the Topo is a fairly wide mat, giving the user lots of berth to shift around. It comes with two power wedges in the back with calf-stretching inclines in the front that end up going 2.7 inches high, though the bottom platform of the mat is much thinner. It also comes with a massage mound in the center of the mat. For the most part, we liked the mat, but placing the massage mound in the center we felt was detrimental for standing space.
 
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/0MLp0JKyXodrqDxUdun30XlUicQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ergodriven-Topo-Comfort-Mat-3-5e85cbed72974e018684fe954f0ddf1b-75abe4f41eba41c3b202cdf74fbf3caa.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -111,9 +101,6 @@ Lifewire / Rebecca Isaacs
 
  We also liked how the mat slides around on various surfaces, but it’s not too slippery. We hauled it around to various offices with tile and carpet. Each time we set it down, we could push it under the desk with ease if we needed to sit for extended lengths of time and pull it out just as easily when we wanted to stand.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Pretty steep for a mat**
 
  At around $100 on Amazon, the Topo is in the higher price range for a standing desk mat. We could find models that don’t have the massage mound in the center, however, the steep power wedges in the back make it a reasonable investment for anyone who really wants to stretch out their legs.
@@ -121,8 +108,9 @@ Lifewire / Rebecca Isaacs
  For a standing desk mat with some exercise features, the Ergodriven Topo is a fairly decent choice.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Topo Ergodriven vs. CubeFit TerraMat**
 
  We decided to compare the Ergodriven Topo against CubeFit’s TerraMat. Price-wise, they’re very similar, retailing around $100\. They also come with massage mounds and various power wedges. However, the TerraMat has more features on the mat itself, including a balance bar and plantar mounds off to the sides, as well as a massage mound in the front. None of the actual features are located in the TerraMat’s center, unlike the Topo mat.
@@ -147,14 +135,11 @@ Lifewire / Rebecca Isaacs
 * Warranty  Seven Years
 * Connectivity Options  None
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,3 +147,21 @@ Lifewire / Rebecca Isaacs
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-low-investment-high-rewards-channel-size-doesnt-deter-sponsorship/"><u>[Updated] In 2024, Low-Investment, High Rewards Channel Size Doesn't Deter Sponsorship</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-free-video-kits-to-set-the-tone-right-away/"><u>2024 Approved Free Video Kits to Set the Tone Right Away</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/a-compreenasional-approach-to-earning-through-vimeos-revenue-systems-for-2024/"><u>A Compreenasional Approach to Earning Through Vimeo's Revenue Systems for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/audio-malfunction-with-conexant-hardware-in-windows-11-a-detailed-fix-tutorial-for-users/"><u>Audio Malfunction with Conexant Hardware in Windows 11? A Detailed Fix Tutorial for Users</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/buyers-pick-elite-collection-of-expanded-mouse-pad-sets-for-the-modern-age/"><u>Buyer's Pick: Elite Collection of Expanded Mouse Pad Sets for the Modern Age</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-the-samsung-galaxy-s10plus-still-relevant-against-the-s20-a-comprehensive-review/"><u>Is the Samsung Galaxy S10+ Still Relevant Against the S20? A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/must-know-elements-in-buying-sound-gear/"><u>Must-Know Elements in Buying Sound Gear</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-through-innovation-an-expert-take-on-the-multifaceted-world-of-samsungs-galaxy-tab-s5e/"><u>Navigating Through Innovation: An Expert Take on the Multifaceted World of Samsung's Galaxy Tab S5e</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-a71-5g-unveiled-the-smart-choice-for-flagship-features-without-breaking-the-bank/"><u>Samsung Galaxy A71 5G Unveiled: The Smart Choice for Flagship Features without Breaking the Bank</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-budget-lte-tablet-showdown-review-of-the-alcatel-joy-tab-2/"><u>The Ultimate Budget LTE Tablet Showdown: Review of the Alcatel Joy Tab 2</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-no-cost-video-trimming-10-best-online-solutions-for-2024/"><u>Updated No-Cost Video Trimming 10 Best Online Solutions for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/vocabulary-revisited-modern-usage-of-elizabethan-words/"><u>Vocabulary Revisited: Modern Usage of Elizabethan Words</u></a></li>
+<li><a href="https://article-helps.techidaily.com/who-wins-the-battle-of-cinematic-quality-and-durability-in-2024/"><u>Who Wins the Battle of Cinematic Quality and Durability, In 2024</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: "Mastering Airborne Photography: An In-Depth Review of the DJI Mavic 3"
-date: 2024-08-09T00:56:19.784Z
-updated: 2024-08-10T00:56:19.784Z
+date: 2025-01-20T04:19:20.862Z
+updated: 2025-01-22T11:32:23.784Z
 categories:
   - BestProducts
 description: "This Article Describes Mastering Airborne Photography: An In-Depth Review of the DJI Mavic 3"
@@ -13,12 +13,13 @@ thumbnail: https://thmb.techidaily.com/58c0c03589ad5318adbacb770fdc6992f0cc68979
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Rexing V1 DashCam
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/uK2E64Wzmh1SC5wGVrVGSMMtQgk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_HeroSqaure-ac1bb2840cb04106b14f3838b80a3bf2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
 
@@ -43,6 +44,10 @@ Lifewire / Danny Chadwick
 ## Rexing V1 DashCam
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/5zZ5bclZ7zJVo8nRB2Y33JNM3w4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_HeroSqaure-ac1bb2840cb04106b14f3838b80a3bf2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
 
@@ -85,16 +90,10 @@ Lifewire / Danny Chadwick
 
  It also has an internal accelerometer that can detect the impact of an accident, as well as[GPS capabilities](https://www.lifewire.com/what-is-gps-how-it-works-4688647) . Unfortunately, it doesn’t come with all the necessary equipment to use the GPS feature—if you want to enable these, you have to buy the[Rexing GPS Logger](https://www.amazon.com/Rexing-GPS-Logger-V1-V1P/dp/B01AKH377A/?tag=lifewire-onsite-prod-20&ascsubtag=4770571%7Cn9eae1cd5706347139b8b83241f9d42ea10%7C) separately.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/ztn3EsFqtKkWImvQhtgcr1vlHwI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_02-9ee3aa46e7394a1ab263a6b12b287314.jpg)
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process: Be sure that’s where you want to put it**
 
  For those concerned about the hassle of installing a dashcam, don’t worry. The user manual for the Rexing V1 was the clearest and most detailed of all the dashcams we tested. The instructions are written in easy-to-understand language, and every button, feature, and tool is explained in detail so there’s no guesswork when you turn the device on.
@@ -105,30 +104,20 @@ Lifewire / Danny Chadwick
 
  Also included in the box is a special tool that helps you hide the power cable. To prevent the wire from hanging down in front of your windshield, you need to wedge it up under the edge of the roof and through the side panels (the instruction manual shows you the best route to take). It may seem complicated at first, but this whole process only took us about ten minutes to accomplish.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/df0_L-UzAk3OryqSCncsjfqi8QM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_03-2273fff3f71944368711b60f5da9687e.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Camera Quality: Basic**
 
  You can set this dash-mounted camera to capture footage in either 720p or 1080p resolution, which is pretty limited. Similar dashcams can capture footage up to 2560 x 1440 resolution, with others going all the way up to 4K. However, if all you’re looking for is a simple security device, 1080p will do just fine.
 
  When we reviewed the footage captured by the Rexing V1, we found it to be highly detailed and clear when the car was moving along city streets. However, when we hit the freeway, the picture became a little less clear. Signs were hard to read unless you stopped the recording, and small details such as license plates and bumper stickers on other cars couldn’t be made out at all. Nevertheless, the videos yield a good picture of what happens when you drive.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/9_1pHoEq74JWPJ8reothv8PeI8E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_04-c5d42af8ddfa4296a6c6b1e8551edef6.jpg)
 
  Lifewire / Danny Chadwick
@@ -147,9 +136,17 @@ Lifewire / Danny Chadwick
 
  Like the rest of the dashboard cameras we tested, the Rexing V1 has the ability to record audio, but it does a middling job of it. Voices in the car and sounds coming from the interior speakers were clear enough to understand, but sounds from outside the vehicle were muddy at best.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: A good value**
 
  The Rexing V1 retails for $130, but as of the time of this writing, can typically be purchased for closer to $100\. We feel like this is a perfectly appropriate price for this device—it falls right in the middle of the typical dashcam price range, providing better performance than super budget models, but without the high-tech features of the more expensive options out there. In short, it’s a good price for a solid, basic device.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Z3 Plus vs. Rexing V1**
 
@@ -167,9 +164,6 @@ Lifewire / Danny Chadwick
 
  There isn’t much to complain about with the Rexing V1 DashCam. Its innovative form factor combined with a wide array of video capture features and decent picture quality means you won’t have any buyer’s remorse if you choose this dashcam.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  V1 DashCam
@@ -184,14 +178,11 @@ Lifewire / Danny Chadwick
 * Night Vision  No
 * Connectivity Options  MicroSD, USB
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -199,3 +190,27 @@ Lifewire / Danny Chadwick
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/rom-zero-to-cool-video-star-your-mac-youtube-journey-starts-here/"><u>[New] From Zero to Cool Video Star Your Mac Youtube Journey Starts Here</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-fun-and-flight-5-best-drone-options-for-children/"><u>[New] Fun and Flight 5 Best Drone Options for Children</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-master-the-new-era-of-video-production-with-powerdirector-2024/"><u>[New] Master the New Era of Video Production with PowerDirector 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-tips-for-posting-wide-angle-photos-to-facebook-from-smartphones/"><u>[Updated] Tips for Posting Wide Angle Photos to Facebook From Smartphones</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-hidden-echoes-to-silence-audacitys-technique-guide/"><u>2024 Approved Hidden Echoes to Silence Audacity's Technique Guide</u></a></li>
+<li><a href="https://media-tips.techidaily.com/best-dlna-players-and-screen-casting-software-for-windows-10-and-7/"><u>Best DLNA Players & Screen Casting Software for Windows 10 and 7</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-value-of-lg-24lh4830-smart-tvs-premium-performance-at-a-budget-friendly-price/"><u>Discover the Value of LG 24LH4830 Smart TVs - Premium Performance at a Budget-Friendly Price</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/dji-mavic-2-pro-review/"><u>DJI Mavic 2 Pro Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elite-list-of-exercise-companion-devices-best-picks/"><u>Elite List of Exercise Companion Devices: Best Picks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-nickwatchs-grand-american-arrival-aligned-with-the-spectacular-atmosphere-of-kids-choice-award-night/"><u>Experience NickWatch's Grand American Arrival, Aligned with The Spectacular Atmosphere of Kids' Choice Award Night</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-premium-hd-with-caixuns-cost-effective-75-4k-android-tv-a-worthy-investment/"><u>Experience Premium HD with Caixun's Cost-Effective 75 4K Android TV: A Worthy Investment!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-byb-e430-led-light-fixture-assessment-the-ultimate-swing-arm-illumination/"><u>Expert BYB E430 LED Light Fixture Assessment: The Ultimate Swing Arm Illumination</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-the-maisto-rock-crawler-an-rc-vehicle-that-bonds-families-together/"><u>Expert Insights on the Maisto Rock Crawler: An RC Vehicle That Bonds Families Together</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-insights-a-closer-look-at-the-newest-apple-homepod-minis-features-functionality-and-user-experience/"><u>Expert Insights: A Closer Look at the Newest Apple HomePod Mini's Features, Functionality & User Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-most-advanced-and-user-friendly-smart-speakers-of-2024/"><u>Exploring The Most Advanced and User-Friendly Smart Speakers of 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/inside-scoop-on-googleer-future-plans-what-to-expect-in-their-next-big-launch/"><u>Inside Scoop on Google'er Future Plans: What to Expect in Their Next Big Launch</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/the-ultimate-guide-to-movie-trailer-apps-for-iphone-and-ipad-users/"><u>The Ultimate Guide to Movie Trailer Apps for iPhone and iPad Users</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unleash-on-the-go-energy-discovering-the-new-features-of-the-ampace-andes-1500/"><u>Unleash On-the-Go Energy: Discovering the New Features of the Ampace Andes 1500</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-demystifying-pexels-your-comprehensive-guide-to-free-imagery/"><u>Updated In 2024, Demystifying Pexels Your Comprehensive Guide to Free Imagery</u></a></li>
+</ul></div>
+

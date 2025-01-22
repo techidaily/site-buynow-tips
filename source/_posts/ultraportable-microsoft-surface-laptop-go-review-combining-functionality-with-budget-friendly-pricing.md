@@ -1,7 +1,7 @@
 ---
 title: "Ultraportable Microsoft Surface Laptop Go Review: Combining Functionality with Budget-Friendly Pricing"
-date: 2024-08-09T00:56:18.925Z
-updated: 2024-08-10T00:56:18.925Z
+date: 2025-01-17T16:46:19.612Z
+updated: 2025-01-22T08:10:48.206Z
 categories:
   - BestProducts
 description: "This Article Describes Ultraportable Microsoft Surface Laptop Go Review: Combining Functionality with Budget-Friendly Pricing"
@@ -13,11 +13,12 @@ thumbnail: https://thmb.techidaily.com/cbe88b794b4a33f4b9a69a7996ceb63e4276735d9
 
 4.5
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Logitech C615 HD Laptop Webcam
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/jgH6j34_PXXE9fO2vS4Nr4d3pSM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_HERO_3LW4065141_3_Final_Square-204b4e949e864f148cd513b3511eac69.jpg)
 
 Lifewire / James Huenink
@@ -39,11 +40,6 @@ Lifewire / James Huenink
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ## Logitech C615 HD Laptop Webcam
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/9YqP4BNKZ_F27rxIYbc3f1vqzd0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_HERO_3LW4065141_3_Final_Square-204b4e949e864f148cd513b3511eac69.jpg)
@@ -72,9 +68,6 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design:** **Flexible, foldable design**
 
  The Logitech C615 is a compact webcam. The whole device folds up into a very small package, just 2.5” wide, 1.25” tall, and 1.5” wide, so you can tuck it into a pocket. When you open it up, the flexible design is simple to position. Unfolded, the webcam has three pieces: the base, neck, and[camera](https://www.lifewire.com/best-digital-cameras-under-100-3897833) . The base is the heaviest part, which means that the camera stays upright even if you don’t perfectly balance everything. The top is made out of a soft, rubbery plastic, and the bottom has a rubbery dot that keeps the base from sliding around. The dot comes off the base to reveal a tripod post, so this camera is compatible with a standard tripod. The only problem is that the dot comes off completely when the tripod post is exposed. If you're prone to losing things, this may be an issue.
@@ -85,16 +78,10 @@ Lifewire / James Huenink
 
  The camera section is made of black plastic with a cropped silver plastic circle around the lens. To the left of the lens there’s an indicator light to show when the camera is on, and the microphone sits to the right of the lens. The 360 swivel not only makes the Logitech C615 easy to position, it also makes it possible to fold the camera lens in on itself to protect it on the go.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/jgQ_lVlvzgmXFPpBg5nEd6pgV_c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_12_Final_Horiz-e97c48d3af6842eb88775a9d703ce2b6.jpg)
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ## **Camera Quality: Quality camera with some autofocus troubles**
 
  The camera takes 1080p video and has a 2 MP sensor. We tested the webcam’s photo capabilities by taking a picture of some packaging. Color was well represented, but the autofocus was just a bit off. The image was just a bit blurry, and we couldn’t read the smaller words at all. This wasn’t a problem close up, but it made a bigger difference when people were far away.
@@ -107,6 +94,10 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/Bko9Uk1HIIMt9aNgtBf9ATCy0AA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_14_Final_Horiz-4f1b9fe91b8c4229b17dbbe6afb81b8c.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / James Huenink
 
 ## **Performance: Decent sound quality for a small mic**
@@ -115,16 +106,25 @@ Lifewire / James Huenink
 
  When we used Skype to make calls everything worked great. The HD camera made the video look great, and video and sound were in sync. Close up, the sound was clear but with a thin, distorted tone. From 10 feet away, we heard only a small amount of echo in the call. We also tried using the camera mic with video game noise in the background. The camera clearly caught our voices and downplayed the background noise, helping us focus on what we wanted to hear.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/C2UBXNFmxG8nA0udy1IprMH4LBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_9_Final_Horiz-1af52951f8704af9b76d7dd1ec9744a9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / James Huenink
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Inexpensive HD camera**
 
  The Logitech C615 costs $70 MSRP, but you can find it for about half that cost. Even at full price, it's a solid value. The thoughtful design, image quality, and microphone clarity easily justify the price tag.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Acquits itself well against the competition**
 
@@ -142,9 +142,6 @@ Lifewire / James Huenink
 
  The Logitech C615 Webcam strikes the perfect balance between performance and affordability. The quality design, high definition video, and quality sound make this an excellent webcam for most tasks at a great price.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  C615 HD Laptop Webcam
@@ -168,11 +165,33 @@ Lifewire / James Huenink
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-from-viral-soundtracks-to-personalized-phone-alerts-a-how-to-guide/"><u>[New] From Viral Soundtracks to Personalized Phone Alerts – A How-To Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-mastering-personal-tones-androids-ringtone-and-sound-guide/"><u>[Updated] In 2024, Mastering Personal Tones Android's Ringtone & Sound Guide</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-streaming-supremacy-pick-the-best-tool-for-your-vlogs-and-streams/"><u>2024 Approved Streaming Supremacy Pick the Best Tool for Your Vlogs & Streams</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-smart-home-security-detailed-look-at-under-50-video-doorbells-including-iseebell-options/"><u>Affordable Smart Home Security: Detailed Look at Under $50 Video Doorbells Including ISeeBell Options</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-topmate-c302-laptop-cooler-evaluation-cost-efficient-and-superior-performance/"><u>Affordable TopMate C302 Laptop Cooler Evaluation: Cost-Efficient & Superior Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/assessment-alert-how-oneplus-9s-value-equation-doesnt-add-up/"><u>Assessment Alert: How OnePlus 9'S Value Equation Doesn't Add Up</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/aukey-30-usb-hub-assessment-compact-design-powerful-performance/"><u>Aukey 3.0 USB Hub Assessment: Compact Design, Powerful Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/avantrees-new-frontier-revolutionary-headphones/"><u>Avantree's New Frontier: Revolutionary Headphones</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-brilliance-with-the-arcshell-ar-5-comprehensive-review/"><u>Budget-Friendly Brilliance with the Arcshell AR-5: Comprehensive Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/common-stock-cs-number-of-common-shares-par-value-per-share/"><u>Common Stock (CS) = Number of Common Shares Par Value per Share</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-aukey-30-usb-hub-stylish-and-practical/"><u>Comprehensive Evaluation of the Aukey 3.0 USB Hub - Stylish and Practical</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-on-the-performance-and-quality-of-rca-video-doorbells-cameras/"><u>Comprehensive Review on the Performance & Quality of RCA Video Doorbells Cameras</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/easy-peasy-stellars-qtp-file-revival-tips/"><u>Easy-Peasy: Stellar's QTP File Revival Tips</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/exploring-differences-in-vimeo-and-youtube-services-for-2024/"><u>Exploring Differences in Vimeo & YouTube Services for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/improving-blog-commentaries-with-ai-wisdom/"><u>Improving Blog Commentaries with AI Wisdom</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-premier-auto-track-cam-mount-for-smooth-shots/"><u>In 2024, Premier Auto-Track Cam Mount for Smooth Shots</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/inside-openais-innovation-the-evolution-and-distinctions-of-generative-pre-trained-transformer-versions-gpt-1-to-gpt-4-decoded/"><u>Inside OpenAI's Innovation: The Evolution and Distinctions of Generative Pre-Trained Transformer Versions - GPT-1 to GPT-4 Decoded</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/is-your-facebook-video-more-engaging-in-a-vertical-format-in-2024/"><u>Is Your Facebook Video More Engaging in a Vertical Format, In 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unlocking-ai-potential-for-enhanced-wellbeing-with-chatgpt/"><u>Unlocking AI Potential for Enhanced Wellbeing with ChatGPT</u></a></li>
+</ul></div>
+

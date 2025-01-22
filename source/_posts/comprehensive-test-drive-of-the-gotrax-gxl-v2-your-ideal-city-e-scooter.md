@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Test Drive of the Gotrax GXL V2 - Your Ideal City E-Scooter
-date: 2024-08-09T00:56:18.462Z
-updated: 2024-08-10T00:56:18.462Z
+date: 2025-01-14T23:47:41.708Z
+updated: 2025-01-21T21:21:43.218Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Test Drive of the Gotrax GXL V2 - Your Ideal City E-Scooter
@@ -14,11 +14,16 @@ thumbnail: https://www.lifewire.com/thmb/LIktfuJxRnHbVbsZnWllTtIHeuA=/400x300/fi
 4.5
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/mk2ndJKMrOgGOYfE8uNwJVYkaTk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
 
@@ -43,10 +48,11 @@ Lifewire / Nick Jaynes
 
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/kUpys0K04ePH0SuEfAENz--MXSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
 
@@ -69,9 +75,6 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: All-plastic, but sturdy and subtle**
 
  The Anker PowerDrive 2 might not be the sharpest or most cutting-edge looking in-car USB charger, but what it lacks in visual pizazz, it more than makes up for in sturdiness.
@@ -94,9 +97,6 @@ Lifewire / Nick Jaynes
 
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Middle of the pack**
 
  The list price of $14.99 is positioned in the mid-range of the USB charger market, which ranges from just a few dollars to upwards of $50 for some fancier chargers. However, Anker PowerDrive 2 can be had for a discounted price on some websites. Considering the fact that the Anker PowerDrive 2 includes both the fast-charger and a 3-foot micro USB cable, it is well priced for the marketplace.
@@ -104,9 +104,9 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Competition: A handful of rivals**
 
  The RAVPower 24W charger is one of Anker’s main rivals. It has a metal exterior, a lower price tag, and theoretically identical power output. However, its construction is far less robust. In fact, its metal outside easily separates from the internal components easily making Anker a better pick for longevity.
@@ -122,8 +122,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  The price is fair, the charging is fast, and the design is unobtrusive. It’s hard to ask for much more.
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  PowerDrive 2 24W Dual USB Car Charger
@@ -141,11 +142,31 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-cutting-edge-tools-free-youtube-intro-creators-for-2024/"><u>[New] Cutting-Edge Tools Free YouTube Intro Creators for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-maximize-engagement-on-instagram-using-these-top-25-tags/"><u>[New] Maximize Engagement on Instagram Using These Top 25 Tags</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-next-level-action-gopro-hero5-black-meets-hero4-silver/"><u>[Updated] Next-Level Action GoPro Hero5 Black Meets Hero4 Silver</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-targeted-success-identifying-youtube-niche-demand/"><u>[Updated] Targeted Success Identifying YouTube Niche Demand</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-critique-on-the-photo-capture-of-the-google-pixel-6-targeting-key-features/"><u>A Critique on the Photo Capture of the Google Pixel 6 – Targeting Key Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-watch-series-6-evaluation-subtle-improvements-yet-maintains-top-rank/"><u>Apple Watch Series 6 Evaluation: Subtle Improvements Yet Maintains Top Rank</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/asus-ax6000-rt-ax88u-top-smart-wi-fi-6-router-evaluated/"><u>Asus AX6000 RT-AX88U - Top Smart Wi-Fi 6 Router Evaluated</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/asus-vg245h-the-definitive-display-choice-for-avid-console-gamers/"><u>Asus VG245H: The Definitive Display Choice for Avid Console Gamers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-on-the-go-car-start-kits-2024/"><u>Best On-the-Go Car Start Kits 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/bluetooth-enabled-blueear-beanie-hat-the-perfect-marriage-of-fashion-and-function-for-your-ears/"><u>Bluetooth-Enabled Blueear Beanie Hat: The Perfect Marriage of Fashion and Function for Your Ears</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-vyncs-link-reviews-a-reliable-analytics-tool-and-its-puzzling-subscription-tiers/"><u>Comprehensive Guide to Vyncs Link Reviews: A Reliable Analytics Tool and Its Puzzling Subscription Tiers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/culinary-havoc-a-savory-in-depth-review-of-overcooked-2/"><u>Culinary Havoc: A Savory In-Depth Review of Overcooked! 2</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/immediate-fixes-for-overcoming-valorants-persistent-graphics-driver-crash-glitch/"><u>Immediate Fixes for Overcoming Valorant's Persistent 'Graphics Driver Crash' Glitch</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-oppo-reno-11-pro-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Oppo Reno 11 Pro 5G PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-smoother-video-playback-on-chromebook-and-mobile-devices/"><u>In 2024, Smoother Video Playback on Chromebook & Mobile Devices</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/perfect-timing-for-instagram-loops-key-strategies-revealed-for-2024/"><u>Perfect Timing for Instagram Loops Key Strategies Revealed for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/pro-win-power-play-essential-apps-to-boost-workday-on-windows-11/"><u>Pro-Win Power Play: Essential Apps to Boost Workday on Windows 11</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: A Closer Look at the HeimVision Sunrise Alarm A80S - A Basic Yet Effective Light Therapy Solution
-date: 2024-08-09T00:56:20.808Z
-updated: 2024-08-10T00:56:20.808Z
+date: 2025-01-17T05:35:48.386Z
+updated: 2025-01-22T10:32:47.539Z
 categories:
   - BestProducts
 description: This Article Describes A Closer Look at the HeimVision Sunrise Alarm A80S - A Basic Yet Effective Light Therapy Solution
@@ -13,9 +13,6 @@ thumbnail: https://www.lifewire.com/thmb/6dhhTAUVbZdfUmg7O9oz56u2Vj0=/400x300/fi
 
 3.2
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## AmazonBasics 7 Port USB 3.0
 
 ![AmazonBasics 7 Port USB 3.0](https://www.lifewire.com/thmb/61zrtwf2XnDfg9oA0igeVIB2E3M=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_HeroSquare-b4652c2651b5474f84409577b3760479.jpg)
@@ -39,11 +36,12 @@ Lifewire / Jonno Hill
 
 3.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## AmazonBasics 7 Port USB 3.0
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ![AmazonBasics 7 Port USB 3.0](https://www.lifewire.com/thmb/lDufXTneOT2NDnXEOTNXauWZKtU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_HeroSquare-b4652c2651b5474f84409577b3760479.jpg)
 
 Lifewire / Jonno Hill
@@ -69,16 +67,10 @@ Lifewire / Jonno Hill
 
  The AmazonBasics 7 Port USB 3.0 Hub definitely offers a lot of bang for your buck, but we have some quality control qualms that prevent this from being an instant recommendation. If you're on a budget and you need a lot of[USB ports](https://www.lifewire.com/what-is-a-usb-port-818166) , you might still want to consider this option, but let’s dig into the details before you make your purchase.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/wXgyw4YH3MYx3AO1YEPSdvla-IQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_02-d9ec8728693e42e9b7ca7d3108d37ba6.jpg)
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: A clean look, with some awkward ports**
 
  Measuring 5.7 x 2.6 x 1.1 inches (HWD), the AmazonBasics 7 Port USB 3.0 Hub is not a particularly petite or compact device, but it does do itself some favors in the design department. The slanted body contains two connections on its left, one for the power and one for the USB-B port. On the back, you’ll find five standard USB 3.0 Type-A ports. The right side contains two fast-charge ports capable of supplying more than the standard power, so long as you’ve connected the hub to an outlet using the power cable. Finally, the top contains a simple blue LED, which lit up as soon as we connected the USB cable to the computer.
@@ -101,9 +93,6 @@ Lifewire / Jonno Hill
 
  The AmazonBasics 7 Port USB 3.0 Hub is an otherwise capable device that is unfortunately marred by quality control issues and cheap construction.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## **Connectivity: A sufficient number of options**
 
  The AmazonBasics 7 Port USB 3.0 Hub comes with a three-foot USB (A-to\_B) cable to connect to your computer. This should be sufficient for most users, and worked well in our setup. An AC power adapter is included as well, and it comes with a fairly substantial power brick.
@@ -112,16 +101,25 @@ Lifewire / Jonno Hill
 
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/Ep4bZmgChjDyFofASwezrrPrDYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_04-e00baf7ec07a4762bf437cde18e2b4de.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Just what you’d expect**
 
  The AmazonBasics 7 Port USB 3.0 Hub performed as expected in our tests, providing USB 3.0 Gen 1 speeds. The five ports in the back supply the standard 0.9A of power, whereas the ports on the side, designed for fast charging, can supply up to 1.5A. If you neglect to connect the hub to a power source, the entire device will have to share the 0.9A of power supplied by your computer’s[USB 3.0 port](https://www.lifewire.com/what-is-usb-3-0-2626038) .
 
  The five ports in the back supply the standard 0.9A of power, whereas the ports on the side, designed for fast charging, can supply up to 1.5A.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: You get what you pay for**
 
@@ -130,6 +128,10 @@ Lifewire / Jonno Hill
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/AnTpc7CmLFfbEILGIFkFiA9Ur2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_03-063f9486bd7045c18c0643276029f85e.jpg)
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **AmazonBasics 7 Port USB 3.0 Hub vs. Aukey USB Hub 3.0**
 
@@ -143,10 +145,6 @@ Lifewire / Jonno Hill
 
  The AmazonBasics 7 Port USB 3.0 Hub is an otherwise capable device that is unfortunately marred by quality control issues and cheap construction. That said, if you don’t care as much about design and construction quality, it might still be a good affordable option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  7 Port USB 3.0
@@ -161,14 +159,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Compatibility  Windows 2000/Win XP/Vista/Windows 7 & Mac 10.1 up
 * Warranty  30 days
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -176,3 +171,22 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-step-by-step-guide-to-optimize-your-instagram-posts-using-hashtags/"><u>[New] Step-by-Step Guide to Optimize Your Instagram Posts Using Hashtags</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1723010886742-easy-fixes-for-your-fortnite-login-issues-resolved/"><u>Easy Fixes for Your Fortnite Login Issues - Resolved</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/global-ai-dialogue-what-experts-say/"><u>Global AI Dialogue: What Experts Say</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-design-dynamics-realizing-color-potential/"><u>In 2024, Design Dynamics Realizing Color Potential</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/e-android-which-has-the-better-youtube-experience-in-2024/"><u>IPhone, Android Which Has the Better YouTube Experience, In 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-infinix-hot-40i-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Infinix Hot 40i Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/team-triumphs-5-winning-multiplayer-ways-to-play-mc-together/"><u>Team Triumphs: 5 Winning Multiplayer Ways to Play MC Together</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-new-era-of-smart-displays-echo-4gen-analyzed-and-appraised/"><u>The New Era of Smart Displays: Echo (4Gen) Analyzed and Appraised</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-perfect-blend-of-price-and-performance-in-a-hisense-50-4k-hdr-tv/"><u>The Perfect Blend of Price and Performance in a Hisense 50 4K HDR TV</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-blueear-bluetooth-beanie-aesthetic-comfortable-and-audio-aware-accessory/"><u>The Ultimate Guide to the Blueear Bluetooth Beanie: Aesthetic, Comfortable & Audio-Aware Accessory</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-car-audio-experts-rate-the-aphaca-bt69-is-it-the-leading-wireless-bluetooth-fm-radio-for-your-dashboard/"><u>Top Car Audio Experts Rate the Aphaca BT69: Is It the Leading Wireless Bluetooth FM Radio for Your Dashboard?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-power-protection-with-integrated-charging-detailed-review-of-apcs-be600m1-back-ups-model/"><u>Top Rated Power Protection with Integrated Charging: Detailed Review of APC's BE600M1 Back-UPS Model</u></a></li>
+<li><a href="https://some-tips.techidaily.com/transform-into-your-favorite-superhero-using-apple-vision-pro-learn-more-on-may-ve/"><u>Transform Into Your Favorite Superhero Using Apple Vision Pro - Learn More on May Ve</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-reinstall-your-drivers-in-windows-11-and-10-by-drivereasy-guide/"><u>Use Device Manager to reinstall your drivers in Windows 11 & 10</u></a></li>
+</ul></div>
+

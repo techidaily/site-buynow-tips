@@ -1,7 +1,7 @@
 ---
 title: "Top Anker Super Bright Flashlight: Ultimate Guide to a Rugged, High-Lumen Outdoor Light"
-date: 2024-08-09T00:56:22.454Z
-updated: 2024-08-10T00:56:22.454Z
+date: 2025-01-20T03:42:11.403Z
+updated: 2025-01-21T20:27:20.440Z
 categories:
   - BestProducts
 description: "This Article Describes Top Anker Super Bright Flashlight: Ultimate Guide to a Rugged, High-Lumen Outdoor Light"
@@ -13,12 +13,17 @@ thumbnail: https://thmb.techidaily.com/6d08ef0c51b7d66c7e631fe3667e11cb568cec8b1
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/NWhMBmuK3pkL9EGvdNCEAF8sWEo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -41,18 +46,11 @@ Lifewire / Jeffrey Daniel Chadwick
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
 
 Lifewire / Jeffrey Daniel Chadwick
@@ -78,8 +76,9 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -101,6 +100,10 @@ Lifewire / Jeffrey Daniel Chadwick
  When you do finally get it wrapped up, the pump fits nicely in its included carrying case. It’s made of gore-tex, a fairly durable material, so it can take the punishment of being stored long-term in your trunk, and it’s compact enough that it won’t take up much room.
 
  Lifewire / Jeffrey Daniel Chadwick
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: T-minus one minute**
 
@@ -132,9 +135,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
  The Kensun Portable Tire Inflator is similar to the Jaco Digital Tire Inflator, they have similar cord and hose lengths, and can continually run for about half an hour. But the Kensun is more than twice the size of the Jaco, so it can deliver more power to fill your tires faster. Additionally, the Jaco lacks the ability to plug into an AC socket, so you can only use it in your car.
@@ -149,9 +149,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  AC/DC Portable Air Pump Tire Inflator
@@ -168,11 +165,33 @@ Lifewire / Jeffrey Daniel Chadwick
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-characters-that-captivate-key-growth-strategies/"><u>[New] In 2024, Characters That Captivate Key Growth Strategies</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-learning-the-pixiz-method-for-photo-based-video-crafting/"><u>[New] In 2024, Learning the Pixiz Method for Photo-Based Video Crafting</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-optimal-techniques-recording-console-games-via-pc/"><u>[New] In 2024, Optimal Techniques Recording Console Games via PC</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-perfect-ringtones-leading-download-pages/"><u>[New] Perfect Ringtones Leading Download Pages</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-strategies-for-effective-obs-live-feeds-on-facebook-for-2024/"><u>[New] Strategies for Effective OBS Live Feeds on Facebook for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-your-path-to-perfect-iphone-hdr-photos/"><u>[New] Your Path to Perfect iPhone HDR Photos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-top-8-best-video-grabbers-for-windows-11/"><u>[Updated] 2024 Approved Top 8 Best Video Grabbers for Windows 11</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/amplifi-hd-mesh-system-insights-how-to-achieve-uninterrupted-home-internet-coverage/"><u>Amplifi HD Mesh System Insights: How to Achieve Uninterrupted Home Internet Coverage</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/can-you-upgrade-a-laptop-cpu/"><u>Can You Upgrade a Laptop CPU?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-minecrafts-campfire-stories-skins-edition-analysis/"><u>Comprehensive Guide: Minecraft's Campfire Stories Skins Edition Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decision-time-alexa-vs-google-assistant-who-wins-as-your-smart-companion/"><u>Decision Time! Alexa Vs. Google Assistant – Who Wins as Your Smart Companion?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/guia-paso-a-paso-como-subir-tus-dvd-al-cielo-digital-con-google-drive-y-icloud/"><u>Guía Paso a Paso: Cómo Subir Tus DVD Al Cielo Digital Con Google Drive Y iCloud</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/insightful-look-at-the-samsung-galaxy-tab-a-2020-the-critical-feature-it-fails-to-include/"><u>Insightful Look at the Samsung Galaxy Tab A (2020) - The Critical Feature It Fails to Include</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/microsoft-office-substitutes-the-best-picks/"><u>Microsoft Office Substitutes: The Best Picks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/romers-powerful-and-portable-chargeable-searchlight-review-ideal-for-camping-and-hiking/"><u>Romer's Powerful and Portable Chargeable Searchlight Review: Ideal for Camping and Hiking</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-programming-classes-2024s-best-online-learning-platforms-unveiled/"><u>Top Rated Programming Classes: 2024'S Best Online Learning Platforms Unveiled!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/understanding-iphones-eco-friendly-upgrade-scheme/"><u>Understanding iPhone’s Eco-Friendly Upgrade Scheme</u></a></li>
+</ul></div>
+

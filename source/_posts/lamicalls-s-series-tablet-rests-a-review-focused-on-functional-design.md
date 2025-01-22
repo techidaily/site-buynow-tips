@@ -1,7 +1,7 @@
 ---
 title: Lamicall's S Series Tablet Rests - A Review Focused on Functional Design
-date: 2024-08-09T00:56:18.645Z
-updated: 2024-08-10T00:56:18.645Z
+date: 2025-01-20T18:04:23.317Z
+updated: 2025-01-22T04:43:00.885Z
 categories:
   - BestProducts
 description: This Article Describes Lamicall's S Series Tablet Rests - A Review Focused on Functional Design
@@ -14,14 +14,16 @@ thumbnail: https://www.lifewire.com/thmb/yC6On-qzCLHr0FNrslUOZ9Rzvys=/400x300/fi
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Godfall
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Godfall](https://www.lifewire.com/thmb/n7w43dN9-ygwWWDulxhPK9JDT80=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Godfall-PC-Game-1-d3b0021c9f1f4c90a844bf0e8f8fcb25.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Rebecca Isaacs / Lifewire
 
@@ -46,6 +48,10 @@ Rebecca Isaacs / Lifewire
 [View On Amazon $9](https://www.amazon.com/Godfall-PS5-Playstation-5/dp/B08JF5HQF1/?tag=lifewire-onsite-prod-20&ascsubtag=5095668%7Cn6b2b9528d65d46e9b38f6c7bf3ea9a3a05%7CB08JF5HQF1) [View On Walmart $17](https://www.walmart.com/ip/Godfall-for-PlayStation-5/842370163) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-5/games/products/godfall/11109001.html?condition=New)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Godfall
 
@@ -74,11 +80,12 @@ Rebecca Isaacs / Lifewire
 
 ![Godfall](https://www.lifewire.com/thmb/H6t9YHOQhs7GMJ8lP75_d2mnMVU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-4-cd60ab2e603a4efaa0031f8aa5743fb4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Rebecca Isaacs / Lifewire
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Plot: What’s that?
 
  “It was all a lie,” the narrator says, signaling the beginning of the game. What follows is an elaborate cut scene depicting everything I’d want in an adventure game: betrayal, battle, and of course, a desire for bloodthirsty vengeance.
@@ -89,9 +96,6 @@ Rebecca Isaacs / Lifewire
 
  If the devil is in the details, then Counterplay sold its soul to ensure that every leaf had ridges and grooves.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ## Graphics: Gorgeous
 
  For a bland plot, Godfall really brings its A-game with the graphics. Some of the scenes as I ran across streams and trails brought out vivid hues and beautiful environments. If the devil is in the details, then Counterplay Games sold its soul to ensure that every leaf had ridges and grooves. In that aspect, the game shines, and I felt transported into the world as I ran around destroying my enemies with a greatsword.
@@ -108,9 +112,6 @@ Rebecca Isaacs / Lifewire
 
  Each of the armor sets, based on various animals, comes with different perks, which makes for unique gameplay if you prefer poison or shock to fire damage. It can take some time to craft, modify, and upgrade both the Valorplates and weapons. More importantly, it takes time to gather the materials, so as you continue the game, you’ll have repeat quests and maps.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Godfall](https://www.lifewire.com/thmb/lkXYe9qqH3ccZewQudKpzPWU4Xc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-2-fc516034a42a462ba1b4ab03bcc76269.jpg)
 
 Rebecca Isaacs / Lifewire
@@ -127,16 +128,10 @@ Rebecca Isaacs / Lifewire
 
  Not all the gameplay features are gripe worthy though. With up close combat, dying is inevitable, and Godfall makes sure to address the risk of constant death in three ways: a practice arena in between missions, where you can test out your latest combos; easy, fast leveling; and no death penalty. While some players will most likely balk at no death penalty, casual gamers will enjoy not having to worry about the loss of experience or equipment durability.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Godfall](https://www.lifewire.com/thmb/xztzESfeykd-1UUo9xAOFt8EPNE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-7-4a134c4dc6304645aaeb4ff4a0badefa.jpg)
 
 Rebecca Isaacs / Lifewire
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Platform: PS5 or PC
 
  Godfall is pretty straightforward with its platforms: PlayStation 5, or Windows PCs. It does not work on Macs, so take that into consideration before you make your purchase. In terms of gameplay, neither platform really weighs better than the other, though PC gamers with ultrawide screens may have some issues getting the correct resolution set.
@@ -145,15 +140,15 @@ Rebecca Isaacs / Lifewire
 
 Rebecca Isaacs / Lifewire
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## Price: Overpriced for the amount of content available
 
  If Godfall was priced around $30, I would have been more sympathetic to its cause. However, the base game itself will cost around $60 before any kind of sale. If you want to upgrade to a higher edition, such as Deluxe or its top edition, Ascended, that will run you up to $90\. That much money for a game that seems half-finished and still requires 50GB of SSD memory is, quite frankly, way too much for anyone to pay. This is also not including the option of pre-order and Ascended content, each of which will cost another $10.
 
  I’ll be brutally honest here: if it’s between Godfall and Warframe, Warframe is easily a better game.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Godfall vs. Warframe
 
@@ -170,6 +165,10 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
  **Scenery doesn’t make up for lackluster gameplay.**
 
  If you’re looking for a mindless hack and slash game to play, this might be a go-to game for you, especially if you like Warframe. But as much as I loved the graphics, I can’t recommend Godfall based on the landscapes alone. If you feel obligated to try out a melee looter slasher, wait for a sale, but for most people you can find better games to play.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -194,14 +193,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 * Graphics  Nvidia GeForce GTX 1060, 6 GB | AMD Radeon RX 580, 8 GB
 * Network  Internet connection required
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -209,3 +205,19 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-elevate-your-photos-learn-bg-removal-with-picsart-tools/"><u>[New] Elevate Your Photos Learn Bg Removal with Picsart Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-essential-top-6-digital-engagement-channels-for-companies-for-2024/"><u>[New] Essential Top 6 Digital Engagement Channels for Companies for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-scalable-success-lawful-techniques-for-video-visibility/"><u>[New] In 2024, Scalable Success Lawful Techniques for Video Visibility</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-mastering-documentary-script-artistry/"><u>[Updated] 2024 Approved Mastering Documentary Script Artistry</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/engage-your-senses-with-epic-space-skirmishes-unveiling-the-thrills-of-star-wars-squadrons/"><u>Engage Your Senses with Epic Space Skirmishes – Unveiling the Thrills of Star Wars: Squadrons</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/enjoy-top-notch-viewing-experience-with-lgs-economical-24lh4830-smart-tv-model/"><u>Enjoy Top-Notch Viewing Experience with LG's Economical 24LH4830 Smart TV Model</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/essential-guide-to-maximizing-productivity-with-onetastic-in-onenote/"><u>Essential Guide to Maximizing Productivity with Onetastic in OneNote</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/essential-points-of-evaluation-prior-to-investing-in-a-new-printer/"><u>Essential Points of Evaluation Prior to Investing in a New Printer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-advice-setting-up-a-personalized-account-for-nintendo-network-access-on-3ds-systems/"><u>Expert Advice: Setting Up a Personalized Account for Nintendo Network Access on 3DS Systems</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Samsung Galaxy M34 | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/meme-ing-in-virtual-space-top-funny-vr-imagery-and-how-to-make-it-for-2024/"><u>Meme-Ing in Virtual Space Top Funny VR Imagery and How to Make It for 2024</u></a></li>
+</ul></div>
+

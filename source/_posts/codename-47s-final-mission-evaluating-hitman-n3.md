@@ -1,7 +1,7 @@
 ---
 title: Codename 47'S Final Mission - Evaluating Hitman N3
-date: 2025-01-15T00:26:28.539Z
-updated: 2025-01-15T17:19:16.420Z
+date: 2025-01-19T05:06:38.253Z
+updated: 2025-01-21T16:03:15.327Z
 categories:
   - BestProducts
 description: This Article Describes Codename 47'S Final Mission - Evaluating Hitman N3
@@ -13,13 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/AwbntFgVtLSySFxBHhfpOAZftYc=/400x300/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Amazon Luna
 
 ![Amazon Luna](https://www.lifewire.com/thmb/D9MecP2109T2iYhabM0CPBRirFA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_Hero_Square-cced3e5a3d3e4d24af1b85a59c76932d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -44,9 +44,17 @@ Lifewire / Jeremy Laukkonen
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Amazon Luna
 
 ![Amazon Luna](https://www.lifewire.com/thmb/NT3lnZ3hOwaGUbS2tHARE7zRT1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_Hero_Square-cced3e5a3d3e4d24af1b85a59c76932d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -74,7 +82,7 @@ Lifewire / Jeremy Laukkonen
  Luna is an impressive service with what seems like solid underlying tech right out of the gate. The biggest questions seem to be how and when Amazon will go about filling holes in the library, how well the service will work when they eventually roll out 4K streaming, and whether we’ll see better Android support in the future.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Design and Controls: Decent enough app and a nearly flawless controller
@@ -92,10 +100,6 @@ Lifewire / Jeremy Laukkonen
  The controller is similarly unassuming, and Amazon clearly isn’t trying to rock the boat there. It’s extremely similar in profile to an Xbox One controller, right down to the positioning of the offset analog sticks. This configuration has long been my favorite, with the Sony-style side-by-side analogs feeling cramped, so the Luna controller feels instinctually good in my hands. If you’re a fan of the Xbox One controller, you’ll likely feel the same. If you don’t like the Xbox-style design for whatever reason, then you may at least appreciate the fact that the build quality of the controller feels quite solid, and it’s very snappy and responsive in use.
 
 ![Amazon Luna](https://www.lifewire.com/thmb/jNDwaMGOVuF5UIISPsmdb5uQdGU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_04-985a4419a93945d2879b09d61fafae5a.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -117,10 +121,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Amazon Luna](https://www.lifewire.com/thmb/6427gP-MSnqe4st8hfuI-7yxlos=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_03-f12a92bc606e43caa77b445a2fdcf1c1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Jeremy Laukkonen
 
  If you do opt to link your controller to your Amazon account when you buy it, and you already own other Amazon devices like[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) that are connected to your Wi-Fi connection, then you can take advantage of Amazon’s Wi-Fi simple setup that shaves some time off the setup process. Otherwise, you just use the Luna controller app on your Android or iPhone to hook the controller up to Wi-Fi.
@@ -128,7 +128,7 @@ Lifewire / Jeremy Laukkonen
  After the initial setup process, your Luna controller is ready to go regardless of platform. Power on the controller, launch the Luna app or website, and everything automatically connects without any additional work or input.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Performance: Impressive game streaming, but no 4K
@@ -164,7 +164,7 @@ Lifewire / Jeremy Laukkonen
 ![Amazon Luna](https://www.lifewire.com/thmb/NBB1N6qtwbtdjrUgwr1YaBaTuBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_02-37837bf860d244d3ab11ff01f37c609c-db472e204ada4ccca88e7510eacfae34.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -233,17 +233,24 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-diving-deep-reviewing-your-old-tweets/"><u>[Updated] 2024 Approved Diving Deep Reviewing Your Old Tweets</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-vivacut-review-unpacking-the-latest-editing-advancements/"><u>[Updated] 2024 Approved VivaCut Review Unpacking the Latest Editing Advancements</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-threads-of-time-looms-screen-record-mastery-for-2024/"><u>[Updated] Threads of Time Loom's Screen Record Mastery for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-essential-tutorial-on-using-snapchat-spotlight/"><u>2024 Approved The Essential Tutorial on Using Snapchat Spotlight</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/download-and-use-ai-powered-conversation-bot-on-windows-for-free/"><u>Download & Use AI-Powered Conversation Bot on Windows For FREE!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/examining-the-sharpness-of-panasonic-hc-wxf991/"><u>Examining the Sharpness of Panasonic HC-WXF991</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/from-hdd-to-hd-in-a-blink-supercharge-your-mac-with-an-ssd/"><u>From HDD to HD in a Blink: Supercharge Your Mac with an SSD</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Lava Yuva 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-quick-tips-for-ios-screen-record/"><u>In 2024, Quick Tips for iOS Screen Record</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/inside-the-oculus-quest-2-affordable-premium-vr-gaming-and-entertainment/"><u>Inside the Oculus Quest 2 - Affordable Premium VR Gaming and Entertainment</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/microsoft-surface-go-review/"><u>Microsoft Surface Go Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/why-the-tp-link-archer-c9-stands-out-in-budget-routers-market/"><u>Why the TP-Link Archer C9 Stands Out in Budget Routers Market</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-elevate-your-editing-skills-with-pro-color-techniques-for-2024/"><u>[New] Elevate Your Editing Skills with Pro Color Techniques for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-elevate-visual-content-with-free-animation-text/"><u>[New] In 2024, Elevate Visual Content with FREE Animation Text</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-boost-your-visibility-fast-instagram-likes-and-vids/"><u>[Updated] Boost Your Visibility Fast Instagram Likes & Vids</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-the-secrets-to-attractive-profile-videos/"><u>[Updated] In 2024, The Secrets to Attractive Profile Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-leading-tactics-sourcing-high-quality-photo-and-video-backdrops-for-2024/"><u>[Updated] Leading Tactics Sourcing High-Quality Photo & Video Backdrops for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-and-versatile-asus-chromebook-flip-c3-ca-an-in-depth-product-assessment/"><u>Affordable & Versatile Asus Chromebook Flip C3# CA - An In-Depth Product Assessment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cat-quest-a-puzzle-playtime/"><u>Cat Quest: A Puzzle Playtime</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/compact-and-powerful-360-degree-camera-theta-sc2-tested/"><u>Compact & Powerful 360-Degree Camera – Theta SC2 Tested</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/deciding-between-the-newest-giants-apple-ipad-air-links-to-reviewhttpsexamplecomipadairreview-and-samsung-galaxy-tab-s7plus-links-to-reviewhttpsexamplecomga94/"><u>Deciding Between the Newest Giants: Apple iPad Air ([Links to Review](https://example.com/iPadAirReview)) and Samsung Galaxy Tab S7+ ([Links to Review](https://example.com/GalaxyTabS7Review))</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/digital-book-club-top-4-reasons-for-a-kindle-unlimited-membership/"><u>Digital Book Club: Top 4 Reasons for a Kindle Unlimited Membership</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-unveiling-the-lenovo-thinkpad-x1-titanium-yoga-a-must-have-hybrid-device-for-traditionalists/"><u>Expert Analysis: Unveiling the Lenovo ThinkPad X1 Titanium Yoga - A Must-Have Hybrid Device for Traditionalists</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/explore-advanced-ai-search-technologies-for-enhanced-online-discovery/"><u>Explore Advanced AI Search Technologies for Enhanced Online Discovery</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-edit-and-personalize-images-with-apples-photo-cutout-feature-on-iphones-ios-16-update/"><u>How to Edit and Personalize Images with Apple’s Photo Cutout Feature on iPhone's iOS 16 Update</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Realme 12+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-maximize-engagement-mastering-sound-editing-for-youtube/"><u>In 2024, Maximize Engagement Mastering Sound Editing for YouTube</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lenovo-thinkpad-x1-titanium-yoga-evaluation-the-ideal-convertible-laptop-for-loyal-thinkpad-enthusiasts/"><u>Lenovo ThinkPad X1 Titanium Yoga Evaluation: The Ideal Convertible Laptop for Loyal ThinkPad Enthusiasts</u></a></li>
+<li><a href="https://win-studio.techidaily.com/les-meilleurs-logiciels-pour-recuperer-des-donnees-sur-disque-dur-externe-une-selection-experte-et-complete/"><u>Les Meilleurs Logiciels Pour Récupérer Des Données Sur Disque Dur Externe : Une Sélection Experte Et Complète</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reviewing-the-lg-k51-attractive-appearance-vs-underwhelming-processor-capabilities/"><u>Reviewing the LG K51: Attractive Appearance vs Underwhelming Processor Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-acer-chromebook-15-an-expert-review-of-its-big-screen-and-decent-performance/"><u>Unveiling the Acer Chromebook 15: An Expert Review of Its Big Screen and Decent Performance</u></a></li>
 </ul></div>
 

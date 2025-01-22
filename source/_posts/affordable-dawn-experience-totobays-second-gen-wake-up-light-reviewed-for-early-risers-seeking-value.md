@@ -1,7 +1,7 @@
 ---
 title: "Affordable Dawn Experience: Totobay's Second Gen Wake-Up Light Reviewed for Early Risers Seeking Value"
-date: 2024-08-09T00:56:22.641Z
-updated: 2024-08-10T00:56:22.641Z
+date: 2025-01-15T03:22:19.365Z
+updated: 2025-01-21T20:03:53.983Z
 categories:
   - BestProducts
 description: "This Article Describes Affordable Dawn Experience: Totobay's Second Gen Wake-Up Light Reviewed for Early Risers Seeking Value"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/298329c51bf36530c944afd2311460eb93803d5bd
 ## Fellowes Microban Split Design Keyboard
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/WDbYK32TR0KZYkaW6A8K51jQSpU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_HeroSquare-bca4a6a05ceb40108462ddaf4575d3ed.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -40,6 +44,10 @@ Lifewire / Emily Isaacs
 [View On Amazon $78](https://www.amazon.com/Fellowes-Microban-Split-Design-Keyboard/dp/B0002CE0XO?tag=lifewire-onsite-prod-20&ascsubtag=4780294%7Cn668ce44e90054ecb91b1dbd3aca2275805%7CB0002CE0XO) [View On Walmart $78](https://www.walmart.com/ip/Fellowes-FEL98915-Split-Design-Ergonomic-Keyboard-with-Microban-1-Black/10363789) [View On Staples](https://www.staples.com/Fellowes-98915-Microban-Split-Design-Corded-Keyboard/product%5F806284)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fellowes Microban Split Design Keyboard
 
@@ -66,15 +74,15 @@ Lifewire / Emily Isaacs
 
  The Fellowes Microban Split Design Wired Keyboard is one of several Fellowes’ products geared towards businesses, thanks to its comfortable, ergonomic design and budget-friendly pricing. The inclusion of Microban antimicrobial protection technology, designed to prolong the life of your computer hardware by preventing damaging microbes from building up over time and causing deterioration, is an added bonus for the price. We tested this keyboard for over a week so read on to see what we discovered.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## **Design: Cleaner than the rest**
 
  Ergonomic keyboards are designed to encourage natural, neutral movements that put less strain on wrists and shoulders,[preventing repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) over time. This is especially important for people who spend large portions of their day in a home or office setting tethered to their computer.
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/WPjeQmKmzof_KVFE5_fIwN92cXc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_05-24f7f07146ae45cd86d2c5bdd4791ee5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -86,27 +94,22 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  Unlike competitor models which often use a mix of fabric, plastics, and in some instances, metals, the entirety of this keyboard is plastic—even down to the[wrist pad](https://www.lifewire.com/best-keyboard-wrist-rests-4172684) . While we did wish that the wrist pad was made of a more comfortable material, it wasn’t uncomfortable during use. Plus, a different material would likely impact the keyboard’s longevity, since the Microban antimicrobial coating needs to be put on an acrylic, non-porous surface in order to protect against common bacteria, yeasts, molds, and fungi.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ## **Setup Process: Plug and play**
 
  The keyboard doesn’t arrive with much. It comes in a mid-size box with the keyboard itself and an accessory pamphlet that addresses some frequently asked questions regarding Microban technology. Setting up is quite easy. It’s a plug and play device, which means that when the keyboard is connected to the computer, the computer will recognize the device is there and you can begin using it immediately.
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/NycF2nKeSim8iDJ0Yp1gejyIigI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_03-49fdaa8e182941e184cadafc14281a1e.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Features: Multimedia hotkeys for ease of use**
 
  The Fellowes features seven hotkeys for multimedia playback. These keys are located along the top of the keyboard and offer such functionality as mute, volume up, volume down, sleep, email, search, and one-touch internet access. We were disappointed that it didn’t include hotkeys for pausing, skipping forward, or skipping backward in multimedia.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Connectivity: A wired connection for reliability**
 
  The Fellowes connects to a PC via a USB cord. We couldn’t help but appreciate the simplicity of this design choice, especially as more and more companies are looking for ways to cut cords. Cutting down on cables is great when it makes sense, but the corded connection here allows for a dependable product, since you never have to worry about a low battery, and also means that the keyboard is more reliable for[faster typists](https://www.lifewire.com/typing-speed-tests-1356663) . It’s equipped with a 16-character buffer, which means that it can hold onto that many typed characters before they’re processed. This is useful if you type faster than conventional keyboards can keep up with, making it less likely for you to lose a stroke.
@@ -118,17 +121,15 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
  Ergonomic keyboards tend to retail anywhere from $50-$200\. The Fellowes Microban Split Wired Keyboard tends to retail for around $50, which puts this well at the budget end. Its low price point makes it a great introductory ergonomic keyboard, particularly if you’re unsure of what you want and are experimenting with different design choices.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Fellowes Microban Split Design Wired Keyboard vs. Microsoft Sculpt Ergonomic Keyboard**
 
  The Fellowes keyboard faces stiff competition from other companies, notably Microsoft, which has been in the computer game for decades. Here, the Microsoft Sculpt Ergonomic Keyboard is the main competition. Generally retailing for around $80, nearly double the price of the Fellowes, the Sculpt follows a unique design akin to that of a manta ray. The two halves of the keyboard swoop upward, rising toward the middle, but not quite meeting thanks to an unfilled space between them. It looks strange, but it’s quite comfortable, especially thanks to its fabric wrist pad for extra comfort.
 
 [Microsoft Sculpt Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-sculpt-ergonomic-keyboard-review-4780274)
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/9Ei30bgFst4sw8SynCxgEI_b-9I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_04-eff22d3b32274568890dd291e56daab5.jpg)
 
  Lifewire / Emily Isaacs
@@ -147,9 +148,6 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  The Fellowes Microban Split Design Wired Keyboard is a good, albeit bulky, ergonomic keyboard designed to last. Its antimicrobial protection not only keeps germs, fungi, and bacteria at bay, but ensures the keyboard won’t deteriorate over time. While it may not be our first pick for home use, it’s a great choice if you’re on a budget or are an office working facing down cold and flu season.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Microban Split Design Keyboard
@@ -162,14 +160,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 * Compatibility  As plug-and-play device with Windows OS
 * Warranty  3-year limited warranty
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -177,3 +172,27 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-tips-for-enhancing-your-gopro-cinematic-vision/"><u>[New] Expert Tips for Enhancing Your GoPro Cinematic Vision</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-best-bigger-picture-tvs-ranked-10/"><u>[New] In 2024, Best Bigger Picture TVs Ranked #10</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rofile-pictures-download-for-free/"><u>[New] Profile Pictures - Download for FREE</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-master-your-gaming-footage-top-5-techniques-for-windows-11-recorders/"><u>[Updated] Master Your Gaming Footage Top 5 Techniques for Windows 11 Recorders</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/jpegpdf/"><u>「アイフォンに漫画を持ち込めます！ JPEG、PDFの適用手順解説」</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/assessing-the-durability-and-portability-of-kensuns-compact-tire-inflation-solution-an-in-depth-review/"><u>Assessing the Durability and Portability of Kensun's Compact Tire Inflation Solution: An In-Depth Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cd-200bt-reviews-top-studio-player-with-bluetooth-connectivity/"><u>CD-200BT Reviews: Top Studio Player with Bluetooth Connectivity</u></a></li>
+<li><a href="https://video-capture.techidaily.com/doubled-surface-capture-method/"><u>Doubled Surface Capture Method</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-top-contenders-in-jump-starters-spotlight-on-halo-portable-charger/"><u>Evaluating the Top Contenders in Jump Starters - Spotlight on Halo Portable Charger</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-versatile-features-of-the-amazon-fire-hd-10-an-ideal-choice-for-families/"><u>Exploring the Versatile Features of the Amazon Fire HD 10 - An Ideal Choice for Families</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/gaming-on-samsungs-q60r-series-in-depth-analysis-of-the-qled-4k-tv/"><u>Gaming on Samsung's Q60R Series: In-Depth Analysis of the QLED 4K TV</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastery-on-your-wrist-an-in-depth-look-at-the-premium-garmin-forerunner-745-fitness-device/"><u>Mastery on Your Wrist: An In-Depth Look at the Premium Garmin Forerunner 745 Fitness Device</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/maximizing-productivity-top-6-strategies-for-integrating-chatgpt-into-your-telecommuting-routine/"><u>Maximizing Productivity: Top 6 Strategies for Integrating ChatGPT Into Your Telecommuting Routine</u></a></li>
+<li><a href="https://extra-information.techidaily.com/mobile-magic-unleashed-funimate-pro-apk-exploration/"><u>Mobile Magic Unleashed Funimate Pro APK Exploration</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-complete-guide-to-optimizing-your-home-network-an-in-depth-review-of-the-orbi-wi-fi-6-mesh-solution/"><u>The Complete Guide to Optimizing Your Home Network: An In-Depth Review of the Orbi Wi-Fi 6 Mesh Solution</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-ultimate-how-to-manual-for-conquering-royal-match/"><u>The Ultimate How-To Manual for Conquering Royal Match</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-comparison-how-the-samsung-galaxy-s23-ultra-stacks-up-against-the-s21-ultra/"><u>Ultimate Comparison: How the Samsung Galaxy S23 Ultra Stacks Up Against the S21 Ultra</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-the-budget-champion-unveiling-the-strengths-of-acer-aspire-e-15/"><u>Ultimate Guide to the Budget Champion: Unveiling the Strengths of Acer Aspire E 15</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-capturing-the-essence-of-whistle-audio-resonance/"><u>Updated 2024 Approved Capturing the Essence of Whistle Audio Resonance</u></a></li>
+</ul></div>
+

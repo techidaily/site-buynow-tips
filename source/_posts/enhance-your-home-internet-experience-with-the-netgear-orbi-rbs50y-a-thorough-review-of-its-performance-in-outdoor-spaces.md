@@ -1,7 +1,7 @@
 ---
 title: Enhance Your Home Internet Experience with the Netgear Orbi RBS50Y - A Thorough Review of Its Performance in Outdoor Spaces
-date: 2024-08-09T00:56:22.143Z
-updated: 2024-08-10T00:56:22.143Z
+date: 2025-01-14T22:18:23.160Z
+updated: 2025-01-22T11:08:38.172Z
 categories:
   - BestProducts
 description: This Article Describes Enhance Your Home Internet Experience with the Netgear Orbi RBS50Y - A Thorough Review of Its Performance in Outdoor Spaces
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/J-pwFt9XA5bZIRReo2Iy21Tg0KA=/400x300/fi
 ## Exploring the Performance Features of Netgear's Nighthawk X4 Wi-Fi Mesh Expansion Kit - Reviewed Here
 
 4.5
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Netgear Nighthawk X4 AC2200 Wi-Fi Mesh Extender (EX7300)
 
@@ -34,12 +38,13 @@ thumbnail: https://www.lifewire.com/thmb/J-pwFt9XA5bZIRReo2Iy21Tg0KA=/400x300/fi
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Netgear Nighthawk X4 AC2200 Wi-Fi Mesh Extender (EX7300)
 
 ![Nighthawk X4 Wi-Fi Mesh Extender](https://www.lifewire.com/thmb/pbxpBfhizGFobbPawynEvJ-QMRE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkX4_HeroHoriz-992cc019c1e64ea59b9ce72905f0381c.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [View On Amazon $69](https://www.amazon.com/dp/B01D6JEMWS?tag=lifewire-onsite-prod-20&ascsubtag=4846224%7Cn858b25cedf594108aeff6df6076e962e00%7CB01D6JEMWS) [View On Walmart $149](https://www.walmart.com/ip/NETGEAR-Nighthawk-AC2200-X4-WiFi-Mesh-Extender-EX7300-100NAS/53552961)
 
@@ -61,9 +66,6 @@ thumbnail: https://www.lifewire.com/thmb/J-pwFt9XA5bZIRReo2Iy21Tg0KA=/400x300/fi
 
  It also has advanced technologies such as MU-MIMO and beamforming, so it feels like a fully capable device. You’ll pay a bit more for this one compared to some of the entry-level plug-in Wi-Fi extenders, but if your home is plagued by wireless dead zones or you just want to ensure a more consistent high-speed signal throughout your dwelling, then this is a strong option. I tested the Netgear Nighthawk X4 for several days in my house for a variety of needs, including everyday work, playing online games, and streaming media.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Hearty, but still compact**
 
  At just over 6 inches tall and 3 inches wide, the Netgear Nighthawk X4 Wi-Fi Mesh Extender might look a little too large to hang from a wall outlet, but most of the weight is concentrated at the base where it plugs in. It’ll only take up one plug on an outlet, leaving the other free, and it stayed securely in place during use.
@@ -74,11 +76,12 @@ thumbnail: https://www.lifewire.com/thmb/J-pwFt9XA5bZIRReo2Iy21Tg0KA=/400x300/fi
 
 ![Netgear Nighthawk X4 (EX7300) Wi-Fi Mesh Extender](https://www.lifewire.com/thmb/ahWiBPBlk75slmsmgc-c4cnSgf8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkX4_03-6a6cab81b4ec4da39c89aa3a92cb1f16.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process: Simple setup, awkward app**
 
  Setting up the Netgear Nighthawk X4 essentially means capturing the signal from your Wi-Fi router and then finding an ideal spot to place the extender to bring Wi-Fi into dead zones and areas with an inconsistent signal.
@@ -96,8 +99,9 @@ thumbnail: https://www.lifewire.com/thmb/J-pwFt9XA5bZIRReo2Iy21Tg0KA=/400x300/fi
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Connectivity: Steady, stellar speeds**
 
  The Netgear Nighthawk X4 worked as advertised, delivering strong speeds, improving upon the signal available from the router in the further corners of my house, and even holding a 5GHz signal pretty well when a fair distance away from the extender. The[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) (multiple user, multi-in multi-out) design allows for more simultaneous signals while beamforming helps hone a signal towards its requesting device. All told, these technological advancements seem to help deliver strong wireless performance.
@@ -112,10 +116,11 @@ thumbnail: https://www.lifewire.com/thmb/J-pwFt9XA5bZIRReo2Iy21Tg0KA=/400x300/fi
 
  Online gaming was also smooth across the board with the Netgear Nighthawk X4\. I saw a typical ping of around 38 with both the 2.4GHz and 5GHz extended networks in Rocket League, and a couple points faster when plugged into the Ethernet port. I played several matches across the configuration options and encountered no sluggishness.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Netgear Nighthawk X4 Wi-Fi Mesh Extender](https://www.lifewire.com/thmb/ugGkkd4SJutt9ZSqg6hsgakNAAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkX4_05-8a00f82288884d71bd867f253500e04f.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -135,10 +140,6 @@ thumbnail: https://www.lifewire.com/thmb/J-pwFt9XA5bZIRReo2Iy21Tg0KA=/400x300/fi
 
  The Netgear Nighthawk X4 Wi-Fi Mesh Extender finds a pretty ideal middle ground in the Wi-Fi extender market, delivering a strong performance that’s better than what you’ll likely get from a cheap, entry-level extender. Better yet, it’s not as pricey as some of the higher-end devices out there. If you don’t want to commit to a full mesh network upgrade to your home and just want a strong, reliable extender to complement an existing Wi-Fi router, then this is the extender to buy.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Nighthawk X4 AC2200 Wi-Fi Mesh Extender (EX7300)
@@ -150,14 +151,11 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 * Ports  1x Ethernet
 * Waterproof  N/A
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -165,3 +163,27 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-discover-the-top-10-vector-image-hubs/"><u>[New] 2024 Approved Discover the Top 10 Vector Image Hubs</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unlocking-facebooks-hidden-vault-of-high-def-media/"><u>[New] In 2024, Unlocking Facebook's Hidden Vault of High-Def Media</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-transformative-tiktok-video-techniques-that-work-for-2024/"><u>[New] Transformative TikTok Video Techniques That Work for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-enhance-yt-experience-the-most-outstanding-reaction-ideas/"><u>[Updated] In 2024, Enhance YT Experience The Most Outstanding Reaction Ideas</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-grassroots-video-marketing-strategies/"><u>[Updated] In 2024, Grassroots Video Marketing Strategies</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-sonys-game-console-enhance-auditory-experience/"><u>[Updated] Sony's Game Console Enhance Auditory Experience</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-the-ultimate-guide-to-supercharge-your-facebook-video-speed/"><u>2024 Approved The Ultimate Guide to Supercharge Your Facebook Video Speed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/assessment-report-on-the-functionality-of-google-phone-service-by-voice/"><u>Assessment Report on the Functionality of Google Phone Service by Voice</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/echotech-acoustic-canal-defenders-review/"><u>EchoTech Acoustic Canal Defenders Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-the-radpower-radcity-5-plus-a-study-in-strength-and-weight/"><u>Expert Analysis of the RadPower RadCity 5 Plus: A Study in Strength and Weight</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Xiaomi Redmi K70E? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-samsungs-mid-range-marvel-the-galaxy-tab-s7-review/"><u>In-Depth Look at Samsung's Mid-Range Marvel: The Galaxy Tab S7 Review</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-realme-narzo-60-5g-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Realme Narzo 60 5G Phone Now with These Tips</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/spk10-037-softbox-versatile-brightness-studios-new-star/"><u>SPK10-037 Softbox: Versatile Brightness, Studio's New Star</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/tailoring-the-future-of-communication-the-quintessential-5-chatgpt-instructions/"><u>Tailoring the Future of Communication: The Quintessential 5 ChatGPT Instructions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/taking-a-step-back-in-time-a-deep-dive-into-the-famous-handheld-mario-adventure-nintendos-game-and-watch-edition/"><u>Taking a Step Back in Time: A Deep Dive Into the Famous Handheld Mario Adventure - Nintendo's Game & Watch Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-affordable-ar-device-the-in-depth-review-of-arcshell-ar-5/"><u>Top Rated Affordable AR Device: The In-Depth Review of ArcShell AR-5</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-review-how-fifa-19-stands-as-a-legend-amongst-sports-game-titles/"><u>Top Rated Review: How FIFA 19 Stands as a Legend Amongst Sports Game Titles</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-benefits-of-synology-rt2600ac-exceptional-wi-fi-range-and-robust-parental-control-mechanisms-for-secure-home-networking/"><u>Unveiling the Benefits of Synology RT2600ac – Exceptional Wi-Fi Range and Robust Parental Control Mechanisms for Secure Home Networking</u></a></li>
+</ul></div>
+

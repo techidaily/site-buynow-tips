@@ -1,7 +1,7 @@
 ---
 title: Initial Thoughts on the New Samsung Galaxy S24 Ultra
-date: 2024-08-09T00:56:22.265Z
-updated: 2024-08-10T00:56:22.265Z
+date: 2025-01-21T06:26:02.564Z
+updated: 2025-01-21T23:55:23.963Z
 categories:
   - BestProducts
 description: This Article Describes Initial Thoughts on the New Samsung Galaxy S24 Ultra
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/407rXIh5yU0iaLcuwNbkNGKca28=/400x300/fi
 ## Samsung Galaxy Fit
 
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/UbU9fom8autjrPBW79fdJpbGiu8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_04LW4161013-1-760c721cdfb74062a7b7a34dffa00d9e.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
 
@@ -37,15 +41,13 @@ thumbnail: https://www.lifewire.com/thmb/407rXIh5yU0iaLcuwNbkNGKca28=/400x300/fi
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Samsung Galaxy Fit
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/RBJ_qd0-iPj3u7qSA3GAXNn2byQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_04LW4161013-1-760c721cdfb74062a7b7a34dffa00d9e.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
 
@@ -76,6 +78,10 @@ thumbnail: https://www.lifewire.com/thmb/407rXIh5yU0iaLcuwNbkNGKca28=/400x300/fi
 
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/Tf5FJJb3h1iBWaZIkx-ZF7NeOTg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-6-b9990e3655e34e2ca712150225748ab6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
 ## **Design: Functional and slightly elevated**
@@ -94,23 +100,17 @@ thumbnail: https://www.lifewire.com/thmb/407rXIh5yU0iaLcuwNbkNGKca28=/400x300/fi
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## **Setup Process** :**Speedy and to the point**
 
  Other than the watch itself, the only other equipment is a wireless charging dock. Charging to 100 percent is recommended at setup, and it took us about 40 minutes for the device to charge in full from about 70 percent charged out of the box.
 
  After that, we downloaded the compatible app for the device, called Galaxy Fit. We were able to pair the device in just a few seconds. We also had to download the Samsung Health app in order to access our activity data.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/E_Ki7o6LChwW9AdtjDKL2L1lHjw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-4-abd906dedc9c440188c23a5aabdfebe0.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
 
@@ -128,10 +128,6 @@ No advertising on the website.
 
  So while it was mostly comfortable for general wear and during exercise activities, we found that the fit suffered from being either too tight or too loose because the adjustments weren’t incremental enough. It was hard to find a just-right middle ground.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/SRdpyMKwwNLE2m_Dnn2o9thnpQ8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-3-40a8d98ca4a04e7c9b5b18531df43e6f.jpg)
 
  Lifewire / Yoona Wagener
@@ -150,9 +146,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  All activity data, including information on sleep quality and patterns, is laid out clearly in the supplementary Samsung Health app, which is particularly useful for viewing a week’s worth of activity data. It’s really the only way to see beyond the most recent activity or two, which is all the watch will show you.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/APk5ikkGQieSTN39gBAQ6rf6H9E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-5-5ff5a7cfa0c34594b8d74bbb224e9800.jpg)
 
  Lifewire / Yoona Wagener
@@ -163,9 +156,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  When we did have to charge the device again, we found that process to be speedy: it took only two hours to recharge in full.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Software: Dial up your fitness with the Samsung Health app**
 
  Unlike other Samsung smartwatches, the Samsung Galaxy Fit is built on a FreeRTOS (real time operation software) platform. This OS relies heavily on the companion smartphone app and the Samsung Health app for a well-rounded experience.
@@ -174,15 +164,16 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  In addition to controlling the watch settings easily from the[mobile app](https://www.lifewire.com/what-are-apps-1616114) , the Samsung Health app is the other go-to resource. Here you can view all the information captured by the activity tracker, including fitness, sleep, and even stress levels. You can also take this a step further by using the app to monitor calories, weight, and water intake.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Great for what you get**
 
  The Samsung Galaxy Fit retails for $99.99, which makes it a strong competitor in the fitness tracker market. Similarly-priced devices from the Fitbit brand offer an equivalent bundle of all-day activity tracking and general wellness features but lack the vibrant display of the Galaxy Fit.
 
  There are cheaper options out there, too, like the Garmin vívofit 4, which sells for between $60 and $80\. But it lacks a heart rate monitor or the smart capabilities of the Fit, like canned text-messaging responses and the ability to send calls straight to voicemail. For the activity tracking and smart device functionality, the Fit is a fair price and maybe even a bargain for some.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ## **Samsung Galaxy Fit vs. Fitbit Inspire HR**
 
  The Fitbit Inspire HR is a close competitor to the Samsung Galaxy Fit. Both are priced at just below $100 and have many of the same wellness and activity tracking features. Both are water resistant up to 50 meters, track active and resting heart rate, feature sport profiles, log sleeping activity, and integrate various types of notifications.
@@ -198,13 +189,18 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  The Samsung Galaxy Fit is an appealing option for those who want a bit of smartwatch functionality and a heavy emphasis on exercise monitoring—without shelling out too much money. The fit, ironically, may be the largest issue. But if you’re able to find the right size, this may be everything you want in a fitness tracker.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Samsung Galaxy Watch Active](https://www.lifewire.com/samsung-galaxy-watch-active-review-4766873)
 * [Fitbit Versa](https://www.lifewire.com/fitbit-versa-review-4769748)
 * [Apple Watch Series 4](https://www.lifewire.com/apple-watch-series-4-review-4769752)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -221,14 +217,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * Connectivity  Bluetooth 5.0 (LE only)
 * Warranty  1 year
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -236,3 +229,23 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-conquer-all-platforms-your-key-to-recording-hulu-effortlessly/"><u>[New] In 2024, Conquer All Platforms - Your Key to Recording Hulu Effortlessly</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-directly-stream-google-meet-youtube-edition-steps/"><u>[Updated] 2024 Approved Directly Stream Google Meet - YouTube Edition Steps</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-the-role-of-motion-leveraging-fb-ads-for-outstanding-roi/"><u>[Updated] 2024 Approved The Role of Motion Leveraging FB Ads for Outstanding ROI</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-workaround-twitter-videos-in-chrome-problem/"><u>[Updated] 2024 Approved Workaround Twitter Videos in Chrome Problem</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-nokia-c12-plus-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Nokia C12 Plus Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-iphone-12-pro-max-review-bigger-can-be-better/"><u>Apple iPhone 12 Pro Max Review: Bigger Can Be Better</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/google-maps-for-ios-performance-review-and-user-experience-insights/"><u>Google Maps for iOS: Performance Review & User Experience Insights</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-nokia-c12-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Nokia C12? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-asus-zephyrus-g14-uncompromising-performance-for-gamers/"><u>In-Depth Look at the ASUS Zephyrus G14 - Uncompromising Performance for Gamers</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/official-winx-multimedia-suite-for-gratis-downloads-dvd-ripper-and-high-definition-video-editing/"><u>Official WinX Multimedia Suite for Gratis Downloads: DVD Ripper and High-Definition Video Editing</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138595131-9781452546469-pathways-to-god/"><u>Pathways to God | Free Book</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-evaluate-and-refine/"><u>Review, Evaluate, and Refine:</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-moto-g-power-exceptional-battery-durability-in-a-beautifully-crafted-device/"><u>The Ultimate Review of Moto G Power: Exceptional Battery Durability in a Beautifully Crafted Device</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-picks-for-home-networking-experience-lightning-fast-internet-with-the-netgear-nighthawk-x6-family-friendly-wifi-solution/"><u>Top Picks for Home Networking: Experience Lightning Fast Internet with the Netgear Nighthawk X6 Family-Friendly WiFi Solution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlocking-savings-with-every-new-iphone-release/"><u>Unlocking Savings with Every New iPhone Release</u></a></li>
+</ul></div>
+

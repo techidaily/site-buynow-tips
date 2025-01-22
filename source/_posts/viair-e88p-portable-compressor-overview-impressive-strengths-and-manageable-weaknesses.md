@@ -1,7 +1,7 @@
 ---
 title: Viair E88p Portable Compressor Overview - Impressive Strengths and Manageable Weaknesses
-date: 2024-08-09T00:56:20.143Z
-updated: 2024-08-10T00:56:20.143Z
+date: 2025-01-15T08:10:25.015Z
+updated: 2025-01-21T18:42:53.464Z
 categories:
   - BestProducts
 description: This Article Describes Viair E88p Portable Compressor Overview - Impressive Strengths and Manageable Weaknesses
@@ -15,10 +15,11 @@ thumbnail: https://www.lifewire.com/thmb/ZevQObLlQ-0zecghfgF1_QfuuRw=/400x300/fi
 
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/NWhMBmuK3pkL9EGvdNCEAF8sWEo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -41,11 +42,16 @@ Lifewire / Jeffrey Daniel Chadwick
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -70,8 +76,9 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -94,9 +101,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process: T-minus one minute**
 
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
@@ -104,8 +108,9 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Reliable, accurate, quick and loud**
 
  When we tested the tire inflator, we took it on a road trip that took us to the states of Nevada, Utah, Idaho, and Wyoming. Along the way, we stopped at rural rest areas and gas stations. In order to use them in the circumstances, they were designed for. Throughout it all, the Kensun Portable Tire Inflator never failed to work when we needed it.
@@ -126,10 +131,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## **Price: A decent buy considering its versatility**
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
@@ -164,11 +165,31 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-preserving-pixels-in-the-sky-selecting-best-photo-cloud-storages-for-2024/"><u>[New] Preserving Pixels in the Sky Selecting Best Photo Cloud Storages for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nlocking-youtubes-full-potential-advanced-banner-strategies/"><u>[New] Unlocking YouTube's Full Potential Advanced Banner Strategies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-must-see-top-5-youtube-link-share-extensions/"><u>[Updated] Must-See Top 5 YouTube Link Share Extensions</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unleash-the-potential-elevating-your-tiktok-unboxing-contents-like-count/"><u>2024 Approved Unleash the Potential Elevating Your TikTok Unboxing Content's Like Count</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experts-rate-the-d-link-pl-2000-hassle-free-setup-and-rapid-data-exchange-reviewed/"><u>Experts Rate the D-Link PL 2000: Hassle-Free Setup and Rapid Data Exchange Reviewed!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experts-rating-on-the-google-wireless-nest-doorbell-with-batteries-a-comprehensive-review/"><u>Experts' Rating on the Google Wireless Nest Doorbell with Batteries – A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-benefits-of-the-microsoft-sculpt-keyboard-top-value-for-your-hands/"><u>Exploring the Benefits of the Microsoft Sculpt Keyboard: Top Value for Your Hands</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-lenovo-tab-4-an-affordable-android-solution-with-its-own-set-of-challenges/"><u>Exploring the Lenovo Tab 4 - An Affordable Android Solution With Its Own Set of Challenges</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/from-legendary-to-iconic-how-improved-graphics-elevate-the-great-demons-souls-game/"><u>From Legendary to Iconic: How Improved Graphics Elevate The Great Demon's Souls Game</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/heavy-dollar-for-airpods-max/"><u>Heavy Dollar for AirPods Max</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-7-ways-to-unlock-a-locked-samsung-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Samsung Phone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-xbox-series-x-ultimate-gaming-experience-in-4k/"><u>In-Depth Analysis of the Xbox Series X: Ultimate Gaming Experience in 4K</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/is-the-price-tag-justified-evaluating-the-alienware-aurora-r7-gaming-tower/"><u>Is the Price Tag Justified? Evaluating the Alienware Aurora R7 Gaming Tower</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-gaming-experience-with-proper-ps4-webcam-setup-tips/"><u>Maximizing Gaming Experience with Proper PS4 Webcam Setup Tips</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/techniques-for-overcoming-the-non-existent-normalizdll-error/"><u>Techniques for Overcoming the Non-Existent Normaliz.dll Error</u></a></li>
+<li><a href="https://windows11.techidaily.com/the-complete-guide-to-image-spin-on-your-windows-11-pc/"><u>The Complete Guide to Image Spin on Your Windows 11 PC</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-solving-the-mystery-of-the-black-screen-during-your-facetime-calls/"><u>Ultimate Guide: Solving the Mystery of the Black Screen During Your FaceTime Calls</u></a></li>
+</ul></div>
+

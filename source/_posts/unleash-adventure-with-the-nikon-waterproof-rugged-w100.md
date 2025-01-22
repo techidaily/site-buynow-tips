@@ -1,7 +1,7 @@
 ---
 title: Unleash Adventure with the Nikon Waterproof, Rugged W100
-date: 2024-08-09T00:56:20.076Z
-updated: 2024-08-10T00:56:20.076Z
+date: 2025-01-20T10:48:45.646Z
+updated: 2025-01-21T21:24:26.580Z
 categories:
   - BestProducts
 description: This Article Describes Unleash Adventure with the Nikon Waterproof, Rugged W100
@@ -13,14 +13,8 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## Sealoc Outdoor TV Full Weatherized 55" UHD Smart Weatherproof LED Television
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![SkyVue 55-inch Sealoc Costal Silver TV](https://www.lifewire.com/thmb/uyIYN745zw-UJZ8sDjpcxk5bhqA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_HERO_Square-a5f526f61e0641158a8503d02b6058b1.jpg)
 
  Lifewire / Gannon Burgett
@@ -43,8 +37,9 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 4.5
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Sealoc Outdoor TV Full Weatherized 55" UHD Smart Weatherproof LED Television
 
 ![SkyVue 55-inch Sealoc Costal Silver TV](https://www.lifewire.com/thmb/hfv-N-kUKUqrdbk4rO9ay7vh_to=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_HERO_Square-a5f526f61e0641158a8503d02b6058b1.jpg)
@@ -88,6 +83,10 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Durability: It can handle it all**
 
  The 55-inch Coastal Silver TV is part of Sealoc’s full exposure weatherproof series, which means it’s designed to take on nearly anything you can throw at it. As mentioned above, Sealoc doesn’t just slap a weatherproof case around the TV inside and call it a day. Instead, Sealoc strips down the TV and waterproofs even the internal electronic components using a proprietary “nano-coating” that helps to shed moisture away in the event it somehow manages to make it past the other sealing elements.
@@ -100,9 +99,6 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
  Overall, unless you’re exposing this unit to salty seawater day in, day out, in the harshest environments, I have a hard time seeing how this TV won’t hold up for years to come.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![SkyVue 55-inch 4K Outdoor TV](https://www.lifewire.com/thmb/GJ1StKRMx12EggdPfSJWCSSS7aY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_02_Horiz-1df71300a60d421f848d96050a856fbe-d93884cf38ee40188089dc6d114570d3.jpg)
 
 Lifewire / Gannon Burgett
@@ -113,10 +109,11 @@ Lifewire / Gannon Burgett
 
  Once mounted and plugged in, it’s simply a matter of plugging in your peripherals and turning the TV on. On the topic of peripherals, it’s important to note that unless you’re using a compact stick-style device—such as a[Google Chromecast](https://www.lifewire.com/guide-to-chromecast-2438213) or[Amazon Fire TV Stick](https://www.lifewire.com/amazon-fire-tv-stick-4k-review-4691492) —you’ll want to find a way to run cables to another weatherproof location, as there isn’t any room on the TV itself to mount or hide the devices.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![SkyVue 55-inch 4K Outdoor TV](https://www.lifewire.com/thmb/OnY0-xZAailZsOzbKDqy1Zy3Gaw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_03_Horiz-65682943818f4cb49f1fe614eaeb18e6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -136,6 +133,10 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: You get what you pay for**
 
  I’ll get straight to the point—this TV isn’t cheap. At $3,000, you could go through at least four of the standard LG 6-series units this model is based on. But not a single one of those would last through more than a single downpour.
@@ -147,8 +148,9 @@ Lifewire / Gannon Burgett
  The Sealoc Coastal Silver TV is a niche product with a price to match.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **55-inch Sealoc Coastal vs. SunBrite 55-inch Pro Series**
 
  While the 55-inch Sealock Coastal is somewhat in a league of its own, outdoor TV manufacturer SunBrite does offer a full-sun 55-inch TV as well. The 55-inch Pro Series (see on[Amazon](https://www.amazon.com/SunBriteTV-Weatherproof-Outdoor-55-Inch-Television/dp/B07H45Y2LL/?tag=lifewire-onsite-prod-20&ascsubtag=5077335%7Cn322ca5b212d44e2293bc4c171617475d19%7C) ) is designed to be used in full sun like the Sealoc and offers up to 700-nit brightness as well as an anti-glare, impact-resistant screen.
@@ -163,9 +165,6 @@ Lifewire / Gannon Burgett
 
  The 55-inch Sealoc Coastal Silver Outdoor TV is a niche product with a price to match. If you can spare the change, you won’t find a better option out there, as the TV offers a sleek design, fantastic visual/audio quality, and a fantastic operating system to top it all off.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Outdoor TV Full Weatherized 55" UHD Smart Weatherproof LED Television
@@ -184,14 +183,11 @@ Lifewire / Gannon Burgett
 * Connectivity Options  Wi-Fi, Ethernet
 * Warranty  One Year Limited Warranty
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -199,3 +195,27 @@ Lifewire / Gannon Burgett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-leading-8-ultimate-tripods-for-4k-video-capture/"><u>[New] In 2024, Leading 8 Ultimate Tripods for 4K Video Capture</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-simplifying-the-process-of-finding-facebook-watch-history/"><u>[Updated] 2024 Approved Simplifying the Process of Finding Facebook Watch History</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-clear-the-way-for-smooth-safari-streaming/"><u>2024 Approved Clear the Way for Smooth Safari Streaming</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/5-easy-ways-to-transfer-contacts-from-apple-iphone-11-pro-max-to-android-drfone-by-drfone-transfer-from-ios/"><u>5 Easy Ways to Transfer Contacts from Apple iPhone 11 Pro Max to Android | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/could-the-revolutionary-suv-of-bikes-make-cars-obsolete-discover-its-potential-impact-on-daily-commutes-zdnet/"><u>Could the Revolutionary 'SUV of Bikes' Make Cars Obsolete? Discover Its Potential Impact on Daily Commutes | ZDNET</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-realme-12plus-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Realme 12+ 5G to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-action-packed-snapshots-the-bold-polaroid-xs-100i-review/"><u>In 2024, Action-Packed Snapshots The Bold Polaroid XS 100I Review</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-the-science-of-perfectly-timed-episodes/"><u>In 2024, The Science of Perfectly Timed Episodes</u></a></li>
+<li><a href="https://network-issues.techidaily.com/lightning-pause-laptop-glows-consistently/"><u>Lightning Pause: Laptop Glows Consistently</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/maximizing-visual-impact-integrating-free-high-quality-luts-into-obs/"><u>Maximizing Visual Impact Integrating Free, High-Quality LUTs Into OBS</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mini-gaming-desktops-reviewed-find-your-perfect-match-for-competitive-play/"><u>Mini Gaming Desktops Reviewed: Find Your Perfect Match for Competitive Play</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-amazon-luna-insightful-review-on-its-remarkably-effortless-gaming-service/"><u>Navigating Amazon Luna: Insightful Review on Its Remarkably Effortless Gaming Service</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revamped-marshall-for-anc-captivating-looks-plus-infectious-beats/"><u>Revamped Marshall for ANC: Captivating Looks + Infectious Beats</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-microsoft-surface-pro-7-solid-enhancements-amidst-familiar-design/"><u>Review of Microsoft Surface Pro 7: Solid Enhancements Amidst Familiar Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/simple-effective-bouncie-navigation-assistance-an-affordable-choice-for-tracking-your-drive/"><u>Simple, Effective Bouncie Navigation Assistance - An Affordable Choice for Tracking Your Drive</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/smart-home-essentials-in-depth-look-at-iseebells-entry-level-video-doorbell/"><u>Smart Home Essentials: In-Depth Look at ISeeBell's Entry-Level Video Doorbell</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/stylish-and-swift-a-comprehensive-review-of-the-swagtron-swagger-electric-scooter/"><u>Stylish and Swift: A Comprehensive Review of the Swagtron Swagger Electric Scooter</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-best-iphone-accessories-you-should-buy/"><u>The Best iPhone Accessories You Should Buy</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-comparison-of-features-between-the-samsung-galaxy-s10plus-and-s20/"><u>The Ultimate Comparison of Features Between the Samsung Galaxy S10+ and S20</u></a></li>
+</ul></div>
+
