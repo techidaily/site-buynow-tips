@@ -1,7 +1,7 @@
 ---
 title: Get Free, Crisp TV Channels with AmazonBasics' Flat Antenna – The Savvy Shopper’s Guide
-date: 2025-01-20T08:16:47.557Z
-updated: 2025-01-21T19:30:40.922Z
+date: 2025-01-22T21:07:56.313Z
+updated: 2025-01-29T22:33:04.655Z
 categories:
   - BestProducts
 description: This Article Describes Get Free, Crisp TV Channels with AmazonBasics' Flat Antenna – The Savvy Shopper’s Guide
@@ -13,9 +13,17 @@ thumbnail: https://thmb.techidaily.com/f8ecdc6c33144a8756139b14ccc37972ba5fac512
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/rS-RQyeAxU8gdzYheTg1qi5PFEY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -36,10 +44,6 @@ Lifewire / Erika Rawes
 [View On Amazon](https://www.amazon.com/dp/B075ZQXB26/?tag=lifewire-onsite-prod-20&ascsubtag=4845569%7Cn4bcb8b1996c24cd3b14f62e195599b0615%7CB075ZQXB26)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## AmazonBasics Ultra-Thin Antenna
 
@@ -74,6 +78,10 @@ Lifewire / Erika Rawes
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup: Relatively easy**
 
  Setting up the antenna is pretty straightforward. You start by plugging one end of the coaxial cable into the antenna, and then the other end to the coaxial/antenna-in connector to your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) .
@@ -94,10 +102,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Range: 35 miles**
 
  The AmazonBasics antenna has a 35-mile range, which isn’t very far considering 50 plus miles is becoming more common. It is omnidirectional, however, so you don’t need to point it in a specific direction. It supports UHF/VHF, so I was able to get a decent selection of channels.
@@ -107,7 +111,7 @@ Lifewire / Erika Rawes
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Super affordable**
@@ -117,10 +121,6 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
@@ -133,7 +133,7 @@ Lifewire / Erika Rawes
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -167,24 +167,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-efficient-screenshot-with-audio-layered/"><u>[New] In 2024, Efficient Screenshot With Audio Layered</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-the-power-of-quantum-hdr-in-visual-arts/"><u>[Updated] 2024 Approved The Power of Quantum HDR in Visual Arts</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-free-high-quality-youtube-banner-samples-inside/"><u>[Updated] In 2024, Free High-Quality YouTube Banner Samples Inside</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-ad-free-high-quality-video-experience-awaits-you/"><u>[Updated] The Ultimate Ad-Free, High Quality Video Experience Awaits You</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-extra-magic-discovering-special-disneyplus-features-comparable-to-dvd-exclusives/"><u>Exploring the Extra Magic: Discovering Special Disney+ Features Comparable to DVD Exclusives!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/gopros-top-picks-the-ultimate-list-of-2024s-most-innovative-action-cameras/"><u>GoPro's Top Picks: The Ultimate List of 2024'S Most Innovative Action Cameras</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/guide-connecting-ps5-live-streams-with-discord-easy-setup-tips/"><u>Guide: Connecting PS5 Live Streams with Discord - Easy Setup Tips</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-can-nubia-red-magic-9-proplusmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Nubia Red Magic 9 Pro+Mirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-nokia-c02-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Nokia C02?</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-ispoofer-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Samsung Galaxy F14 5G? | Dr.fone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-unveiling-exclusive-templates-for-tiktok-backdrops/"><u>In 2024, Unveiling Exclusive Templates for TikTok Backdrops</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-unleash-stunning-visuals-and-enhanced-performance-with-the-premium-razer-firefly-v2-pro-rgb-gaming-mousepad/"><u>In-Depth Analysis: Unleash Stunning Visuals and Enhanced Performance with the Premium Razer Firefly V2 Pro RGB Gaming Mousepad</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lessons-from-the-steam-deck-a-guide-on-what-nintendo-can-do-to-improve/"><u>Lessons From the Steam Deck: A Guide on What Nintendo Can Do to Improve</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-in-game-photography-essential-techniques-to-improve-screen-shot-quality/"><u>Mastering In-Game Photography: Essential Techniques to Improve Screen Shot Quality</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/modernizing-old-gameplay-essential-hacks-and-advice-for-running-classic-titles-on-todays-hardware/"><u>Modernizing Old Gameplay: Essential Hacks & Advice for Running Classic Titles on Today's Hardware</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revisiting-my-thoughts-the-shift-in-my-endorsement-of-the-xbox-series-s/"><u>Revisiting My Thoughts: The Shift in My Endorsement of the Xbox Series S</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revive-vintage-arcade-fun-on-your-apple-tv-how-to-convert-it-into-an-old-school-gaming-hub/"><u>Revive Vintage Arcade Fun on Your Apple TV – How to Convert It Into an Old-School Gaming Hub</u></a></li>
-<li><a href="https://win-web3.techidaily.com/the-essential-guide-to-upgrading-dj-systems-with-windows-10-why-wait-is-key/"><u>The Essential Guide to Upgrading DJ Systems with Windows 10 - Why Wait Is Key</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-apple-users-should-choose-freestyle2-blue-on-mac-detailed-review-and-recommendations/"><u>Why Apple Users Should Choose Freestyle2 Blue on Mac: Detailed Review & Recommendations</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-discovering-the-secret-to-engaging-content-with-aspect-ratios-in-youtube/"><u>[New] 2024 Approved Discovering the Secret to Engaging Content with ASPECT RATIOS in YOUTUBE</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-drones-and-editing-synergy-top-9-software-compared/"><u>[New] 2024 Approved Drones and Editing Synergy - Top 9 Software Compared</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-diy-templates-for-affordable-youtube-intros/"><u>[Updated] In 2024, DIY Templates for Affordable YouTube Intros</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-defense-reviewed-an-expert-look-at-procases-macbook-pro-13-case/"><u>Budget-Friendly Defense Reviewed: An Expert Look at ProCase’s MacBook Pro 13 Case</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-video-doorbells-why-the-iseebell-stands-out-for-less-than-50/"><u>Budget-Friendly Video Doorbells - Why the ISeeBell Stands Out for Less Than $50</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/compact-criacr-bluetooth-fm-transmitter-cp2e-comprehensive-assessment/"><u>Compact CRIACR Bluetooth FM Transmitter CP2e - Comprehensive Assessment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/compact-power-exploring-the-features-and-price-of-the-fitbit-versa-reviewed/"><u>Compact Power: Exploring the Features and Price of the Fitbit Versa Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-amazonbasics-usb-c-7-port-hub-analysis-ultimate-connectivity-solutions/"><u>Comprehensive AmazonBasics USB-C 7-Port Hub Analysis: Ultimate Connectivity Solutions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-the-oneplus-nine-pro-elegant-aesthetics-rapid-processing-and-superior-imaging/"><u>Comprehensive Analysis of the OnePlus Nine Pro - Elegant Aesthetics, Rapid Processing & Superior Imaging</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-amazonbasics-versatile-7-port-usb-30-multiport-adapter/"><u>Comprehensive Review of AmazonBasics' Versatile 7-Port USB 3.0 Multiport Adapter</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-chargetechs-impressive-27000mah-power-bank/"><u>Comprehensive Review of ChargeTech's Impressive 27000mAh Power Bank</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-uniden-r3-radar-detector-assessment-durability-and-extended-reach/"><u>Comprehensive Uniden R3 Radar Detector Assessment: Durability & Extended Reach</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/cutting-edge-6-tools-for-video-language-shift/"><u>Cutting-Edge 6 Tools for Video Language Shift</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-guide-to-recording-tv-screens-with-ease-and-precision/"><u>In 2024, Guide to Recording TV Screens with Ease and Precision</u></a></li>
+<li><a href="https://fox-links.techidaily.com/lifelike-broadcasts-which-aspect-holds-the-high-ground-in-2024/"><u>Lifelike Broadcasts Which Aspect Holds the High Ground, In 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/lifetime-of-photos-in-the-cloud-free-space-haven-and-charged-sanctuaries-await-for-2024/"><u>Lifetime of Photos in the Cloud Free Space Haven & Charged Sanctuaries Await for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-smarts-facebook-for-professional-development/"><u>Networking Smarts: Facebook for Professional Development</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-the-deadly-ark-bug-effective-fixes-and-solutions/"><u>Resolving the Deadly 'Ark' Bug: Effective Fixes and Solutions</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/zoom-and-television-synergy-a-comprehensive-guide-for-high-quality-remote-broadcasts/"><u>Zoom and Television Synergy: A Comprehensive Guide for High-Quality Remote Broadcasts</u></a></li>
 </ul></div>
 

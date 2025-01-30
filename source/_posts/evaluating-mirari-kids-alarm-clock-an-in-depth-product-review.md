@@ -1,7 +1,7 @@
 ---
 title: Evaluating Mirari Kids' Alarm Clock - An In-Depth Product Review
-date: 2025-01-19T04:29:10.874Z
-updated: 2025-01-22T01:14:54.077Z
+date: 2025-01-23T19:15:41.768Z
+updated: 2025-01-29T17:29:38.305Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating Mirari Kids' Alarm Clock - An In-Depth Product Review
@@ -13,13 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/QjJGvlIwjSg9Xi4WBoKpTlPb0lA=/400x300/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/AyUAqIhKcHESYKlEswC1pUtS1Po=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -45,10 +45,6 @@ Lifewire / Jonno Hill
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Jonno Hill
 
 [View On Amazon](https://www.amazon.com/Mohu-Television-Paper-thin-Performance-MH-110598/dp/B00HSMK580/?tag=lifewire-onsite-prod-20&ascsubtag=4843108%7Cnc1d14f8f39df4c2dac4b8d8ca33f9ac217%7CB00HSMK580) [View On Walmart $48](https://www.walmart.com/ip/Mohu-Leaf-30-Flat-30-Mile-Indoor-HDTV-Antenna/36126033) [View On Home Depot $41](https://www.homedepot.com/p/Mohu-Leaf-30-HDTV-Indoor-Antenna-MH-110583/205146429?slfpid=3)
@@ -72,6 +68,10 @@ Lifewire / Jonno Hill
 
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Basic but effective**
 
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
@@ -83,7 +83,7 @@ Lifewire / Jonno Hill
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Acceptable but not incredible**
@@ -92,12 +92,16 @@ Lifewire / Jonno Hill
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Range: Fairly limited**
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Excellent for the performance**
@@ -114,10 +118,6 @@ Lifewire / Jonno Hill
 
 **No fuss, good value.**
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -146,24 +146,17 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-conquer-iphone-audiophiles-playlist-tips/"><u>[New] 2024 Approved Conquer iPhone Audiophile's Playlist Tips</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-empower-your-filmmaking-skills-using-phone-cameras-for-recording/"><u>[New] 2024 Approved Empower Your Filmmaking Skills Using Phone Cameras for Recording</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unlocking-youtubes-potential-title-and-tag-best-practices/"><u>[New] 2024 Approved Unlocking YouTube's Potential Title and Tag Best Practices</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-essential-cloud-price-breakdown-guide-for-2024/"><u>[New] Essential Cloud Price Breakdown Guide for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-leveraging-snap-functions-boosting-virtual-interaction-during-meets/"><u>[New] Leveraging Snap Functions Boosting Virtual Interaction During Meets</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-tips-for-endlessly-playing-facebook-videos/"><u>2024 Approved Tips for Endlessly Playing Facebook Videos</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/best-oppo-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Oppo Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/effective-texting-techniques-to-prevent-overspending-on-cellular-data/"><u>Effective Texting Techniques to Prevent Overspending on Cellular Data</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/instagram-silent-spots-how-to-make-every-frame-loud-and-clear/"><u>Instagram Silent Spots - How to Make Every Frame Loud and Clear</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-high-speed-hdmi-cable-options-for-202/"><u>Top Rated High-Speed HDMI Cable Options for 202</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-no-cost-antivirus-programs-your-guide/"><u>Top Rated No-Cost Antivirus Programs : Your Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-oled-televisions-a-comprehensive-guide/"><u>Top Rated OLED Televisions : A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-solar-garden-lights-an-ultimate-guide/"><u>Top Rated Solar Garden Lights : An Ultimate Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-ranking-smartwatches-to-buy-a-comprehensive-guide/"><u>Top-Ranking Smartwatches to Buy : A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-laptop-satchels-and-backpacks/"><u>Top-Rated Laptop Satchels and Backpacks</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-microsd-cards-a-buyers-guide/"><u>Top-Rated MicroSD Cards : A Buyer's Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-smartphone-stabilizers-in-2o24/"><u>Top-Rated Smartphone Stabilizers in 2O24</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-rated-television-sets-a-buyers-guide/"><u>Top-Rated Television Sets : A Buyer's Guide</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Oppo K11x | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unlocking-the-potential-of-instagrams-filters-a-modern-guide-2e23-for-2024/"><u>[New] Unlocking the Potential of Instagram's Filters - A Modern Guide (2E23) for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-effortless-device-integration-with-obs-for-streaming-on-pcmac/"><u>[Updated] 2024 Approved Effortless Device Integration with OBS for Streaming on PC/Mac</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-the-high-capacity-27000mah-chargetech-battery-pack/"><u>Expert Insights on the High-Capacity 27000mAh ChargeTech Battery Pack</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-picks-elite-ups-backup-batteries-of-the-year-2n4/"><u>Expert Picks: Elite UPS Backup Batteries of the Year 2N4</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-features-and-performance-of-the-garmin-forerunner-245-watch/"><u>Exploring the Features and Performance of the Garmin Forerunner 245 Watch</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-garmin-vivomove-hr-your-stylish-partner-in-health-and-activity-tracking/"><u>Exploring the Garmin Vivomove HR - Your Stylish Partner in Health and Activity Tracking</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Lava Blaze 2? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-12-mini-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 12 mini With an Apple Watch & What to Do if It Doesnt Work</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-mastering-fast-play-videos-in-ppt-sessions/"><u>In 2024, Mastering Fast-Play Videos in PPT Sessions</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-navigating-a-new-digital-landscape-detailed-steps-for-updating-tiktok-handle/"><u>In 2024, Navigating a New Digital Landscape Detailed Steps for Updating TikTok Handle</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-motorola-edge-2023-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Motorola Edge 2023 Device</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/kioxia/"><u>どうすれば最高のKIOXIA クローニングソフトウェアを見つける？安全かつコスト効率に配慮した選び方</u></a></li>
 </ul></div>
 

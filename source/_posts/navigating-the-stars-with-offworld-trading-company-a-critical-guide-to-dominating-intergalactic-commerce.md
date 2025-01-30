@@ -1,7 +1,7 @@
 ---
 title: "Navigating the Stars with Offworld Trading Company: A Critical Guide to Dominating Intergalactic Commerce"
-date: 2025-01-16T21:15:57.160Z
-updated: 2025-01-21T17:57:52.619Z
+date: 2025-01-22T17:59:40.034Z
+updated: 2025-01-29T21:05:17.046Z
 categories:
   - BestProducts
 description: "This Article Describes Navigating the Stars with Offworld Trading Company: A Critical Guide to Dominating Intergalactic Commerce"
@@ -13,9 +13,17 @@ thumbnail: https://thmb.techidaily.com/b9ef13db0d4015b8f432338d38cc3c79dffc2187f
 
 2.7
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/HYgHMUDMFh7JI98Hj0JMbI2wcpw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -37,12 +45,16 @@ Lifewire / Kelsey Simon
 2.7
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -61,10 +73,6 @@ Lifewire / Kelsey Simon
 * [Specs](https://www.lifewire.com/#toc-full-spec)
 
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
@@ -85,10 +93,6 @@ Lifewire / Kelsey Simon
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -114,10 +118,6 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Only worth it if you’re keen on the story**
 
  Torment: Tides of Numenera is still an expensive game, costing $50 on[Steam](https://www.lifewire.com/best-free-steam-games-4176308) when it’s not on sale. It’s a game created with a very specific type of player in mind―and I suspect most people are not going to like it.
@@ -139,7 +139,7 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -165,24 +165,20 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-expert-techniques-for-flawless-adobe-audio/"><u>[Updated] In 2024, Expert Techniques for Flawless Adobe Audio</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-quick-start-guide-utilizing-aiseesoft-for-effortless-screen-recordings/"><u>[Updated] In 2024, Quick Start Guide Utilizing Aiseesoft for Effortless Screen Recordings</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/comprehensive-review-evaluating-the-performance-of-robot-vacuums-insights-from-zdnet/"><u>Comprehensive Review: Evaluating the Performance of Robot Vacuums - Insights From ZDNet</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/decision-time-evaluating-performance-and-features-of-ring-vs-nest-doorbells/"><u>Decision Time: Evaluating Performance and Features of Ring Vs. Nest Doorbells</u></a></li>
-<li><a href="https://win-awesome.techidaily.com/effiziente-datensynchronisation-zwischen-iphone-and-ipad-bilder-adressbucher-and-textnachrichten-koppeln/"><u>Effiziente Datensynchronisation Zwischen iPhone & iPad - Bilder, Adressbücher & Textnachrichten Koppeln</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/explore-the-internet-with-lenovos-2020-tab-m10-hd-stream-browse-and-save/"><u>Explore the Internet with Lenovo's 2020 Tab M10 HD - Stream, Browse & Save!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/googles-latest-creation-the-pixelbook-go-unveiled-premium-functionality-at-a-pricey-tag/"><u>Google's Latest Creation - The Pixelbook Go Unveiled: Premium Functionality at a Pricey Tag</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Itel P55 5G? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-vivo-y100i-power-5g-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Vivo Y100i Power 5G Devices</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-garmin-venu-a-smartwatch-transforming-your-fitness-and-lifestyle-management/"><u>In-Depth Review of Garmin Venu: A Smartwatch Transforming Your Fitness and Lifestyle Management</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/innovative-and-comfy-keyboard-wrist-pads-the-best-on-the-market-in-234/"><u>Innovative and Comfy Keyboard Wrist Pads: The Best on the Market in 2^34</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/its-not-used-for-cad-design-processing-as-that-is-a-digital-task-unrelated-to-physical-welding-techniques/"><u>It's Not Used for CAD Design Processing, as that Is a Digital Task Unrelated to Physical Welding Techniques.</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/secure-top-academic-essentials-at-bargain-prices-amazons-latest-back-to-school-promotions-featured-by-zdnet/"><u>Secure Top Academic Essentials at Bargain Prices: Amazon's Latest Back-to-School Promotions Featured by ZDNet</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/streamlined-approaches-for-efficient-gif-design/"><u>Streamlined Approaches for Efficient GIF Design</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-advantages-of-claude-3-over-gpt-3-top-4-facts/"><u>The Advantages of Claude 3 Over GPT-3 - Top 4 Facts</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-singing-machines-colorful-playable-plug-and-play-karaoke-system-sml385btbk-reviewed-and-rated/"><u>The Ultimate Guide to Singing Machine's Colorful, Playable, Plug-and-Play Karaoke System (SML385BTBK) - Reviewed & Rated</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/tips-for-capturing-and-saving-images-from-microsoft-word-files/"><u>Tips for Capturing & Saving Images From Microsoft Word Files</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-huawei-p20-pro-impressive-camera-features-combined-with-a-superior-phone-experience/"><u>Unveiling the Huawei P20 Pro: Impressive Camera Features Combined with a Superior Phone Experience</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/vlc-guide-setting-up-screen-recordings/"><u>VLC Guide Setting Up Screen Recordings</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-a-step-by-step-guide-to-mastering-magix-video-pro-x/"><u>[New] A Step-by-Step Guide to Mastering Magix Video Pro X</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-safeguard-yourself-from-oculus-discomfort/"><u>[New] In 2024, Safeguard Yourself From Oculus Discomfort</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-secrets-from-pros-how-to-convert-insta-videos-to-premium-mp4-for-2024/"><u>[New] Secrets From Pros How to Convert Insta Videos to Premium MP4 for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-flarex-media-player-pro-versatile-music-app/"><u>[Updated] 2024 Approved FlareX Media Player Pro Versatile Music App</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-ultimate-list-of-livestream-streaming-strategies/"><u>[Updated] 2024 Approved The Ultimate List of Livestream Streaming Strategies</u></a></li>
+<li><a href="https://win-news.techidaily.com/a-step-by-step-guide-to-leveraging-clonezillas-partclone-feature-across-different-windows-versions/"><u>A Step-by-Step Guide to Leveraging Clonezilla's Partclone Feature Across Different Windows Versions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/effective-tips-for-capturing-clickmeeting-sessions-a-comprehensive-walkthrough/"><u>Effective Tips for Capturing ClickMeeting Sessions - A Comprehensive Walkthrough</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-motorola-razr-40-ultra-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Motorola Razr 40 Ultra to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-updated-method-to-bypass-honor-x9a-frp-by-drfone-android/"><u>The Updated Method to Bypass Honor X9a FRP</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlocking-grand-escapades-within-yokus-island-express-a-captivating-review/"><u>Unlocking Grand Escapades Within Yoku's Island Express - A Captivating Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-craftsmanship-behind-michael-kors-gen-5e-accessories-a-detailed-product-analysis-and-reviews/"><u>Unveiling the Craftsmanship Behind Michael Kors Gen 5E Accessories: A Detailed Product Analysis and Reviews</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-features-the-easy-setup-and-sturdy-construction-of-the-acurite-pro-0103n-weather-monitor/"><u>Unveiling the Features: The Easy Setup & Sturdy Construction of the AcuRite Pro 0103N Weather Monitor</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-dynamics-in-tropico-6-a-paradise-under-authority/"><u>Unveiling the Power Dynamics in Tropico 6 - A Paradise Under Authority</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-strengths-of-the-nokia-72-stellar-performance-for-its-price-range/"><u>Unveiling the Strengths of the Nokia 7.2: Stellar Performance for Its Price Range</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-truth-behind-the-google-pixel-6-phenomenon-expert-review/"><u>Unveiling the Truth Behind the Google Pixel 6 Phenomenon - Expert Review</u></a></li>
 </ul></div>
 

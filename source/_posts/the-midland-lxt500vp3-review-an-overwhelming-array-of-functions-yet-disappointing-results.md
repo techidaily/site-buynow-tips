@@ -1,7 +1,7 @@
 ---
 title: The Midland LXT500VP3 Review – An Overwhelming Array of Functions Yet Disappointing Results
-date: 2025-01-17T09:32:52.294Z
-updated: 2025-01-21T21:38:20.288Z
+date: 2025-01-25T00:59:24.252Z
+updated: 2025-01-29T23:53:23.678Z
 categories:
   - BestProducts
 description: This Article Describes The Midland LXT500VP3 Review – An Overwhelming Array of Functions Yet Disappointing Results
@@ -13,13 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/liJwE98Sv8EgOXIWVzrkFGGXxEo=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## TopMate C302 Laptop Cooling Pad
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/aiCouzmBGM4njr9Ovpa0MfLae4E=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -45,6 +45,10 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Um5K58ex8qVMnW5PlEtqzPi9c-4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
 [View On Amazon $17](https://www.amazon.com/dp/B01L8M215A?tag=lifewire-onsite-prod-20&ascsubtag=5193471%7Cn3d06d6a443e14152b7728753066731b712%7CB01L8M215A)
@@ -67,6 +71,10 @@ Lifewire / Andrew Hayward
 
  The TopMate C302 is a strong example of the latter. It’s affordable and solidly effective, but the plastic design feels a bit flimsy. I wouldn’t bet on it lasting for the long haul without gentle handling, but given the price, you might not worry about it too much.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Design: Light and a little flimsy
 
  The C302 measures just over 14 inches wide and is designed for laptops with screens up to 15.6 inches diagonal. It’s primarily made of lightweight plastic, with a thin metal grate on the top above the two 4.9-inch fans to help dissipate heat.
@@ -74,10 +82,6 @@ Lifewire / Andrew Hayward
  The entire pad weighs only 1.1 pounds, but the downside to it being so lightweight is that it feels a bit flimsy and rickety. It’ll do just fine holding your laptop and sitting on a desk, but I wouldn’t bet on it surviving a hard fall without some damage.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3qjwZzxQ2KVhmQJOdD2R9jBegvI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_03-ed7074949b6f4e4794ce30be2d582058.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -95,10 +99,6 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
 
 ## Performance: It makes a difference
@@ -115,10 +115,6 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Xs71AyeThjZwy-vZJ9LfxIhuXJc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_04-eadbaf270b874af9bb8843b95efe8ca7.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
 
  Lastly, UNIGINE’s Heaven Benchmark hit 162 degrees internally and 109 degrees externally on the Razer Blade 15 alone, and dropped to 154 degrees internally and 105 degrees externally when using the C302\. All told, this lightweight and affordable pad delivered solid cooling power that helped cut down on both the internal and external temperature of the laptop while under significant stress.
@@ -126,7 +122,7 @@ Lifewire / Andrew Hayward
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Price: It’s very affordable
@@ -146,6 +142,10 @@ Lifewire / Andrew Hayward
 **An ideal entry-level pick.**
 
  Durability questions aside, the TopMate C302 Laptop Cooling Pad ultimately worked about as well as the other, pricier pads I tested, helping to offset some of the heat generated by a very hot gaming laptop. If you’re concerned about long-term damage or performance degradation from an overheating laptop, the C302 is a cost-efficient way to help keep your notebook from reaching extreme heat peaks.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -181,17 +181,24 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-5-leading-3d-video-entrance-design-tools/"><u>[New] 2024 Approved 5 Leading 3D Video Entrance Design Tools</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-prime-10-editors-seamless-image-transformation-pro/"><u>[Updated] Prime 10 Editors Seamless Image Transformation Pro</u></a></li>
-<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-xiaomi-redmi-a2-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Xiaomi Redmi A2 | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/apples-revolutionary-m3-chip-powers-their-newest-macbook-air-13/"><u>Apple's Revolutionary M3 Chip Powers Their Newest MacBook Air 13</u></a></li>
-<li><a href="https://games-able.techidaily.com/easy-fixes-for-elusive-steam-application-accessibility/"><u>Easy Fixes for Elusive Steam Application Accessibility</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/enhancing-youtube-playbacks-with-timestamps/"><u>Enhancing YouTube Playbacks with Timestamps</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/smart-blinds-and-2023-which-are-relevant-to-the-original-title-while-adding-value-with-additional-descriptive-words-like-top-rated-comprehensive-guide-and-u10/"><u>Smart Blinds and 2023, Which Are Relevant to the Original Title, While Adding Value with Additional Descriptive Words Like Top-Rated, Comprehensive Guide, and Ultimate Selection.</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/smooth-operation-file-transfer-between-different-os-phones/"><u>Smooth Operation File Transfer Between Different OS Phones</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-affordable-technology-gadgets-less-than-50-for-holiday-season/"><u>The Ultimate Guide to Affordable Technology Gadgets - Less Than $50 for Holiday Season</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-choosing-leading-ups-systems-for-202n4/"><u>The Ultimate Guide to Choosing Leading UPS Systems for 202N4</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-list-of-high-performance-mobile-gaming-pcs-for-2nnd-year/"><u>The Ultimate List of High-Performance Mobile Gaming PCs for 2Nnd Year</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-picks-expert-recommended-gadget-presents-for-the-festive-season-of-2021/"><u>Top Picks: Expert Recommended Gadget Presents for the Festive Season of 2021</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-evaluating-mr-beasts-fortune/"><u>[Updated] 2024 Approved Evaluating Mr. Beast’s Fortune</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-quick-and-easy-twitter-to-snapchat-video-sharing-tips/"><u>[Updated] Quick & Easy Twitter to Snapchat Video Sharing Tips</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/202n-top7/"><u>「最新動画変換ツール！202n オススメのフリーソフトライブラリTOP7」</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enlightening-editing-paths-to-audience-appealing-descriptors-for-2024/"><u>Enlightening Editing Paths to Audience-Appealing Descriptors for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Lava Yuva 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-the-ultimate-pathway-for-high-quality-video-production-in-adobe-connect/"><u>In 2024, The Ultimate Pathway for High-Quality Video Production in Adobe Connect</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/1719255310971-jump-over-compatibility-obstacles-with-these-simple-fixes/"><u>Jump Over Compatibility Obstacles with These Simple Fixes</u></a></li>
+<li><a href="https://network-issues.techidaily.com/nvidia-gpu-armored-post-acceleration/"><u>Nvidia GPU Armored Post-Acceleration</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126057-9781609254629-songs-of-kabir/"><u>Songs of Kabir | Free Book</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-definitive-verdict-on-the-gaomon-pd1n560-is-it-the-perfect-pen-display-for-your-creative-ventures/"><u>The Definitive Verdict on the Gaomon PD1n560: Is It the Perfect Pen Display for Your Creative Ventures?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-kindle-advantage-in-book-consumption/"><u>The Kindle Advantage in Book Consumption</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-lenovo-p11-pro-examined-exceptional-tablet-compromised-by-specific-issues/"><u>The Lenovo P11 Pro Examined: Exceptional Tablet Compromised by Specific Issues</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-real-deal-on-the-docooler-usb-20-12-megapixel-dslr-an-in-depth-camera-review/"><u>The Real Deal on the Docooler USB 2.0 12 Megapixel DSLR - An In-Depth Camera Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-real-deal-with-samsung-cf591-gaming-performance-explored-in-detail/"><u>The Real Deal with Samsung CF591 - Gaming Performance Explored in Detail</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-value-in-pet-surveillance-tech/"><u>The Ultimate Guide to Value in Pet Surveillance Tech</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-review-of-the-budget-friendly-topmate-c32-companion-for-laptop-overheating-issues/"><u>The Ultimate Review of the Budget-Friendly TopMate C3ˈ2 Companion for Laptop Overheating Issues</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-selection-of-premium-smartwatches-for-2n24/"><u>The Ultimate Selection of Premium Smartwatches for 2N24</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-apple-ipad-pro-11-a-comprehensive-guide-and-reviews-from-2018/"><u>Top Rated Apple iPad Pro 11 - A Comprehensive Guide & Reviews From 2018</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Practical Guide: Using the Versatile MSI Pro MP161E2 Portable Display"
-date: 2024-08-09T00:56:23.656Z
-updated: 2024-08-10T00:56:23.656Z
+date: 2025-01-23T00:17:07.986Z
+updated: 2025-01-29T22:11:35.007Z
 categories:
   - BestProducts
 description: "This Article Describes Practical Guide: Using the Versatile MSI Pro MP161E2 Portable Display"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/31e3ae8455d50c80842cdc2a354e8096f8d646d3d
 ## Ultimate Guide to the HAVIT 5 Laptop Chiller: Stay Cool While Gaming
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## HAVIT 5 Fan Laptop Cooler
 
@@ -39,12 +43,13 @@ Lifewire / Rebecca Isaacs
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ## HAVIT 5 Fan Laptop Cooler
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/Oc__n9cXABeKwLweBvavtYWeE9M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_HeroSquare-e793f085fe42447396899e6edb8c57b0.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -68,15 +73,16 @@ _Our reviewer already owned this product._
 
  A couple gaming sessions later, and I realized I needed a[laptop cooling pad](https://www.lifewire.com/best-laptop-cooling-pads-4149823) . After taking a look at various models, I decided to try out the HAVIT 5 Gaming Laptop Cooling Pad. It boasts five fans and an adjustable rollout switch to customize my cooling experience. And it offers anti-slip baffles so my curious cat can't knock it off my laptop. After over a year of use, I still use this almost every day for my gaming needs. Read on for our final verdict, as well as thoughts on its specs.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Design: Looks like a gamer’s cooling pad
 
  HAVIT offers this laptop cooling pad in two different colors: red and blue. I personally felt that the red would be too bright and opted for the blue; when I pulled it out of the box, I was surprised at how heavy its 1.8 pounds felt in my hand.
 
  On top of the pad itself, it comes with a braided USB cord for protection. It could plug into one of two ports, of which I used the spare to add USB charging for USB compatible items like my[Amazon Kindle](https://www.lifewire.com/amazon-kindle-2019-review-4688850) and[Java Bluetooth headset](https://www.lifewire.com/jabra-talk-45-review-5070286) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/J6RTKS-ZdzNqPyF_Tm9lloOF1iM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_04-5a7071fefb884ba19eb68638fdbf1b2b.jpg)
 
 Lifewire / Rebecca Isaacs
@@ -93,9 +99,6 @@ Lifewire / Rebecca Isaacs
 
  Before getting this cooling pad, my Eluktronics laptop sounded like an airplane was taking off and landing at my desk space. I wish I could say that this changed after implementing the pad into my gaming rig, or even with my MSI laptop. Unfortunately, my laptops’ fans still sound like I’m on the tarmac instead of being at home.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/l2nDOOm1dGSmniJBqJPn708DnK8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_03-71babed64c14425184604e4825680aac.jpg)
 
 Lifewire / Rebecca Isaacs
@@ -103,8 +106,9 @@ Lifewire / Rebecca Isaacs
  That’s not to say that this laptop cooling pad doesn’t help cool it down. Since my Eluktronics is getting some much-needed TLC in the shop, I tested the MSI’s internal temps while running[Tropico Six](https://www.lifewire.com/tropico-6-review-5077604) on my laptop. Without the laptop cooling pad, I was running around 187 degrees Fahrenheit. With the cooling pad, it adjusted to around 169 degrees. It’s not much, but it’s enough to make a difference.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Baffles: Adjustable for gaming and typing
 
  If you feel the laptop needs more circulation, the good news is that HAVIT also anticipated these needs, too. Anti-slip baffles offer a sturdy position on any desk, even if you push up the height to a more angled position.
@@ -123,16 +127,10 @@ Lifewire / Rebecca Isaacs
 
  I picked up my HAVIT 5 while it was on sale for around $30 back in 2019, but the usual price is around $50\. That seems a little steep, especially for fans that don’t necessarily pack the punch for gaming that most laptops require. If you keep an eye on Amazon, you can usually get this one for around $30, as it seems to go on sale fairly often.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/lItC7F6Ja8RbBfTaNXh5l9ufFqY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_05-07577b69f7d04de5a7904e798681ba02-6b3615a38d584594b89077eaf51228b2.jpg)
 
 Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## HAVIT 5 vs. Kootak Laptop Cooling Pad
 
  It makes sense to compare the Kootak Laptop Cooling Pad to the HAVIT. Both have five cooling fans, both fit laptops up to 17 inches, and both offer anti-slip baffles to ensure your laptop is safe if you want to adjust the height for more air circulation or wrist angle preferences. The key differences are design and adjustability.
@@ -152,8 +150,9 @@ Lifewire / Rebecca Isaacs
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  5 Fan Laptop Cooler
@@ -168,14 +167,11 @@ Lifewire / Rebecca Isaacs
 * Warranty  One year limited
 * Connectivity Options  USB port (one cord included)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -183,3 +179,22 @@ Lifewire / Rebecca Isaacs
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-the-elite-circle-of-online-av-masters/"><u>[New] The Elite Circle of Online AV Masters</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-top-10-high-flying-moba-games-for-android-users/"><u>[Updated] 2024 Approved Top 10 High-Flying MOBA Games for Android Users</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/2-capture-your-next-tech-purchase-grab-the-749-deal-on-appleeball-air-featuring-m2-chip-prime-day-specials-await/"><u>2. Capture Your Next Tech Purchase: Grab the $749 Deal on Apple'eball Air Featuring M2 Chip – Prime Day Specials Await!</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/enhanced-ai-interaction-why-you-should-opt-for-the-chatgpt-desktop-application-instead-of-browsing-the-site/"><u>Enhanced AI Interaction – Why You Should Opt for the ChatGPT Desktop Application Instead of Browsing the Site</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-can-you-unlock-apple-iphone-15-pro-max-after-forgetting-the-passcode-by-drfone-ios/"><u>In 2024, Can You Unlock Apple iPhone 15 Pro Max After Forgetting the Passcode?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-the-two-factor-authentication-on-iphone-8-by-drfone-ios/"><u>In 2024, How To Remove the Two Factor Authentication On iPhone 8</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-multiplayer-a-comprehensive-review-of-the-powerhouse-that-is-nvidia-shield-tv-pro/"><u>Mastering Multiplayer: A Comprehensive Review of the Powerhouse That Is Nvidia Shield TV Pro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximizing-blog-revenue-with-effective-ad-campaigns-on-buyselladscom/"><u>Maximizing Blog Revenue with Effective Ad Campaigns on buySELLads.com</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigate-your-mac-with-ease-top-mice-recommendations-for-a-smooth-experience/"><u>Navigate Your Mac with Ease - Top Mice Recommendations for a Smooth Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/next-gen-battle-analyzing-features-between-samsung-galaxy-s23-ultra-and-s21-ultra/"><u>Next-Gen Battle: Analyzing Features Between Samsung Galaxy S23 Ultra and S21 Ultra</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/on-the-horizon-android-13-release-but-will-it-reach-your-device/"><u>On the Horizon: Android 13 Release - But Will It Reach Your Device?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/optimal-sound-quality-top-rated-wired-earbuds-2024-edition/"><u>Optimal Sound Quality: Top-Rated Wired Earbuds, 2024 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/photoscape-software-evaluation-top-ranked-free-tool-for-imagery-manipulation/"><u>PhotoScape Software Evaluation: Top-Ranked Free Tool for Imagery Manipulation</u></a></li>
+<li><a href="https://article-helps.techidaily.com/unraveling-the-mysteries-of-smooth-audioshifts/"><u>Unraveling the Mysteries of Smooth Audioshifts</u></a></li>
+</ul></div>
+

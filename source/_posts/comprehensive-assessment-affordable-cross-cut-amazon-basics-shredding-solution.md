@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
-date: 2025-01-20T12:26:01.473Z
-updated: 2025-01-22T00:11:58.613Z
+date: 2025-01-25T22:10:56.329Z
+updated: 2025-01-29T20:19:42.528Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Assessment: Affordable Cross-Cut Amazon Basics Shredding Solution"
@@ -13,13 +13,13 @@ thumbnail: https://thmb.techidaily.com/e0be33554f7e808cbb9defb5e44d8742371f9f0a4
 
 4
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## HP Omen Obelisk
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Szj7RCNucny4rfZ6uBlIf8pdeiE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_HP-OMEN-Obelisk-Gaming-Desktop-Computer-1-56ba747009334162a328f46d8b4743af.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -97,10 +97,14 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/gfeGQoUwG35q5t-JwO07Ax4jm5I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-3-f4e655ec9e684a47855e9ee7373ba4b6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance** :**Great components for gaming and productivity**
@@ -110,10 +114,6 @@ Lifewire / Jonno Hill
  The desktop scored an impressive 6,967 in the productivity-focused benchmarking application PCMark 10\. On the gaming front, the Omen managed a score of 10,740 in 3DMark’s Time Spy. In real-world use, this means more than 60fps at 4K in many popular titles like GTA V, but less than 60fps in others like Deus Ex: Mankind Divided. In other words, the Omen is mostly capable of 4K gameplay and is nearly always capable of 60+ fps in most common resolutions shy of 4K.
 
  The Omen comes equipped with a 1TB[NVMe SSD](https://www.lifewire.com/what-is-m2-833453) and 32GB of DDR4 2666 memory. This is definitely more RAM than games alone will call for, but it’s merely an adequate amount of RAM for some creative professionals working with more demanding software like Adobe After Effects. Keep in mind though, even those that don’t normally need a lot of RAM can still benefit from having more. Among other things, it gives you the luxury of keeping all of your browser tabs and background applications running without having to start juggling applications on and off, which can be helpful from a productivity standpoint.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Gaming** :**Great for the most demanding titles**
 
@@ -129,11 +129,11 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Pz9tV-mhJl_Cjm8HSqEQ_VZPbVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-5-cdbd9d78a8c14b8e8bce0113d12e9fcc.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Network** :**Great speeds, but software that doesn’t do much**
 
@@ -151,10 +151,6 @@ Lifewire / Jonno Hill
 
  The option to overclock your system has you first run a nondescript benchmark, which produces a score with no reference point (to establish a baseline). While it’s nice to have the option, this really,_sincerely_ isn’t a system you want to be overclocking. The i9-9900K CPU already runs alarmingly hot, even with its pre-installed water cooling solution. There also isn’t enough room for anything beyond a 120mm AIO watercooler, and not nearly enough clearance for a popular air heatsink like the Noctua NH-D15.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Highly competitive**
 
  The HP OMEN Obelisk with the same specs as this one can be found for around $2,000, at least when it’s in stock. Despite a lot of flaws that I can point to a nit-pick about, the price is one of the main reasons I still consider the OMEN to be a solid deal. I went through the trouble of parting out a similar build on PCPartPicker, going as far as to cut corners where I usually wouldn’t, and still arrived at just under $1800 before tax.
@@ -163,7 +159,15 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/J3cZUfrEy-ALtFpRbDRhw7FZI8M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-4-f78d504d7bd348eca19b7e65b4d10289.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **HP OMEN Obelisk vs Corsair One Pro**
 
@@ -176,10 +180,6 @@ Lifewire / Jonno Hill
  **High performance and fantastic value, but upsetting thermals.**
 
  The HP OMEN Obelisk delivers fantastic value for gamers shopping for a high-performance, pre-built PC. HP has come a long way, and now offers a much more compelling solution that will appeal to a much broader set of buyers. That said, there is work to be done still, as the case suffers from poor airflow, poor thermals, and not a lot of meaningful ways to improve them.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -215,22 +215,16 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-latest-techniques-for-ios-iphoneipad-screen-capture-2023-update/"><u>[New] 2024 Approved Latest Techniques for iOS (iPhone/iPad) Screen Capture - 2023 Update</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-innovate-your-screenshots-unveiling-ezvides-screen-casting-features-for-2024/"><u>[New] Innovate Your Screenshots Unveiling EZvide's Screen Casting Features for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-crafting-the-perfect-facebook-video-post-pcandroid-techniques/"><u>[Updated] 2024 Approved Crafting the Perfect Facebook Video Post, PC/Android Techniques</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-altering-username-on-google-meet-via-pc-and-mobile/"><u>[Updated] Altering Username on Google Meet via PC & Mobile</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/battery-powered-google-wireless-nest-doorbell-a-comprehensive-review/"><u>Battery-Powered Google Wireless Nest Doorbell: A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-the-portable-kensun-tire-filler-solid-performance-in-a-small-package/"><u>Comprehensive Guide to the Portable Kensun Tire Filler: Solid Performance in a Small Package</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/culinary-havoc-on-screen-a-comprehensive-look-at-overcooked-review/"><u>Culinary Havoc on Screen: A Comprehensive Look at Overcooked! ² Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/decoding-wi-fi-6-excellence-an-in-depth-review-of-the-impressive-netgear-nighthawk-rax80-router/"><u>Decoding Wi-Fi 6 Excellence: An In-Depth Review of the Impressive Netgear Nighthawk RAX80 Router</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/easy-setup-guide-enabling-windows-copilot-on-your-personal-computers-and-mobile-gadgets/"><u>Easy Setup Guide: Enabling Windows Copilot on Your Personal Computers and Mobile Gadgets</u></a></li>
-<li><a href="https://os-tips.techidaily.com/eat-healthy-foods-rich-in-omega-3-fatty-acids-foods-high-in-omega-3s-have-shown-promising-results-when-it-comes-to-reducing-depressive-symptoms-these-includ11/"><u>Eat Healthy Foods Rich in Omega-3 Fatty Acids: Foods High in Omega 3’S Have Shown Promising Results when It Comes to Reducing Depressive Symptoms. These Include Fish Oils (Salmon or Tuna), Flaxseed Oil Capsules, Walnuts & Soybeans Amongst Other Sources!</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/full-compendium-decoding-every-blue-screen-code-on-your-pc/"><u>Full Compendium: Decoding Every Blue Screen Code on Your PC</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-zte-nubia-flip-5g-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From ZTE Nubia Flip 5G To iPhone 15/14/13? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Asus ROG Phone 7 | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-why-linksys-wrt3200acm-leads-as-a-premier-open-source-networking-device/"><u>In Depth Analysis: Why Linksys WRT3200ACM Leads as a Premier Open Source Networking Device</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maximum-jumpstart-capability-unveiled-in-beatit-bt-d11-test-and-review/"><u>Maximum Jumpstart Capability Unveiled in Beatit BT-D11 Test & Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/razer-gaming-accessory-overview-the-ultimate-wi-fi-solution-for-avid-players/"><u>Razer Gaming Accessory Overview: The Ultimate Wi-Fi Solution for Avid Players</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-of-dying-light-mastering-the-art-of-parkour-and-teamwork-for-ultimate-survival-gaming/"><u>Review of Dying Light: Mastering the Art of Parkour and Teamwork for Ultimate Survival Gaming</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-strategies-for-bulk-character-illusions-in-tiktok-content/"><u>[New] 2024 Approved Strategies for Bulk Character Illusions in TikTok Content</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-retrospective-facebook-viewing-techniques-for-laptops-and-phones/"><u>[New] In 2024, Retrospective Facebook Viewing Techniques for Laptops and Phones</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-unlocking-zooms-potential-by-leveraging-skype/"><u>[New] In 2024, Unlocking Zoom's Potential by Leveraging Skype</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-comprehensively-curated-list-15-prime-gear-for-gopro/"><u>2024 Approved Comprehensively Curated List 15 Prime Gear for GoPro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-netgear-orbi-ideal-choice-for-modern-home-networking/"><u>Comprehensive Evaluation of Netgear Orbi: Ideal Choice for Modern Home Networking</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-amazons-fire-tv-cube-your-speedy-streaming-solution/"><u>Comprehensive Review of Amazon's Fire TV Cube - Your Speedy Streaming Solution</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-navigating-the-design-challenges-of-the-pioneer-bdr-xd05b-dvd-writer/"><u>Comprehensive Review: Navigating the Design Challenges of the Pioneer BDR-XD05B DVD Writer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/connect-and-stream-with-ease-using-lihanns-lhfm1039-wireless-bluetooth-unit-for-cars/"><u>Connect and Stream with Ease Using Lihann's LHFM1039 Wireless Bluetooth Unit for Cars</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-inside-story-stock-pictures-and-their-internet-fame/"><u>In 2024, Inside Story Stock Pictures and Their Internet Fame</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Apple iPhone 13? | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/t-series-youtube-revenue-an-overview/"><u>T-Series YouTube Revenue An Overview</u></a></li>
 </ul></div>
 

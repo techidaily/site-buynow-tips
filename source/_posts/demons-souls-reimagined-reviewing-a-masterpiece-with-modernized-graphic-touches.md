@@ -1,7 +1,7 @@
 ---
 title: Demon's Souls Reimagined - Reviewing a Masterpiece with Modernized Graphic Touches
-date: 2025-01-11T17:27:05.239Z
-updated: 2025-01-16T03:23:44.052Z
+date: 2025-01-25T23:44:48.876Z
+updated: 2025-01-29T17:06:00.494Z
 categories:
   - BestProducts
 description: This Article Describes Demon's Souls Reimagined - Reviewing a Masterpiece with Modernized Graphic Touches
@@ -13,13 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/dEOCkzkzYSEO1EFWdx9dkv38Hw8=/400x300/fi
 
 4.9
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## LG OLED C9 65" 4K Smart TV
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/Z82osxXGuhEbZyidLLG58VdbbJ0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_HeroSquare-b4b1522941d44a18b75a586155788477.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -43,6 +43,10 @@ Lifewire / Emily Isaacs
 [View On Amazon $1,499](https://www.amazon.com/dp/B07NHQ4CXM?tag=lifewire-onsite-prod-20&ascsubtag=4782074%7Cnbf356f5c2a82467e96b6fbc9b5b4691023%7CB07NHQ4CXM) [View On Walmart $3,497](https://www.walmart.com/ip/LG-65-Class-OLED-C9-Series-4K-2160P-Smart-Ultra-HD-HDR-TV-OLED65C9PUA-2019-Model/543371577)
 
 4.9
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## LG OLED C9 65" 4K Smart TV
 
@@ -74,6 +78,10 @@ Lifewire / Emily Isaacs
 
  Lifewire / Emily Isaacs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Smart and sleek**
 
 [OLED TVs](https://www.lifewire.com/oled-tv-basics-1846926) are among the best money can buy, characterized by their ability to produce a wide range of colors alongside deep, rich blacks by toggling individual pixels to emit their own light. On top of this, OLED frames are thinner and lighter than their LED predecessors. It’s a powerful combination that makes for a startlingly realistic picture alongside an expanded range of placement options. In the case of the LG C9, it’s a design that’s as smart as it is sleek thanks to the inclusion of Google Assistant and Alexa.
@@ -86,15 +94,7 @@ Lifewire / Emily Isaacs
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/mxKfDJGuIKYcsSIQoKfzwDbYYmg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_02-3da87ff8439343f691cf02e9234d1f04.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Do it yourself worthy, but you’ll need a hand**
 
@@ -120,15 +120,15 @@ Lifewire / Emily Isaacs
 
  These pictures are further enhanced with LG’s α9 Gen 2 intelligent processor, new to 2019’s model. It excels at drawing out detail and correcting quality discrepancies within the picture, such as banding which creates textures and strips in areas of the screen that would otherwise be smooth. This is particularly important given the large screen size and high resolution. While it’s not as bright as an LED TV since it lacks backlighting, it doesn’t need it as the TV already possesses excellent color, a change here would risk washing out the inky blacks on the screen.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Audio: Better than expected**
 
  While OLED TVs aren’t generally known for their great sound quality, the LG C9 has a surprisingly good sound system all things considered—but a soundbar would still be recommended. Audio in TV or movies is generally good, but it struggles to regulate loud and soft noises in a scene. Streaming Lizzo’s_Cuz I Love You_ on Spotify produces a surprising depth of sound, but it’s simply not comparable to a more robust system that a soundbar or home theater system would provide.
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/SZUaFESJi6OZubIeLdK1e9L9FEM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_04-c559e4cc6de64f0c8baf4470f883dd9e-4844a7694fb74eb2904f1128ba93f760.jpeg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -140,15 +140,15 @@ Lifewire / Emily Isaacs
 
  In addition to the WebOS software, the LG C9 also comes with Google Assistant as well as Amazon’s Alexa. It makes it easy to search content, switch between apps and features, or check the weather, among other things.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: A premium price for a premium TV**
 
  65-inch 4K TV’s generally retail for between $800-$5,000, and this cost jumps further as screen size increases. The LG C9 is a premium 4K TV that sits at the top of this curve, offering integrated smart technologies and excellent picture with an intuitive, easy-to-use interface. As such, it comes at a premium price of $2,500 (Amazon) that exceeds the cost of many competitor models, but with so many additional features it’s worth the high price—even if it’s difficult to swallow.
 
 [How to Buy a TV For Your Home in 2024](https://www.lifewire.com/best-60-inch-tvs-4580159)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **LG OLED C9 65-inch vs. Samsung 65-inch Class Q60R**
 
@@ -211,19 +211,22 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-expert-tips-on-figma-seamless-bg-erasure-techniques-for-2024/"><u>[New] Expert Tips on Figma Seamless BG Erasure Techniques for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-live-streaming-capture-services/"><u>[New] In 2024, Live-Streaming Capture Services</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unified-vision-ventures-a-complete-cms-selection-journey/"><u>[Updated] 2024 Approved Unified Vision Ventures A Complete CMS Selection Journey</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-leading-10-digital-subtitling-platforms/"><u>[Updated] Leading 10 Digital Subtitling Platforms</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-top-online-platforms-for-youtube-media-growth/"><u>2024 Approved Top Online Platforms for YouTube Media Growth</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-unlock-youtube-beats-26-favorite-audio-splitters-at-zero-cost/"><u>2024 Approved Unlock YouTube Beats 26 Favorite Audio Splitters at Zero Cost</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/breakthrough-sleep-cycle-enhancement-the-heimvision-sunrise-a80s-alarm-clock-evaluation/"><u>Breakthrough Sleep Cycle Enhancement - The HeimVision Sunrise A80S Alarm Clock Evaluation</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/brilliant-illumination-from-large-studiofx-lighting-kit/"><u>Brilliant Illumination From Large StudioFX Lighting Kit</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/classy-contemporary-and-convenient-a-full-evaluation-of-the-flexispot-theodore-adjustable-desk-for-professionals/"><u>Classy, Contemporary & Convenient: A Full Evaluation of the Flexispot Theodore Adjustable Desk for Professionals</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/crafting-musical-bliss-a-comprehensive-overview-of-nest-audio-for-sound-enthusiasts/"><u>Crafting Musical Bliss: A Comprehensive Overview of Nest Audio for Sound Enthusiasts</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/dbpowers-ultimate-jump-starter-the-600a-with-an-impressive-18000mah-battery-in-depth-analysis/"><u>DBPower's Ultimate Jump Starter: The 600A with an Impressive 18,000mAh Battery - In-Depth Analysis</u></a></li>
-<li><a href="https://win-advanced.techidaily.com/extracting-files-made-easy-a-windows-users-walkthrough-by-yl-software-experts/"><u>Extracting Files Made Easy: A Windows User's Walkthrough by YL Software Experts</u></a></li>
-<li><a href="https://techidaily.com/how-to-soft-reset-itel-p55-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Itel P55 phone? | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/swift-remedies-for-the-delayed-folder-upload-issue-onedrive-errors/"><u>Swift Remedies for the Delayed Folder Upload Issue: OneDrive Errors</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-harnessing-online-revenue-multiplatform-studio-use/"><u>[New] 2024 Approved Harnessing Online Revenue Multiplatform Studio Use</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-in-the-era-of-streaming-find-facebooks-video-treasure/"><u>[New] 2024 Approved In the Era of Streaming, Find Facebook's Video Treasure</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-breaking-the-videography-code-download-and-preserve-media-on-fb/"><u>[Updated] 2024 Approved Breaking the Videography Code Download and Preserve Media on FB</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-cost-effective-obs-tuning-steps/"><u>[Updated] In 2024, Cost-Effective OBS Tuning Steps</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-cutting-edge-five-new-features-in-facebooks-sight-for-2024/"><u>[Updated] The Cutting-Edge Five New Features in Facebook's Sight for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/anker-super-bright-tactical-flashlight-review-durable-outdoors-lighting/"><u>Anker Super Bright Tactical Flashlight Review: Durable Outdoors Lighting</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-homepod-vs-google-nest-audio-a-comprehensive-smart-speaker-showdown/"><u>Apple HomePod Vs. Google Nest Audio: A Comprehensive Smart Speaker Showdown</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/beyond-belief-the-aminy-guide-to-dissecting-aliens/"><u>Beyond Belief: The Aminy Guide to Dissecting Aliens</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-performance-a-guide-to-choosing-the-best-processor-based-tablets/"><u>Comparing Performance: A Guide to Choosing the Best Processor-Based Tablets</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-the-mobvoi-ticwatch-pro-navigator-enhanced-battery-performance-unveiled/"><u>Comprehensive Guide to the Mobvoi TicWatch Pro Navigator - Enhanced Battery Performance Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/crafting-an-intergalactic-empire-an-in-depth-analysis-of-offworld-trading-companys-ruthless-economy/"><u>Crafting an Intergalactic Empire: An In-Depth Analysis of Offworld Trading Company's Ruthless Economy</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/does-bigger-mean-better-uncover-the-truth-about-apple-iphone-12-pro-max/"><u>Does Bigger Mean Better? Uncover the Truth About Apple iPhone 12 Pro Max</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elevating-user-experience-the-case-for-spotifys-high-tier/"><u>Elevating User Experience: The Case for Spotify's High Tier</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-your-logitech-g29-racing-wheel-drivers-compatible-with-windows-10-and-above/"><u>Get Your Logitech G29 Racing Wheel Drivers - Compatible with Windows 10 and Above!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/unleash-the-power-of-split-window-on-netflix-platform/"><u>Unleash the Power of Split Window on Netflix Platform</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unveiling-audio-brilliance-how-the-nest-speaker-transforms-any-room-into-a-concert-hall/"><u>Unveiling Audio Brilliance: How the Nest Speaker Transforms Any Room Into a Concert Hall</u></a></li>
 </ul></div>
 

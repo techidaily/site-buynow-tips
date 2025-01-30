@@ -1,7 +1,7 @@
 ---
 title: "A Comprehensive Critique on Pixel Slate: Confronting ChromeOS Difficulties"
-date: 2025-01-19T23:15:35.549Z
-updated: 2025-01-21T18:09:45.150Z
+date: 2025-01-28T20:22:00.727Z
+updated: 2025-01-30T00:23:43.398Z
 categories:
   - BestProducts
 description: "This Article Describes A Comprehensive Critique on Pixel Slate: Confronting ChromeOS Difficulties"
@@ -14,12 +14,16 @@ thumbnail: https://thmb.techidaily.com/c8166e8b96eec7a32e2c5447a156a34a01b3ade6d
 2.7
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/HYgHMUDMFh7JI98Hj0JMbI2wcpw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -44,6 +48,10 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Kelsey Simon
 
 [View On Amazon](https://www.amazon.com/Techland-Torment-Tides-Numenera-PlayStation-4/dp/B01N2VISUC/?tag=lifewire-onsite-prod-20&ascsubtag=5077302%7Cnac6eb02defc3413da4da5d4ed0dc77ea21%7CB01N2VISUC) [View On Steampowered.com](https://store.steampowered.com/app/272270/Torment%5FTides%5Fof%5FNumenera/) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/torment-tides-of-numenera/141986.html)
@@ -62,11 +70,19 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -81,10 +97,6 @@ Lifewire / Kelsey Simon
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -108,15 +120,7 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Only worth it if you’re keen on the story**
 
@@ -137,10 +141,6 @@ Lifewire / Kelsey Simon
  **A text-heavy RPG that doesn’t live up to its predecessor.**
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -165,18 +165,18 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-free-youtube-video-editing-apps-for-iphone-and-ipad-and-how-tos/"><u>[New] In 2024, Best Free YouTube Video Editing Apps for iPhone & iPad & How-Tos</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/aesthetic-meets-lightweight-with-acers-latest-chromebook-r-11-review/"><u>Aesthetic Meets Lightweight with Acer's Latest Chromebook R 11 Review</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/essential-3-step-copywriting-blueprint-for-effective-fb-campaigns-for-2024/"><u>Essential 3-Step Copywriting Blueprint for Effective FB Campaigns for 2024</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/free-high-definition-4k-film-player-compatible-with-windows-11-systems/"><u>Free High-Definition 4K Film Player Compatible with Windows 11 Systems</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/gfxui-win-troubleshoot-complete-functioning-normally/"><u>GFXUI Win Troubleshoot Complete, Functioning Normally</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-gimp-a-versatile-and-cost-free-photo-editing-suite-across-multiple-os/"><u>In-Depth Analysis of GIMP - A Versatile and Cost-Free Photo Editing Suite Across Multiple OS</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/managing-pet-nutrition-with-ease-a-review-of-the-petsafe-automatic-feeders-role-in-weight-management/"><u>Managing Pet Nutrition with Ease: A Review of the PetSafe Automatic Feeder's Role in Weight Management</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/quick-guide-to-downloading-the-free-acer-wireless-connection-driver/"><u>Quick Guide to Downloading the Free Acer Wireless Connection Driver</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/spk10-037-kit-unveiled-bright-and-versatile-studio-essential/"><u>SPK10-037 Kit Unveiled: Bright & Versatile Studio Essential</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-6-iphone-security-applications-the-ultimate-protection-list/"><u>Top 6 iPhone Security Applications: The Ultimate Protection List</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/1722872658483-top-rated-wi-fi-signal-boosters-the-ultimate-guide-for-2/"><u>Top Rated Wi-Fi Signal Boosters: The Ultimate Guide for 2 #</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unveiling-gpts-personalized-guidance-feature-usage-exploration/"><u>Unveiling GPT's Personalized Guidance Feature: Usage Exploration</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Vivo S17? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-aquatic-quest-enhanced-the-best-cameras-reviewed-here/"><u>[New] Aquatic Quest Enhanced The Best Cameras Reviewed Here</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-become-proficient-at-note-management-through-mematic-for-2024/"><u>[New] Become Proficient at Note Management Through Mematic for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-from-passion-to-prominence-the-creators-quest/"><u>[New] From Passion to Prominence The Creator's Quest</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-perfect-iphone-images-abide-by-these-10-rules/"><u>[New] Perfect iPhone Images Abide by These 10 Rules</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-bringing-the-web-to-reality-embedding-youtube-videos-in-slides/"><u>[Updated] In 2024, Bringing the Web to Reality Embedding YouTube Videos in Slides</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unraveling-the-itunes-radio-download-process/"><u>[Updated] Unraveling the iTunes Radio Download Process</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/how-to-access-specific-pages-like-number-4-in-an-online-flipbook-flipbuilder-guide/"><u>How to Access Specific Pages Like Number 4 in an Online Flipbook - FlipBuilder Guide</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-ultimate-guide-key-factors-for-safe-and-effective-use-of-chatgpt-in-psychological-health/"><u>The Ultimate Guide: Key Factors for Safe and Effective Use of ChatGPT in Psychological Health</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-phone-stores-where-to-find-the-latest-models/"><u>Top Phone Stores: Where to Find the Latest Models</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/transitioning-to-ventura-essential-tips-for-os-x-users/"><u>Transitioning to Ventura: Essential Tips for OS X Users</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlocking-the-power-of-full-hd-on-a-budget-exploring-the-lenovo-tab-m10s-display-brilliance-2020-model/"><u>Unlocking the Power of Full HD on a Budget - Exploring the Lenovo Tab M10's Display Brilliance (2020 Model)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unpacking-the-power-of-the-small-package-samsung-galaxy-s10e-reviewed/"><u>Unpacking the Power of the Small Package - Samsung Galaxy S10e Reviewed!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-kobo-nias-strengths-and-weaknesses-a-true-contender-for-the-amazon-kindle-crown/"><u>Unveiling Kobo Nia's Strengths and Weaknesses – A True Contender for the Amazon Kindle Crown</u></a></li>
 </ul></div>
 
