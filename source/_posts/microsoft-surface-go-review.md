@@ -1,7 +1,7 @@
 ---
 title: Microsoft Surface Go Review
-date: 2025-01-25T20:14:53.493Z
-updated: 2025-01-29T18:54:24.516Z
+date: 2025-02-07T18:34:41.569Z
+updated: 2025-02-10T01:12:38.600Z
 categories:
   - BestProducts
 description: This Article Describes Microsoft Surface Go Review
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/O0Cyh5NwiSO2LW6YwP7Ceow5hDQ=/400x300/fi
 ## Microsoft Surface Laptop 4
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/XootaRyVCeCUWEitc2sglk8R7ko=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Microsoft-Surface-Laptop-4-1-6dfa98797a3d4223834c350422c3cb57.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -73,6 +77,10 @@ Lifewire / Matthew S. Smith
 
  Inside, it’s a different story. The Surface Laptop 4 has new AMD and Intel processor options that promise not just a boost in performance, but also battery life. This should help the Laptop 4 compete with Dell’s XPS 13 and Lenovo’s ThinkPad X1 line—but can it catch up to Apple’s MacBook Air?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Design: If it’s not broken, don’t fix it
 
  The Surface Laptop 4 is nearly identical not only to the prior[Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584) , but to the original Surface Laptop released in spring of 2017\. Yet the Laptop 4 looks utterly modern. That’s the sign of great design.
@@ -82,7 +90,7 @@ Lifewire / Matthew S. Smith
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/LKKMWXF9Y9QgcLz3uT0B5mx2h-Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-6-d4eff9347d784715b769c5bc6a8d196e.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
@@ -111,6 +119,10 @@ Lifewire / Matthew S. Smith
 
  The touchscreen is compatible with the Surface Pen. This isn’t especially useful given that the Surface Laptop 4 is, well, a laptop, but it’s nice to have the option. I often use the touchscreen as an alternative to the touchpad in casual use, like online shopping or watching YouTube.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Performance: AMD and Intel options hold their own
 
  Microsoft offers both AMD and Intel processors for the Surface Laptop 4\. I tested the base model, which has AMD’s Ryzen 5 4680U six-core processor with nine AMD Radeon graphics cores. It also had 8GB of RAM and a 256GB solid-state drive.
@@ -123,13 +135,13 @@ Lifewire / Matthew S. Smith
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/MrzPvS6-5_LUBvEOlNjt4wv1BTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-3-e45e7bbc46054a69b2065cedce12519a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Matthew S. Smith
 
  Still, the Surface Laptop 4 can handle basic gaming needs. Titles like Minecraft and Fortnite are enjoyable at modest detail settings. Newer, demanding games like Metro Exodus are technically playable, but you’ll have to set detail to low and play at a reduced resolution. Even then, you may see hiccups and stutters while playing.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Productivity: A portable multitasking powerhouse
 
@@ -144,7 +156,7 @@ Lifewire / Matthew S. Smith
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/ZfUq7KgSBkLGGlcycJhWShrQqeg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-5-cc97b158ae2a4aad85a9527ff97d0a76.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
@@ -163,10 +175,6 @@ Lifewire / Matthew S. Smith
 
  4G LTE cellular data is not available. That’s a bit disappointing, as LTE is available in some Surface Pro devices and in competitors like the ThinkPad X1 Titanium Yoga and HP Spectre x360 13t. Optional LTE would be a match for the Surface Laptop 4’s productivity-first design.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Camera: An okay webcam with Windows Hello
 
  The Surface Laptop 4 has a 720p front-facing camera that suffers all the shortcomings you’d expect from a laptop webcam. It looks ok in a bright room, but even a moderately dim setting will lead to grainy, soft video. The camera fails at proper exposure when lighting is uneven.
@@ -180,7 +188,7 @@ Lifewire / Matthew S. Smith
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/mOdEoB5ucAztqgsA5IjD6moCN3w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-4-2b59b6b46693409a868e88392e980df1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
@@ -189,16 +197,12 @@ Lifewire / Matthew S. Smith
 
  You can drain the battery more quickly, however. I used the laptop for an hour-long session of heavier photo editing in GIMP and chewed through about 20 percent of the battery. This is a downside of the laptop’s fast six-core processor.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Software: Keep It Stock
 
  The Surface Laptop 4 ships with[Windows 10 Home](https://www.lifewire.com/windows-10-home-vs-pro-4177144) installed. There’s otherwise not much to say about the software which, for most people, will be good news. The Laptop 4’s stock Windows installation has zero bloatware.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Price: It’s not cheap, but it’s good value
@@ -241,10 +245,6 @@ Lifewire / Matthew S. Smith
 * [Microsoft Surface Pro 7](https://www.lifewire.com/microsoft-surface-pro-7-review-4797020)
 * [Microsoft's Surface Laptop 2](https://www.lifewire.com/microsoft-surface-laptop-2-review-4779760)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  Surface Laptop 4
@@ -279,17 +279,17 @@ Lifewire / Matthew S. Smith
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/approved-bite-sized-broadcasting-maintaining-quality-in-quick-posts/"><u>2024 Approved Bite-Sized Broadcasting Maintaining Quality in Quick Posts</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-ultimate-capture-tool-for-windows-10-professional/"><u>2024 Approved Ultimate Capture Tool for Windows 10 - Professional</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/choosing-the-ideal-childs-ipad-expert-reviews-and-rankings-by-zdnet/"><u>Choosing the Ideal Child's iPad : Expert Reviews & Rankings by ZDNET</u></a></li>
-<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-infinix-smart-8-hd-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Infinix Smart 8 HD | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-lenovo-x1-carbon-drivers-compatible-with-windows-10-and-7-easy-guide/"><u>Download Lenovo X1 Carbon Drivers: Compatible with Windows 10 and 7 - Easy Guide</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/effective-ways-to-leverage-zoom-on-chrome-os-devices/"><u>Effective Ways to Leverage Zoom on Chrome OS Devices</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Apple iPhone X | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-learn-the-art-of-engaging-video-startups-with-imovie/"><u>In 2024, Learn the Art of Engaging Video Startups with iMovie</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/insightful-review-on-google-wifi-a-versatile-and-user-friendly-mesh-wi-fi-network-solution/"><u>Insightful Review on Google Wifi: A Versatile and User-Friendly Mesh Wi-Fi Network Solution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/is-chromecast-with-google-tv-up-for-par-with-firetv-a-comprehensive-guide/"><u>Is Chromecast with Google TV Up for Par with FireTV? A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/j5-tactical-v1-pro-flashlight-assessment-ultimate-durability-and-portable-illumination/"><u>J5 Tactical V1-Pro Flashlight Assessment: Ultimate Durability & Portable Illumination</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/kobo-nia-reviewed-a-strong-contender-in-the-market-against-amazon-kindle-devices/"><u>Kobo Nia Reviewed: A Strong Contender in the Market Against Amazon Kindle Devices.</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-inexpensive-chinese-virtual-reality-helmets/"><u>[New] Inexpensive Chinese Virtual Reality Helmets</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-steps-to-an-exceptional-youtube-closure/"><u>[Updated] 2024 Approved Steps to an Exceptional YouTube Closure</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-full-analysis-navigating-the-depths-of-adobes-data-safekeeping-and-competitor-highlights/"><u>[Updated] Full Analysis Navigating the Depths of Adobe's Data Safekeeping and Competitor Highlights</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-growing-presence-in-video-platforms-via-short-films-for-2024/"><u>[Updated] Growing Presence in Video Platforms via Short Films for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-crop-companion-chronicles-ultimate-agrigames-to-bond-with-buddies/"><u>[Updated] In 2024, Crop Companion Chronicles Ultimate AgriGames to Bond with Buddies</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/effortless-security-for-your-macbook-unveiling-the-benefits-of-a-basic-and-budget-friendly-procase-case/"><u>Effortless Security for Your MacBook: Unveiling the Benefits of a Basic & Budget-Friendly ProCase Case</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/elite-performance-analysis-for-philips-somneo-series-alarm-clocks/"><u>Elite Performance Analysis for Philips Somneo Series Alarm Clocks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/empire-crafting-in-imperator-rome-mastery-or-misfortune/"><u>Empire Crafting in Imperator: Rome: Mastery or Misfortune?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-stereo-sound-systems/"><u>Evaluating Stereo Sound Systems</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-heartfelt-cheers-access-to-free-and-paid-otu-ideas/"><u>In 2024, Heartfelt Cheers Access to Free & Paid OTU Ideas</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/skyrocket-your-streaming-status-three-winning-techniques-for-newbies-for-2024/"><u>Skyrocket Your Streaming Status Three Winning Techniques for Newbies for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/the-art-of-discretion-blurring-faces-with-pro-video-editors-for-2024/"><u>The Art of Discretion Blurring Faces with Pro Video Editors for 2024</u></a></li>
 </ul></div>
 

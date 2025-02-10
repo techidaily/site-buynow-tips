@@ -1,7 +1,7 @@
 ---
 title: "Holy Stone HS170 Predator Mini RC Helicopter Drone Review: A Drone on a Budget"
-date: 2025-01-24T19:22:49.909Z
-updated: 2025-01-29T22:08:48.969Z
+date: 2025-02-05T07:59:46.761Z
+updated: 2025-02-10T01:04:57.800Z
 categories:
   - BestProducts
 description: "This Article Describes Holy Stone HS170 Predator Mini RC Helicopter Drone Review: A Drone on a Budget"
@@ -38,7 +38,7 @@ Lifewire / Bill Thomas
 3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Netgear C3000 Cable Modem Router
@@ -71,10 +71,6 @@ Lifewire / Bill Thomas
 
 [The Best Cable Modem/Router Combos of 2024](https://www.lifewire.com/best-cable-modem-router-combos-to-buy-4082541)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Design: Compact
 
  The Netgear C3000 is cable modem with an 8x4 DOCSIS 3.0 rating and a slow N300 wireless speed—there isn’t much hardware to pack in here. So it’s a pretty small device, not much larger than a few Blu-Ray cases stacked on top of each other. It measures just under eight inches tall and weighs 0.78 pounds. Combined with the black plastic build, it’s a modem that won’t attract too much attention, which is honestly what we look for. You don’t want something you’ll feel encouraged to hide.
@@ -82,6 +78,10 @@ Lifewire / Bill Thomas
  In the back you’ll find the ports, which we’ll go into a bit later, and in the front you’ll find all the status lights. They’re not too bright, but you should still be able to check the status of your network at a glance.
 
 ![Netgear C3000](https://www.lifewire.com/thmb/vcoYESWM5JJLo3l3KiPZd0A4uEU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_4-b3293ad0ed2b4bffb51f8e5f71f1914d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
@@ -97,17 +97,9 @@ Lifewire / Bill Thomas
 
  Lifewire / Bill Thomas
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Setup Process: Exceptionally easy
 
  Setting up a cable modem can be a complicated and time consuming process. Not so with the Netgear C3000—when we set it up it was almost plug-and-play. It could be because this modem isn’t the most complex piece of hardware, but it was ready for activation_seconds_ after we plugged it in. We connected via ethernet, launched a browser and within minutes we activated our 250 Mbps Xfinity service. We’re not sure if our experience was a fluke, but we were pleasantly surprised.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Connectivity: Pretty limited
 
@@ -116,6 +108,10 @@ Lifewire / Bill Thomas
  There is also Wi-Fi, but it’s only a single antenna—that means no dual-band Wi-Fi here. You’ll be limited to 2.4 GHz and the speed is only rated at N300, which is an extremely dated standard.
 
 ![Netgear C3000](https://www.lifewire.com/thmb/vmrfrWyvGROwVpR7Y2UQmaZOPEU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_6-e34bd6e4000f49c3b6a0d1653d23f6ff.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Bill Thomas
 
@@ -127,6 +123,10 @@ Lifewire / Bill Thomas
 
  There is a silver lining: the wired performance is reliable. When connected this way, we consistently got our rated 250 Mbps speeds with little to no drops. We spent some time playing The Division 2 while hardwired into the Netgear C3000 and didn’t run into any lag. That’s surprising given that a 8x4 DOCSIS 3.0 modem is capable of just 343 Mbps download speeds. But Netgear delivered where it truly counts: modem performance.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Software: Pretty standard and easy to use
 
  The Netgear C3000 uses the same Genie backend that many of its networking products use. It’s a simple backend that’s easy to understand, laid out as a series of six tiles that will show you the status of your network at a glance. Connected devices, online status, even your network SSID are all displayed prominently. You can click any of these tiles to change their accompanying settings.
@@ -136,7 +136,7 @@ Lifewire / Bill Thomas
  There’s also a Netgear Genie mobile app on both Google Play and the App Store. The app gives you the same controls as the management portal, but with a much more user-friendly interface. This is what we’d recommend most people use to[manage their network](https://www.lifewire.com/how-to-set-up-your-home-wi-fi-network-2378223) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Price: Expensive for what it is
@@ -164,7 +164,7 @@ Lifewire / Bill Thomas
 * [Motorola MG7700](https://www.lifewire.com/motorola-mg7700-review-4589346)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -200,22 +200,24 @@ Lifewire / Bill Thomas
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-in-2024-financial-breakdown-of-music-video-production/"><u>[New] In 2024, Financial Breakdown of Music Video Production</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-unraveling-the-best-of-both-worlds-m1-macbook-choices/"><u>[New] Unraveling the Best of Both Worlds M1 MacBook Choices</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-elevate-your-channels-optimal-use-of-templated-content-in-yt-descs/"><u>[Updated] Elevate Your Channels Optimal Use of Templated Content in YT Descs</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-sj6-ultimate-face-off-with-xiaomis-yi-4k-genius/"><u>[Updated] SJ6 Ultimate Face-Off with Xiaomi's Yi 4K Genius</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/1-apple-enhances-icloud-functionality-on-windows-platform-exciting-new-updates-revealed/"><u>1. Apple Enhances iCloud Functionality on Windows Platform: Exciting New Updates Revealed!</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1-effective-techniques-for-effortless-movie-score-retrieval/"><u>1. Effective Techniques for Effortless Movie Score Retrieval</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-pinnacle-of-weather-monitoring-the-wifi-enabled-ws-1002-station-exceptional-performance-for-a-steep-investment/"><u>Exploring the Pinnacle of Weather Monitoring: The WiFi Enabled WS-1002 Station - Exceptional Performance for a Steep Investment</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-vast-horizons-of-x-plane-11-how-it-elevates-flight-gaming-with-high-quality-visuals/"><u>Exploring the Vast Horizons of X-Plane 11 - How It Elevates Flight Gaming With High-Quality Visuals</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/high-performance-low-cost-the-benefits-of-a-tp-link-archer-c9-wireless-router/"><u>High Performance, Low Cost: The Benefits of a TP-Link Archer C9 Wireless Router</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/holy-stones-toy-racer-the-ultimate-family-friendly-review-for-cartoon-race-cars/"><u>Holy Stone's Toy Racer: The Ultimate Family-Friendly Review for Cartoon Race Cars</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-to-upgrade-your-computer-from-windows-8-to-windows-11/"><u>How to Upgrade Your Computer From Windows 8 to Windows 11</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/hunt-for-the-best-prime-day-bargains-save-big-on-your-favorite-samsung-devices/"><u>Hunt for the Best Prime Day Bargains: Save Big on Your Favorite Samsung Devices</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-proven-strategies-against-photos-app-issues-on-windows-11/"><u>In 2024, Proven Strategies Against Photos App Issues on Windows 11</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/is-the-linksys-ac1900-a-one-size-fits-all-solution-an-in-depth-reporter-on-todays-market-best-wifi-router/"><u>Is the Linksys AC1900 a One-Size-Fits-All Solution? – An In-Depth Reporter on Today's Market Best WiFi Router</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/jackery-charging-pack-assessment-the-added-benefit-of-an-inbuilt-ac-receptacle/"><u>Jackery Charging Pack Assessment - The Added Benefit of an Inbuilt AC Receptacle</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/understanding-your-data-consumption-a-step-by-step-guide/"><u>Understanding Your Data Consumption: A Step-by-Step Guide</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/why-the-asus-laptop-outperforms-apples-macbook-in-key-areas-a-detailed-review/"><u>Why the ASUS Laptop Outperforms Apple's MacBook in Key Areas – A Detailed Review</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-the-game-changing-impact-of-freesync-on-lgs-ud68-monitors/"><u>[New] 2024 Approved The Game-Changing Impact of FreeSync on LG's UD68 Monitors</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-multimedia-text-producer/"><u>[Updated] 2024 Approved Multimedia Text Producer</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-turning-up-the-focus-crafting-astonishing-slow-motion-videos-for-ig-reels/"><u>[Updated] 2024 Approved Turning Up the Focus Crafting Astonishing Slow Motion Videos for IG Reels</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-obs-alternatives-reviewed-by-experienced-broadcinas/"><u>[Updated] In 2024, OBS Alternatives Reviewed by Experienced Broadcinas</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-visual-narrative-weaver/"><u>[Updated] In 2024, Visual Narrative Weaver</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-your-iphone-step-by-step-guide-to-podcast-acquisition/"><u>[Updated] Mastering Your iPhone Step-by-Step Guide to Podcast Acquisition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/avoid-tv-recorder-trap-reflect-before-you-buy/"><u>Avoid TV Recorder Trap: Reflect Before You Buy</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/capture-adventures-with-budget-friendly-coolpix-w100/"><u>Capture Adventures with Budget-Friendly Coolpix W100</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-apples-newest-giants-iphone-15-plus-versus-pro-max/"><u>Comparing Apple's Newest Giants: IPhone 15 Plus Versus Pro Max</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-the-budget-friendly-pruveeo-f5-full-hd-dash-cam/"><u>Comprehensive Analysis of the Budget-Friendly Pruveeo F5 Full HD Dash Cam</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensively-upgrade-windows-10-from-home-to-pro/"><u>Comprehensively Upgrade Windows 10 From Home to Pro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-elegance-and-innovation-unveiling-our-thoughtful-review-of-the-latest-lg-watch-style-with-wear-os-20/"><u>Discovering Elegance and Innovation: Unveiling Our Thoughtful Review of the Latest LG Watch Style with Wear OS 2.0</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-seamless-connectivity-with-our-amazon-basics-7-port-usb-30-hub-review-and-rankings/"><u>Experience Seamless Connectivity with Our Amazon Basics 7-Port USB 3.0 Hub Review and Rankings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-using-and-rating-the-apple-books-platform/"><u>Expert Insights on Using & Rating the Apple Books Platform</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-google-pixel-5-modest-engine-with-flagship-advantages-unveiled/"><u>Exploring the Google Pixel 5: Modest Engine with Flagship Advantages Unveiled</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-your-apple-m2-macbook-air-for-just-749-during-amazons-exclusive-october-prime-day-deals-insights/"><u>Get Your Apple M2 MacBook Air for Just $749 During Amazon's Exclusive October Prime Day Deals Insights</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-successfully-bypass-icloud-activation-lock-from-apple-iphone-14-plus-by-drfone-ios/"><u>How to Successfully Bypass iCloud Activation Lock from Apple iPhone 14 Plus</u></a></li>
+<li><a href="https://windows11.techidaily.com/proactive-directory-design-mass-folder-formation-strategies-for-windows-1011-users/"><u>Proactive Directory Design: Mass Folder Formation Strategies for Windows 10/11 Users</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-5-premier-gaming-smartphones-the-ultimate-selection-by-zdnet/"><u>Top 5 Premier Gaming Smartphones : The Ultimate Selection by ZDNet</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unraveling the Cost-Friendly Yet Confusing Identity of Microsoft's Surface Go Through Our In-Depth Review
-date: 2025-01-26T19:46:59.997Z
-updated: 2025-01-30T00:09:35.865Z
+date: 2025-02-03T10:55:53.663Z
+updated: 2025-02-10T06:53:00.981Z
 categories:
   - BestProducts
 description: This Article Describes Unraveling the Cost-Friendly Yet Confusing Identity of Microsoft's Surface Go Through Our In-Depth Review
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/O0Cyh5NwiSO2LW6YwP7Ceow5hDQ=/400x300/fi
 ## Exploring the New Horizon of Affordability with Microsoft's Surface Laptop Go Reviewed Here
 
 4.3
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Microsoft Surface Laptop Go
 
@@ -41,6 +45,10 @@ Lifewire / Andy Zahn
 [View On Amazon $687](https://www.amazon.com/dp/B08GZJM87M?tag=lifewire-onsite-prod-20&ascsubtag=5088869%7Cn39b75fce77a645f6a71bfee9a542bdee21%7CB08GZJM87M) [View On Walmart $529](https://www.walmart.com/ip/Microsoft-Surface-Laptop-Go-12-4-Windows-Computer-Intel-Core-i5-8GB-DDR-256GB-SSD-Ice-Blue-THJ-00024/911853593?slfpid=3)
 
 4.3
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Microsoft Surface Laptop Go
 
@@ -86,7 +94,7 @@ Lifewire / Andy Zahn
  Port selection is rather limited, with a[USB-C](https://www.lifewire.com/usb-c-4149490) port, a USB-A port, a 3.5mm audio jack, and a Surface Connect port which is used for power but can also be used to connect to a Surface Dock. This is really the bare minimum for I/O, and was one of the most frustrating issues for me when using the device.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Display: Ideal for productivity**
@@ -95,21 +103,17 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/kz6EW4svzivooWEtdVJ5TAnOYOs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_06-07315e6a9862481bba3820f745d49887.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Speakers: Loud and proud**
 
  The audio quality of the built-in speakers in the Surface Laptop Go is remarkably good for such a thin and light device. I always play 2Cellos cover of “Thunderstruck” to test the capabilities of speakers and was pleased with how well this laptop performed in the mids and highs.
 
  Bass was underwhelming, but that’s really to be expected in any laptop, particularly one with this form factor. It still provided a pleasant listening experience for both rock and classical music and provided excellent audio for watching movies and shows.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Camera: Low quality**
 
@@ -118,7 +122,7 @@ Lifewire / Andy Zahn
  The Surface Laptop Go is certainly not the most powerful laptop around, but with 8GB of RAM, an Intel Core i5-1035G1 CPU, and a fast solid-state drive for storage it feels zippy and responsive.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Decent power for the price**
@@ -134,7 +138,7 @@ Lifewire / Andy Zahn
  Another limiting factor is the storage capacity of the Surface Laptop Go. The configuration I tested only had 128GB of space on its solid-state drive, and the maximum configuration only comes with 256GB. You’re not going to be storing a lot of data locally on this machine forcing you to resort to cloud storage most of the time.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Connectivity: Modern hardware**
@@ -156,10 +160,6 @@ Lifewire / Andy Zahn
  The 12.4-inch display on the Surface Laptop Go seems larger than the size would suggest, thanks to its 3:2 aspect ratio.
 
  In terms of bloatware, the laptop came with a few pre-installed apps: a Microsoft Office trial, Adobe Photoshop Express, and a few other odds and ends. However, it’s all easily removed if you so choose, and doesn’t really get in the way.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Reasonable Value**
 
@@ -183,14 +183,14 @@ Lifewire / Andy Zahn
 
  The Microsoft Surface Laptop Go looks and feels like a much more expensive device. It’s thin and light, with a great keyboard and trackpad paired with fast and responsive components. This is an ideal option for anyone who needs an affordable ultra-portable laptop for work, school, or travel.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Microsoft Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584)
 * [Google Pixelbook Go](https://www.lifewire.com/google-pixelbook-go-review-4797012)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -222,15 +222,18 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-tips.techidaily.com/battle-for-neighborville-exploring-the-quirky-enjoyable-world-of-plants-vs-zombies-latest-release/"><u>'Battle for Neighborville': Exploring the Quirky, Enjoyable World of Plants Vs. Zombies' Latest Release</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-the-complete-blueprint-integrating-real-time-video-on-sites-for-2024/"><u>[New] The Complete Blueprint Integrating Real-Time Video on Sites for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-batch-background-erasure-in-affinity-photo/"><u>2024 Approved Mastering Batch Background Erasure in Affinity Photo</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Vivo T2 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/audiophile-audit-sonic-precision-of-sony-wh-1000xm4-reviewed/"><u>Audiophile Audit: Sonic Precision of Sony WH-1000XM4 Reviewed</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/before-you-invest-in-video-games-know-these-5-key-points-first/"><u>Before You Invest in Video Games, Know These 5 Key Points First!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/best-combo-deals-on-cable-modems-with-routers-top-picks-of-2024/"><u>Best Combo Deals on Cable Modems with Routers - Top Picks of 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/complete-fixes-to-solve-apple-iphone-se-2022-randomly-asking-for-apple-id-password-by-drfone-ios/"><u>Complete Fixes To Solve Apple iPhone SE (2022) Randomly Asking for Apple ID Password</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/shed-light-on-dark-iphone-movie-capture-for-2024/"><u>Shed Light on Dark iPhone Movie Capture for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/top-10-password-cracking-tools-for-nokia-c210-by-drfone-android/"><u>Top 10 Password Cracking Tools For Nokia C210</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-advanced-tips-for-applying-onscreen-vhs-effects-and-filters/"><u>[New] Advanced Tips for Applying Onscreen VHS Effects and Filters</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-engaging-tactics-for-increased-subscriber-count-for-2024/"><u>[New] Engaging Tactics for Increased Subscriber Count for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-harness-freedom-with-top-rated-android-editing-apps-for-2024/"><u>[New] Harness Freedom with Top-Rated Android Editing Apps for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-timelessly-taken-selfies-from-the-bygone-era-for-2024/"><u>[New] Timelessly Taken Selfies From the Bygone Era for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-free-chants-and-sounds-a-guide-to-peaceful-meditation/"><u>[Updated] Top Free Chants & Sounds A Guide to Peaceful Meditation</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/elevating-your-standards-a-path-to-superior-interview-skills/"><u>Elevating Your Standards A Path to Superior Interview Skills</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/google-nest-hub-gen-2-evaluation-wishing-for-a-built-in-camera-option/"><u>Google Nest Hub (Gen 2) Evaluation: Wishing for a Built-In Camera Option</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/gps-or-cellular-understanding-differences-in-apple-watch-connectivity-options/"><u>GPS or Cellular? Understanding Differences in Apple Watch Connectivity Options</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/handheld-happiness-on-a-budget-exploring-features-and-limitations-of-the-nintendo-switch-lite/"><u>Handheld Happiness on a Budget: Exploring Features and Limitations of the Nintendo Switch Lite</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-to-find-the-right-uninterruptible-power-solution-for-your-gaming-setup-with-apgear/"><u>How to Find the Right Uninterruptible Power Solution for Your Gaming Setup with Apgear</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-2021-gaming-champion-alienware-aurora-r11-review/"><u>In Depth Look at the 2021 Gaming Champion: Alienware Aurora R11 Review</u></a></li>
+<li><a href="https://some-tips.techidaily.com/singaporean-companies-battle-onslaugt-of-cyberattacks-as-ransomware-and-phishing-persist-zdnet-report/"><u>Singaporean Companies Battle Onslaugt of Cyberattacks as Ransomware and Phishing Persist | ZDNET Report</u></a></li>
+<li><a href="https://games-able.techidaily.com/ultimate-list-of-elite-gaming-displays-reviewed-and-ranked-insights-from-zdnet/"><u>Ultimate List of Elite Gaming Displays Reviewed and Ranked - Insights From ZDNet</u></a></li>
 </ul></div>
 

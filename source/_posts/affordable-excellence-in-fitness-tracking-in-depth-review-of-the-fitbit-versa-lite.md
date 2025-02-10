@@ -1,7 +1,7 @@
 ---
 title: Affordable Excellence in Fitness Tracking - In-Depth Review of the Fitbit Versa Lite
-date: 2025-01-09T05:23:44.580Z
-updated: 2025-01-16T04:27:43.881Z
+date: 2025-02-08T07:18:54.404Z
+updated: 2025-02-10T05:58:16.174Z
 categories:
   - BestProducts
 description: This Article Describes Affordable Excellence in Fitness Tracking - In-Depth Review of the Fitbit Versa Lite
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/FzJNmoIVdYnNkY9ObdnYpm1fjtY=/400x300/fi
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/AyUAqIhKcHESYKlEswC1pUtS1Po=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -36,10 +40,6 @@ Lifewire / Jonno Hill
 [View On Amazon](https://www.amazon.com/Mohu-Television-Paper-thin-Performance-MH-110598/dp/B00HSMK580/?tag=lifewire-onsite-prod-20&ascsubtag=4843108%7Cnc1d14f8f39df4c2dac4b8d8ca33f9ac217%7CB00HSMK580) [View On Walmart $48](https://www.walmart.com/ip/Mohu-Leaf-30-Flat-30-Mile-Indoor-HDTV-Antenna/36126033) [View On Home Depot $41](https://www.homedepot.com/p/Mohu-Leaf-30-HDTV-Indoor-Antenna-MH-110583/205146429?slfpid=3)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Mohu Leaf 30
 
@@ -68,23 +68,19 @@ Lifewire / Jonno Hill
 
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Basic but effective**
 
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
 
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup: Dead simple**
 
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Acceptable but not incredible**
 
@@ -92,13 +88,13 @@ Lifewire / Jonno Hill
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Range: Fairly limited**
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Excellent for the performance**
 
@@ -107,7 +103,7 @@ Lifewire / Jonno Hill
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
@@ -118,6 +114,10 @@ Lifewire / Jonno Hill
 
 **No fuss, good value.**
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -146,19 +146,22 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-master-the-art-of-youtube-outros-with-pros-and-resources/"><u>[Updated] Master the Art of YouTube Outros with Pros and Resources</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-securing-youtube-srt-files-a-threefold-procedure/"><u>[Updated] Securing YouTube SRT Files A Threefold Procedure</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-maximizing-revenue-average-income-from-youtubes-adsense-per-thousand-watchers/"><u>2024 Approved Maximizing Revenue Average Income From YouTube's AdSense Per Thousand Watchers</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/home-video-editing-tips-how-to-make-a-great-home-movie/"><u>Home Video Editing Tips - How to Make a Great Home Movie</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-lava-yuva-3-pro-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Lava Yuva 3 Pro to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-activation-lock-and-icloud-account-on-iphone-15-by-drfone-ios/"><u>In 2024, How to Unlock iCloud Activation Lock and iCloud Account On iPhone 15?</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-tecno-spark-10-pro-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Tecno Spark 10 Pro Device</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/is-there-a-new-champion-in-voip-services-or-does-vonage-still-reign-supreme/"><u>Is There a New Champion in VoIP Services, or Does Vonage Still Reign Supreme?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-smart-speaker-innovations-a-2024-roundup/"><u>Leading Smart Speaker Innovations: A 2024 Roundup</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/lockdown-protocol-instantaneous-secure-tiktok-link-addition/"><u>Lockdown Protocol Instantaneous, Secure TikTok Link Addition</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maisto-remote-control-rock-climber-assessment-ideal-toy-for-all-ages/"><u>Maisto Remote Control Rock Climber Assessment: Ideal Toy for All Ages</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/master-your-career-the-ultimate-selection-of-linkedin-learning-opportunities/"><u>Master Your Career: The Ultimate Selection of LinkedIn Learning Opportunities</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maximize-value-iphone-upgrading-insights/"><u>Maximize Value: IPhone Upgrading Insights</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-htc-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your HTC Device</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-activate-or-deactivate-video-commenting-in-youtube/"><u>[New] In 2024, How To Activate or Deactivate Video Commenting in YouTube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-5-innovative-approaches-to-choosing-a-dynamic-podcast-name/"><u>[Updated] In 2024, 5 Innovative Approaches to Choosing a Dynamic Podcast Name</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-aesthetics-unleashed-leading-enhancers-for-2024/"><u>[Updated] Instagram Aesthetics Unleashed Leading Enhancers for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-tomtoms-advanced-adventure-cameras-review-2023-edition-for-2024/"><u>[Updated] TomTom’s Advanced Adventure Cameras Review - 2023 Edition for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/campfire-chronicles-minecraft-skins-unveiled-a-comprehensive-evaluation/"><u>Campfire Chronicles Minecraft Skins Unveiled: A Comprehensive Evaluation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/choosing-your-console-compare-the-features-of-switch-lite-vs-switch-oled/"><u>Choosing Your Console? Compare the Features of Switch Lite Vs. Switch OLED</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/compact-and-affordable-a-look-at-the-nintendo-switch-lite-variant/"><u>Compact and Affordable: A Look at the Nintendo Switch Lite Variant</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/culinary-mayhem-redux-insights-and-revelations-from-playing-overcooked-2/"><u>Culinary Mayhem Redux: Insights and Revelations From Playing Overcooked! 2</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decide-wisely-in-depth-comparison-between-amazon-fire-and-samsung-tablets/"><u>Decide Wisely: In-Depth Comparison Between Amazon Fire and Samsung Tablets.</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-top-samsung-galaxy-tab-s5e-pros-and-cons-for-a-smart-purchase-decision/"><u>Discover Top Samsung Galaxy Tab S5e Pros and Cons for a Smart Purchase Decision</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-google-stadia-potential-and-pitfalls-a-comprehensive-analysis/"><u>Evaluating Google Stadia: Potential and Pitfalls - A Comprehensive Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-wireless-mesh-network-benefits/"><u>Evaluating Wireless Mesh Network Benefits</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unforgettable-stop-motion-films-an-overview/"><u>In 2024, Unforgettable Stop-Motion Films - An Overview</u></a></li>
+<li><a href="https://win-studio.techidaily.com/professional-event-photography-collections-for-your-screen-saver-yl-visual-content-creators/"><u>Professional Event Photography Collections for Your Screen Saver - YL Visual Content Creators</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/seamless-switch-to-virtual-reality-your-phones-next-step-for-2024/"><u>Seamless Switch to Virtual Reality Your Phone's Next Step for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/streamlining-the-job-hunt-process-using-chatgpt-discover-these-essential-tips/"><u>Streamlining the Job Hunt Process Using ChatGPT - Discover These Essential Tips</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/1722857571020-trouble-with-msvbvm50dll-heres-how-to-correctly-fix-the-not-found-error/"><u>Trouble with MSVBVM50.DLL? Here's How to Correctly Fix the Not Found Error!</u></a></li>
 </ul></div>
 

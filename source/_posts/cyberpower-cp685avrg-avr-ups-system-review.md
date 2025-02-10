@@ -1,7 +1,7 @@
 ---
 title: Cyberpower CP685AVRG AVR UPS System Review
-date: 2025-01-25T17:33:17.331Z
-updated: 2025-01-29T22:03:11.320Z
+date: 2025-02-09T13:47:21.795Z
+updated: 2025-02-10T12:12:39.090Z
 categories:
   - BestProducts
 description: This Article Describes Cyberpower CP685AVRG AVR UPS System Review
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/wtXsun69DD8udLlpyE2hV3wzITA=/400x300/fi
 ## Anker PowerCore+ 26800 Battery Pack
 
 ![Anker](https://www.lifewire.com/thmb/lNQbd16pbRC0R9DGxN2t8vYzL7o=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_HEROWebSQUARE-5c90fd70c9e77c0001eb1cc6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -41,10 +45,6 @@ Lifewire / Gannon Burgett
 
 ![Anker](https://www.lifewire.com/thmb/B8fIpC1_9JQjWCu_QhJoNePOP2Y=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_HEROWebSQUARE-5c90fd70c9e77c0001eb1cc6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Gannon Burgett
 
 [View On Amazon $100](https://www.amazon.com/dp/B07XRJZXKY?tag=lifewire-onsite-prod-20&ascsubtag=4589459%7Cne013ed3beb0f470caee172c55826658d22%7CB07XRJZXKY)
@@ -67,29 +67,29 @@ Lifewire / Gannon Burgett
 
  Anker has made a name for itself as one of the most reliable gadgets and accessories manufacturers in the game. Despite their reasonable prices, the quality continues to impress and its Anker PowerCore+ 26800 PD with 30W Power Delivery Charger is no exception. We've spent some time with this laptop battery charger and put it to the test to see just how well Anker's compact battery pack holds up against a variety of gadgets.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Plush and light for travelers**
 
  If you've owned any Anker products, you'll immediately recognize the PowerCore+ 26800\. It features a minimal rectangular design made of extruded aluminum with rounded edges for a very smooth look and feel. It weighs roughly 1.3 pounds, which gives it a premium feel without feeling too heavy.
 
 ![Anker](https://www.lifewire.com/thmb/brfc42RYlVrJLOHjyc0IbNzEQ0k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_5Web-5c90fc18c9e77c0001ac191d.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
 
  The PowerCore+ 26800 features a single button on the top of the device to show remaining battery life and three ports on one of the two flat sides: two 5V/3A PowerIQ USB ports (Power IQ is Anker's proprietary smart-charging standard) and a power delivery[USB Type-C](https://www.lifewire.com/usb-c-4149490) port. It's a no-frills design that gets to the point without any unnecessary details or frills and it looks great when paired with any clean, modern device if you care about form as much as function.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Simple to start, but there’s yet another adapter to carry around**
 
  As with most battery chargers, there's not much to the Anker PowerCore+ 26800\. Inside the box is the battery pack, a 30W USB Type-C wall charger, and two cables: a USB Type-C to USB Type-C and a micro USB to USB Type-C.
 
 ![Anker](https://www.lifewire.com/thmb/Ps-fDFicjMGSS8OppN-xw5yn_mg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_1-Web-5c90fc3dc9e77c0001eb1cc5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -98,7 +98,7 @@ Lifewire / Gannon Burgett
  It's a no-frills design that looks great when paired with any clean, modern device if you care about form as much as function.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Charging Speed and Battery: Slow and steady wins this race**
@@ -113,10 +113,6 @@ Lifewire / Gannon Burgett
 
 ![Anker](https://www.lifewire.com/thmb/tJwshohQXfV-U0_iKVTCkHEhFLU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_6Web-5c90fcc6c9e77c0001a92733.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Gannon Burgett
 
  We tested the PowerCore+ 26800 on our 2016 MacBook Pro 15-inch four different times to get a solid average. With the laptop completely dead, the battery pack managed to charge it to 100% in just three and a half hours with a little battery life to spare.
@@ -124,6 +120,10 @@ Lifewire / Gannon Burgett
 ## **Price: Perfectly priced for its power**
 
  The Anker PowerCore+ 26800 retails for $129.99\. That alone is a deal in terms of power output, but add in the 30W USB wall charger and the two cables and it's an absolute steal. The USB wall charger alone goes for $25.99 and the cables easily add up to $10 together, meaning you're effectively paying $100 for the charger.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Anker PowerCore+ 26800 vs. RAVPower 26800**
 
@@ -175,20 +175,24 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-audio-amplified-todays-hits-backdropping-yt-shorts/"><u>[New] 2024 Approved Audio Amplified Today's Hits Backdropping YT Shorts</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-professional-pilots-guide-to-best-5-drones/"><u>[New] 2024 Approved Professional Pilot’s Guide to Best 5 Drones</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-find-your-custom-box-top-10-online-stores-offering-tailored-packaging-for-2024/"><u>[New] Find Your Custom Box Top 10 Online Stores Offering Tailored Packaging for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-2023-online-facebook-video-to-mp3-converters/"><u>[New] In 2024, 2023 Online Facebook Video to MP3 Converters</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-comprehensive-list-of-top-senior-mobile-plans-dominating-2024-market/"><u>A Comprehensive List of Top Senior Mobile Plans Dominating 2024 Market</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-critical-analysis-of-assassinebd-game-valhalla-immersive-viking-storyline-set-in-the-age-of-kings-and-castles/"><u>A Critical Analysis of Assassin'ebd Game: Valhalla - Immersive Viking Storyline Set in the Age of Kings and Castles</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-review-on-asus-bw-16d1x-u-blu-ray-burner-attractive-design-with-distinct-traits/"><u>A Review on Asus BW-16D1X-U Blu-Ray Burner: Attractive Design with Distinct Traits</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-and-stylish-a-comprehensive-moto-g-with-stylus-feature-review/"><u>Affordable and Stylish: A Comprehensive Moto G with Stylus Feature Review</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-poco-c65-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Poco C65 Devices | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Motorola Moto G13 | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/top-5-revolutionary-technology-breakthroughs-in-2n23-how-theyre-reshaping-our-future-zdnet/"><u>Top 5 Revolutionary Technology Breakthroughs in 2N23: How They're Reshaping Our Future | ZDNet</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-for-fixing-rainbow-six-siege-game-server-errors/"><u>Troubleshooting Steps for Fixing Rainbow Six Siege Game Server Errors</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-cumuluspro-standing-pad-assessment-a-foundation-for-better-posture/"><u>Unveiling the CumulusPRO Standing Pad Assessment: A Foundation for Better Posture</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/user-insights-in-depth-review-of-the-popular-fitness-tracker-app-mapmyride/"><u>User Insights: In-Depth Review of the Popular Fitness Tracker App, MapMyRide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/why-you-should-consider-a-free-hulu-trial/"><u>Why You Should Consider a Free Hulu Trial</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-unlock-fcp-without-paying-tips/"><u>[New] In 2024, Unlock FCP without Paying - Tips</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-most-influential-srt-boosters-for-pc-and-apple-systems/"><u>[New] Most Influential SRT Boosters for PC & Apple Systems</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-years-ultimate-yt-story-creators-list-for-2024/"><u>[New] Year's Ultimate YT Story Creators List for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/cheerful-media-extractor-analysis/"><u>Cheerful Media Extractor Analysis</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-android-sound-recording-without-root-simple-guide/"><u>In 2024, Android Sound Recording Without Root [Simple Guide]</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/kostenloses-konvertieren-von-aiff-in-aac-mit-movavi-online-tool/"><u>Kostenloses Konvertieren Von AIFF in AAC Mit Movavi Online-Tool</u></a></li>
+<li><a href="https://windows11.techidaily.com/remedying-the-elusive-gpeditmsc-error-in-windows/"><u>Remedying the Elusive Gpedit.msc Error in Windows</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-microsofts-wireless-display-connectivity-problems-in-windows-11-solutions/"><u>Resolving Microsoft's Wireless Display Connectivity Problems in Windows 11 [Solutions]</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/revolutionizing-daily-exercise-with-the-samsung-galaxy-fit-what-you-need-to-know/"><u>Revolutionizing Daily Exercise with the Samsung Galaxy Fit – What You Need to Know!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-watch-examination-a-masterclass-in-modern-design/"><u>Samsung Galaxy Watch Examination: A Masterclass in Modern Design</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/solidify-iphone-footage-top-stabilization-practices-unveiled-for-2024/"><u>Solidify iPhone Footage Top Stabilization Practices Unveiled for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sony-wh-1000xm4-a-comprehensive-audio-experience-examination/"><u>Sony WH-1000XM4: A Comprehensive Audio Experience Examination</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/soundshroud-ultra-quiet-earplug-analysis/"><u>SoundShroud Ultra-Quiet Earplug Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/subscribe-to-success-amazons-top-4-selling-points-of-kindle-unlimited/"><u>Subscribe to Success: Amazon's Top 4 Selling Points of Kindle Unlimited</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-adaptive-assistant-in-every-journey-with-patekfly-12/"><u>The Adaptive Assistant in Every Journey with Patekfly 12</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-essentials-assessing-the-strengths-and-weaknesses-of-criacrs-bluetooth-fm-transmitter-cp24/"><u>The Essentials: Assessing the Strengths and Weaknesses of CRIACR's Bluetooth FM Transmitter (CP24)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-little-dragons-grand-adventure-exploring-the-remarkable-bargain-of-spyro-reignited-trilogy-review/"><u>The Little Dragon's Grand Adventure: Exploring the Remarkable Bargain of Spyro Reignited Trilogy Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-swift-yet-high-priced-swagtron-swagboard-t1-comprehensive-review/"><u>The Swift yet High-Priced Swagtron Swagboard T1: Comprehensive Review</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlock-the-potential-of-iphone-cinematography-top-8-strategies-for-2024/"><u>Unlock the Potential of iPhone Cinematography Top 8 Strategies for 2024</u></a></li>
 </ul></div>
 

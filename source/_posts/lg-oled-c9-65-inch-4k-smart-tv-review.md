@@ -1,7 +1,7 @@
 ---
 title: LG OLED C9 65-Inch 4K Smart TV Review
-date: 2025-01-24T17:35:35.800Z
-updated: 2025-01-29T19:39:02.590Z
+date: 2025-02-05T00:49:36.708Z
+updated: 2025-02-10T04:21:43.516Z
 categories:
   - BestProducts
 description: This Article Describes LG OLED C9 65-Inch 4K Smart TV Review
@@ -40,7 +40,7 @@ Lifewire / Rebecca Isaacs
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## HAVIT 5 Fan Laptop Cooler
@@ -70,7 +70,7 @@ _Our reviewer already owned this product._
  A couple gaming sessions later, and I realized I needed a[laptop cooling pad](https://www.lifewire.com/best-laptop-cooling-pads-4149823) . After taking a look at various models, I decided to try out the HAVIT 5 Gaming Laptop Cooling Pad. It boasts five fans and an adjustable rollout switch to customize my cooling experience. And it offers anti-slip baffles so my curious cat can't knock it off my laptop. After over a year of use, I still use this almost every day for my gaming needs. Read on for our final verdict, as well as thoughts on its specs.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Design: Looks like a gamer’s cooling pad
@@ -84,10 +84,6 @@ _Our reviewer already owned this product._
 Lifewire / Rebecca Isaacs
 
  To me, the design seems a little clunky. It has smooth edges, but it’s clearly designed as a gamer’s edgy laptop cooling pad with seemingly unnecessary grooves that serve only to hold dust. If you’re looking for a simple design, this is not your cooling pad. That being said, the metal mesh pad for air circulation can accommodate laptops ranging from 14 to 17 inches thanks to its 15.87 x 11.81 x 1.34 inches (LWH) in dimension.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fans: Wasn’t blown away
 
@@ -119,6 +115,10 @@ Lifewire / Rebecca Isaacs
 
  And, if you’re on-the-go and travelling, the HAVIT 5 also packs quite nicely into a suitcase. Be sure to play it safe like I did and pack it around clothes. But if you need to go across country and want to take your gaming laptop with you, this is a good one that will hold up well in luggage.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Price: Ouch
 
  I picked up my HAVIT 5 while it was on sale for around $30 back in 2019, but the usual price is around $50\. That seems a little steep, especially for fans that don’t necessarily pack the punch for gaming that most laptops require. If you keep an eye on Amazon, you can usually get this one for around $30, as it seems to go on sale fairly often.
@@ -126,10 +126,6 @@ Lifewire / Rebecca Isaacs
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/lItC7F6Ja8RbBfTaNXh5l9ufFqY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_05-07577b69f7d04de5a7904e798681ba02-6b3615a38d584594b89077eaf51228b2.jpg)
 
 Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## HAVIT 5 vs. Kootak Laptop Cooling Pad
 
@@ -143,6 +139,10 @@ Lifewire / Rebecca Isaacs
 
  It’s not the best out there, but so long as it cools the internal laptop core temperatures by about 20 degrees, it’s a worthy investment. Props go to HAVIT for giving it a roller switch for ultimate adjustability and an LED light that will show how high the fans are blowing. The fans could be stronger, but quieter fans over more power is preferable.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
@@ -150,7 +150,7 @@ Lifewire / Rebecca Isaacs
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -182,20 +182,20 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-edge-essentials-the-best-borders-and-frame-choices-in-photography-for-2024/"><u>[New] Edge Essentials The Best Borders & Frame Choices in Photography for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-instagrams-music-ownership-standards/"><u>[New] Instagram's Music Ownership Standards</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-enhanced-media-experience-top-8-free-players-for-windows-pcos-x/"><u>[Updated] Enhanced Media Experience Top 8 Free Players for Windows PC/OS X</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ai-in-arithmetic-and-algebra/"><u>AI in Arithmetic and Algebra</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On OnePlus Nord N30 SE? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/elevate-your-pc-from-windows-7-to-windows-11/"><u>Elevate Your PC: From Windows 7 to Windows 11</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/enhancing-your-home-network-leading-wi-fi-range-extenders-ranked-best-of-2024/"><u>Enhancing Your Home Network: Leading Wi-Fi Range Extenders Ranked Best of 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/essential-insights-into-youtube-tvs-membership-advantages/"><u>Essential Insights Into YouTube TV's Membership Advantages</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-evaluation-ring-alarm-solutions-doorbell-pros-and-cons/"><u>Expert Evaluation: Ring Alarm Solutions Doorbell Pros and Cons</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-the-smart-photo-editor-by-anthropics-is-it-worth-your-time/"><u>Expert Insights on the Smart Photo Editor by Anthropics - Is It Worth Your Time?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-take-on-lg-gram-17-the-new-benchmark-for-high-performance-laptops/"><u>Expert Take on LG Gram 17 - The New Benchmark for High-Performance Laptops</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-xiaomi-redmi-k70-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Xiaomi Redmi K70 to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/huge-discount-on-top-rated-qled-tv-this-labor-day-save-big-with-limited-time-offer/"><u>Huge Discount on Top-Rated QLED TV This Labor Day: Save Big with Limited Time Offer</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-guide-how-to-overcome-errors-during-steam-game-updates/"><u>Troubleshooting Guide: How To Overcome Errors During Steam Game Updates</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/updated-in-2024-translate-videos-like-a-pro-with-subtitle-cat-your-essential-guide/"><u>Updated In 2024, Translate Videos Like a Pro with Subtitle Cat Your Essential Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-a-comprehensive-guide-to-vr-travel-adventures-for-2024/"><u>[New] A Comprehensive Guide to VR Travel Adventures for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-youtube-video-replays-your-comprehensive-tutorial/"><u>[New] Mastering YouTube Video Replays Your Comprehensive Tutorial</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-secure-and-effective-methods-for-facetime-audio-preservation-for-2024/"><u>[New] Secure and Effective Methods for FaceTime Audio Preservation for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-secrets-to-super-views-hashtag-hacks-for-game-streams/"><u>[Updated] In 2024, Secrets to Super Views Hashtag Hacks for Game Streams</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-get-more-viewers-with-social-media-marketing-for-youtube/"><u>2024 Approved Get More Viewers with Social Media Marketing for YouTube</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-ultimate-selection-of-high-tech-glasses/"><u>2024'S Ultimate Selection of High-Tech Glasses</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-comprehensive-guide-to-choosing-ipad-or-ipad-air-essential-differences-decoded/"><u>A Comprehensive Guide to Choosing iPad or iPad Air – Essential Differences Decoded</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-and-durable-omoton-t1-tablet-stand-comprehensive-review/"><u>Affordable and Durable Omoton T1 Tablet Stand - Comprehensive Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-apeman-c450-dashcam-comprehensive-review-and-insights/"><u>Affordable Apeman C450 Dashcam - Comprehensive Review & Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/affordable-sandisk-clip-jam-portable-mp3/"><u>Affordable SanDisk Clip Jam Portable MP3</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-gaming-experience-on-an-iphone-top-picks-unveiled/"><u>Best Gaming Experience on an iPhone: Top Picks Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/can-you-trust-hps-economical-15-notebook-with-amd-cpu-to-perform-under-pressure-find-out-here/"><u>Can You Trust HP’s Economical 15” Notebook with AMD CPU to Perform Under Pressure? Find Out Here!</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/cutting-edge-techniques-for-social-dominance/"><u>Cutting-Edge Techniques for Social Dominance</u></a></li>
+<li><a href="https://win-blog.techidaily.com/rapid-remedy-fix-lag-issues-for-a-smoother-experience-in-assassins-creed-valhalla/"><u>Rapid Remedy: Fix Lag Issues for a Smoother Experience in Assassin's Creed: Valhalla</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/unblocking-images-in-safari-on-your-iphone-a-comprehensive-guide-to-nine-solutions/"><u>Unblocking Images in Safari on Your iPhone: A Comprehensive Guide to Nine Solutions</u></a></li>
 </ul></div>
 

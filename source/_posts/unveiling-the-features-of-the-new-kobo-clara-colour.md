@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Features of the New Kobo Clara Colour
-date: 2025-01-25T21:12:27.497Z
-updated: 2025-01-29T17:47:01.528Z
+date: 2025-02-08T19:45:13.197Z
+updated: 2025-02-09T22:33:50.261Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Features of the New Kobo Clara Colour
@@ -14,16 +14,12 @@ thumbnail: https://www.lifewire.com/thmb/p87KTX9w2nvzlOOitLgg_0NznYY=/400x300/fi
 2.8
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/87Y0vp91-Opdxctf3M6BGQ6r1d8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -47,13 +43,13 @@ Lifewire / Emily Ramirez
 
 2.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -81,23 +77,19 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -112,7 +104,7 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
@@ -135,9 +127,17 @@ Lifewire / Emily Ramirez
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
 
@@ -202,19 +202,18 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-fake-followers-trap-on-youtube-landscapes/"><u>[New] Unveiling Fake Followers' Trap on YouTube Landscapes</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-guffaw-gazette-twitters-funniest-threads/"><u>[Updated] 2024 Approved Guffaw Gazette Twitter's Funniest Threads</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-easy-strategies-for-editing-social-media-banners/"><u>[Updated] In 2024, Easy Strategies for Editing Social Media Banners</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Samsung Galaxy M54 5G | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-xiaomi-redmi-a2-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Xiaomi Redmi A2 FRP</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/oad-youtube-videos-to-mp4-without-breaching-laws-for-2024/"><u>Download YouTube Videos to MP4 without Breaching Laws for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-soft-reset-tecno-phantom-v-fold-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Tecno Phantom V Fold phone? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ideal-computer-accessories-finding-the-right-mouse-for-your-ipad/"><u>Ideal Computer Accessories: Finding the Right Mouse for Your IPad</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-assessment-a-closer-look-at-google-voice-service-performance/"><u>In-Depth Assessment: A Closer Look at Google Voice Service Performance</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-review-samsung-galaxy-buds-plus-experience/"><u>In-Depth Review: Samsung Galaxy Buds Plus Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/insider-look-at-the-value-packed-pruveeeo-f5-high-res-dash-camera-a-steal-for-motorists/"><u>Insider Look at the Value-Packed Pruveeeo F5 High-Res Dash Camera: A Steal for Motorists</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/late-disengagement-protocol-for-compact-youtube-clips-for-2024/"><u>Inviolate Disengagement Protocol for Compact YouTube Clips for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/is-the-high-cost-justified-in-depth-look-at-the-quality-and-features-of-ws-1002-ambient-weather-station-with-wifi/"><u>Is the High Cost Justified? In-Depth Look at the Quality and Features of WS-1002 Ambient Weather Station With WiFi</u></a></li>
-<li><a href="https://change-location.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Samsung Galaxy A54 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/kyrocket-your-youtube-dollars-with-short-video-monetization/"><u>[New] Skyrocket Your YouTube Dollars with Short Video Monetization</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-10-essential-methods-to-record-virtual-seminars-at-no-expense/"><u>[Updated] In 2024, 10 Essential Methods to Record Virtual Seminars at No Expense</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-xiaomi-13t-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/enrich-projects-with-melodies-in-adobe-premiere-pro/"><u>Enrich Projects With Melodies In Adobe Premiere Pro</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/erase-everything-the-top-10-ios-apps-that-can-wipe-your-iphone-clean-in-no-time/"><u>Erase Everything: The Top 10 iOS Apps That Can Wipe Your iPhone Clean in No Time</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-the-maisto-rock-crawler-an-rc-vehicle-that-bonds-families-together/"><u>Expert Insights on the Maisto Rock Crawler: An RC Vehicle That Bonds Families Together</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-insights-a-closer-look-at-the-newest-apple-homepod-minis-features-functionality-and-user-experience/"><u>Expert Insights: A Closer Look at the Newest Apple HomePod Mini's Features, Functionality & User Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-most-advanced-and-user-friendly-smart-speakers-of-2024/"><u>Exploring The Most Advanced and User-Friendly Smart Speakers of 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/high-performance-detection-gear-for-budget-road-trips-see-why-the-s55-reviewed-on-escortpassport-is-a-winner/"><u>High Performance Detection Gear for Budget Road Trips - See Why the 'S55 Reviewed on EscortPassport' Is a Winner!</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Motorola Moto G14? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-portable-88p-air-compressor-by-viair-powerful-yet-not-without-shortcomings/"><u>In-Depth Analysis of the Portable 88P Air Compressor by Viair: Powerful Yet Not Without Shortcomings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/insider-review-google-nest-wifi-doorbell-is-it-right-for-you/"><u>Insider Review: Google Nest WiFi Doorbell - Is It Right For You?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/trasformare-video-in-formato-3gp-senza-costo-con-il-servizio-online-di-convertitore-movavi/"><u>Trasformare Video in Formato 3GP Senza Costo Con Il Servizio OnLine Di Convertitore Movavi</u></a></li>
 </ul></div>
 

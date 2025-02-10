@@ -1,7 +1,7 @@
 ---
 title: "Expert Review: How the Razer Portal Revolutionizes Wi-Fi Connectivity for Gaming"
-date: 2025-01-25T23:49:16.652Z
-updated: 2025-01-29T22:45:19.632Z
+date: 2025-02-09T07:50:32.874Z
+updated: 2025-02-10T11:11:25.278Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Review: How the Razer Portal Revolutionizes Wi-Fi Connectivity for Gaming"
@@ -13,17 +13,9 @@ thumbnail: https://thmb.techidaily.com/8ce47f0b6f9813f5bc22a10ae1035723a396d6df9
 
 4.4
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Clearstream ECLIPSE
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/C1hoQetKMx7bAHqwsQ9gt0Fz_S0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -47,6 +39,10 @@ Lifewire / Jonno Hill
 ## Clearstream ECLIPSE
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/0gXsFyigpZzsnNAEj3tIrKImB8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -72,7 +68,7 @@ Lifewire / Jonno Hill
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/AbdriPZwiRfd8iHxT9N5E6Ae2hk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_03-d434cf7b4c5f4f73b08c8c220fd0d43e.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
@@ -80,10 +76,6 @@ Lifewire / Jonno Hill
 ## **Design: Inoffensive but unexceptional**
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup: Simple and easy**
 
@@ -93,9 +85,17 @@ Lifewire / Jonno Hill
 
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Above average**
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Range: Fair to middling**
 
@@ -105,13 +105,13 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
 
@@ -150,22 +150,18 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-optimizing-your-netflix-stream-with-fasterslower-pace/"><u>2024 Approved Optimizing Your Netflix Stream with Faster/Slower Pace</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/convertissez-gratuitement-votre-fichier-ape-au-format-aiff-sur-internet-avec-ease-movavi/"><u>Convertissez Gratuitement Votre Fichier APE Au Format AIFF Sur Internet Avec Ease - Movavi</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/descubre-los-metodos-mas-eficaces-para-convertir-dvd-usando-la-herramienta-de-software-y-digitales/"><u>Descubre Los Métodos Más Eficaces Para Convertir DVD Usando La Herramienta De Software Y Digitales</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/al-engagement-sustainable-strategies-for-content-creeps/"><u>Ethical Engagement Sustainable Strategies for Content Creeps</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-vivo-s17-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Vivo S17 For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Samsung Galaxy S23 Tactical Edition? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/spyro-reignited-trilogy-review/"><u>Spyro Reignited Trilogy Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-authoritative-list-of-most-advanced-ergonomic-vertical-mice-in-2e34/"><u>The Authoritative List of Most Advanced Ergonomic Vertical Mice in 2E34</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-essential-guide-to-nest-audio-crafting-an-unparalleled-auditory-experience-for-music-aficionados/"><u>The Essential Guide to Nest Audio: Crafting an Unparalleled Auditory Experience for Music Aficionados</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-first-step-in-learning-spanish-counting/"><u>The First Step In Learning Spanish Counting</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/to-sonoma-or-not-on-my-mac-making-the-choice/"><u>To Sonoma or Not on My Mac? Making the Choice</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-selection-leading-cordless-phones/"><u>Ultimate Selection: Leading Cordless Phones</u></a></li>
-<li><a href="https://games-able.techidaily.com/ultimate-switch-gamepads-guide/"><u>Ultimate Switch Gamepads Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/unleash-your-creativity-seamless-video-scaling-techniques-on-a-mac-for-2024/"><u>Unleash Your Creativity Seamless Video Scaling Techniques on a Mac for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unleash-your-inner-performer-a-guide-to-choosing-the-best-karaoke-equipment-for-202n4/"><u>Unleash Your Inner Performer: A Guide to Choosing the Best Karaoke Equipment for 202N4!</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unleash-your-potential-with-fitbit-versa-3-powered-by-in-built-gps-and-advanced-health-apps/"><u>Unleash Your Potential with Fitbit Versa 3 - Powered by In-Built GPS & Advanced Health Apps</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-daylights-dawn-expert-insights-on-the-heimvision-alarm-clock-a80-series/"><u>Unveiling Daylight's Dawn: Expert Insights on the HeimVision Alarm Clock A80 Series</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-be-open-minded-listen-with-an-open-mind-without-preconceived-notions-or-biases-that-may-affect-understanding/"><u>[New] 2024 Approved Be Open-Minded Listen with an Open Mind, without Preconceived Notions or Biases that May Affect Understanding</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-oppo-find-x7-ultra-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Oppo Find X7 Ultra Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/different-techniques-for-taking-pictures-of-your-desktop-display/"><u>Different Techniques for Taking Pictures of Your Desktop Display</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-identify-missing-your-drivers-with-windows-device-manager-on-windows-7-by-drivereasy-guide/"><u>How to identify missing your drivers with Windows Device Manager on Windows 7</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-turn-off-find-my-apple-iphone-13-pro-when-phone-is-broken-drfone-by-drfone-ios/"><u>How to Turn Off Find My Apple iPhone 13 Pro when Phone is Broken? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/iphone-is-disabled-here-is-the-way-to-unlock-disabled-apple-iphone-6s-plus-by-drfone-ios/"><u>iPhone Is Disabled? Here Is The Way To Unlock Disabled Apple iPhone 6s Plus</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-efficiency-and-creativity-in-gaming-an-expert-review-on-the-trailblazing-corsair-one-pro/"><u>Mastering Efficiency & Creativity in Gaming: An Expert Review on the Trailblazing Corsair One Pro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-the-art-of-graphics-card-upgrades-what-you-need-to-know/"><u>Mastering the Art of Graphics Card Upgrades - What You Need to Know</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/motorolas-mid-range-marvel-the-one-hyper-reviewed-striking-features-with-robust-performance/"><u>Motorola's Mid-Range Marvel: The One Hyper Reviewed - Striking Features with Robust Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/premier-pages-of-automotive-innovation-2024-edition/"><u>Premier Pages of Automotive Innovation – 2024 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/prime-day-bonanza-land-the-best-prices-on-popular-apple-devices/"><u>Prime Day Bonanza: Land the Best Prices on Popular Apple Devices</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-14-pro-max-data-from-ios-itunes-backup-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone 14 Pro Max Data From iOS iTunes Backup | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/retro-gaming-reimagined-a-critique-of-the-wasteland-ii-directors-cut-turn-based-strategy-masterpiece-uncovered/"><u>Retro Gaming Reimagined: A Critique of The Wasteland II Director’s Cut - Turn-Based Strategy Masterpiece Uncovered</u></a></li>
 </ul></div>
 

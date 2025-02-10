@@ -1,7 +1,7 @@
 ---
 title: "Battle of Portable Gaming: Nintendo Switch Lite Vs. Nintendo Switch OLED Reviewed"
-date: 2025-01-24T17:18:56.093Z
-updated: 2025-01-29T23:27:04.930Z
+date: 2025-02-09T02:27:15.525Z
+updated: 2025-02-10T03:30:25.921Z
 categories:
   - BestProducts
 description: "This Article Describes Battle of Portable Gaming: Nintendo Switch Lite Vs. Nintendo Switch OLED Reviewed"
@@ -16,10 +16,6 @@ thumbnail: https://thmb.techidaily.com/4d611c850bdcc5debbd6a1052184df209b3a83115
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/JA3JlwOuidCKxo4M92FWCfYUoI4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -39,6 +35,10 @@ Lifewire / Kelsey Simon
 [View On Amazon](https://www.amazon.com/dp/B075NFTX36/?tag=lifewire-onsite-prod-20&ascsubtag=4685718%7Cn0dc423de187c40659bf9fd9ffcd5e7ec22%7CB075NFTX36) [View On Walmart](https://www.walmart.com/ip/829171723)
 
 3.8
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
@@ -72,15 +72,7 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/uXDVHaBrdIlv5tI-qRgiPK0Iig4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460721-e6a53664e7eb4e65a75bf5cceb928e28.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Plot: A huge world with loads to explore**
 
@@ -102,6 +94,10 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Gameplay: Not as smooth as on other platforms**
 
  The first real interactive thing you do with the game is to create your character, and true to other Elder Scrolls games, you can change your character’s appearance in the most minute way. Pick your race, gender, hairstyle, eye color, and even tweak the height of your cheekbones and brows if you want. This is the first sign of just how encompassing and involved the role-playing aspects of Skyrim are.
@@ -121,14 +117,22 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/2Fk-UTwglmoCdE7IXrXqlnXs9do=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460712-6cec58625d13430db671be3144451cbc.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Graphics: A bit outdated**
 
  The graphics in Skyrim aren’t awful, but they haven't progressed much since 2011\. If you’ve played any other version of Skyrim, you can overlook it, simply because you know what you’re getting into. Bethesda attempted to make Skyrim look realistic, likely in their desire to give you a fully immersive experience. But these days, Skyrim’s graphics just aren’t as realistic as what other, more recent games have accomplished. In places, the mountains look blocky and the grass a little patchy. Character’s faces sometimes seem deeply sunken around the eyes, with the skin looking more like leather than flesh. It’s not that the graphics are overly bad, they’re just not as good as what you can get with better hardware on the PC.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Platform: Take Skyrim on the go**
 
@@ -151,7 +155,7 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -171,10 +175,6 @@ Lifewire / Kelsey Simon
 * [The Legend of Zelda: Breath of the Wild](https://www.lifewire.com/the-legend-of-zelda-breath-of-the-wild-review-4685759)
 * [Mario Kart 8 Deluxe](https://www.lifewire.com/mario-kart-8-deluxe-review-4688951)
 * [Splatoon 2](https://www.lifewire.com/splatoon-2-review-4688940)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -198,20 +198,19 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-mastering-the-marketplace-30-advanced-fb-techniques-explored/"><u>[New] 2024 Approved Mastering the Marketplace 30 Advanced FB Techniques Explored</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-aural-ascendancy-mastering-sound-integration-on-reels/"><u>[Updated] 2024 Approved Aural Ascendancy Mastering Sound Integration on Reels</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-demystifying-income-flow-to-creators-within-the-short-video-model/"><u>2024 Approved Demystifying Income Flow to Creators Within the Short Video Model</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/exploring-chatgpt-copilot-an-in-depth-look-at-its-capabilities/"><u>Exploring ChatGPT Copilot: An In-Depth Look at Its Capabilities</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-vivo-x-fold-2-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Vivo X Fold 2 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change Location on TikTok to See More Content On your Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-zte-nubia-z60-ultra-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do ZTE Nubia Z60 Ultra Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Oppo F23 5G? | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722962474687-not-as-efficient-as-counter-current-flow-in-some-conditions-but-this-can-be-mitigated/"><u>Not as Efficient as Counter-Current Flow in some Conditions, but This Can Be Mitigated</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-click-experience-ranking-the-best-wireless-mice-innovations-of-2024/"><u>Revolutionize Your Click Experience: Ranking the Best Wireless Mice Innovations of 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/selecting-the-ultimate-gaming-machine/"><u>Selecting the Ultimate Gaming Machine</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/sustained-comfort-with-the-ergohead-mat-in-depth-analysis-and-user-experience-insights/"><u>Sustained Comfort with the Ergohead Mat - In-Depth Analysis and User Experience Insights</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/tested-and-verified-the-uniden-r3s-superior-build-quality-and-prolonged-radar-monitoring-function/"><u>Tested & Verified: The Uniden R3's Superior Build Quality and Prolonged Radar Monitoring Function</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-art-of-engineering-discovering-the-well-designed-wonders-of-samsung-galaxy-watch-inside-and-out/"><u>The Art of Engineering: Discovering the Well-Designed Wonders of Samsung Galaxy Watch, Inside and Out</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-complete-guide-to-implementing-print-tools-effectively-in-adobe-photoshop/"><u>The Complete Guide to Implementing Print Tools Effectively in Adobe Photoshop</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-download-premium-video-covers-free-fast-and-easy/"><u>[New] 2024 Approved Download Premium Video Covers - Free, Fast & Easy!</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-a-smudge-free-life-with-sharp-clean-gopro-images/"><u>[New] A Smudge-Free Life with Sharp, Clean GoPro Images</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-youtube-comment-discovery-a-step-by-step-walkthrough/"><u>[New] In 2024, YouTube Comment Discovery A Step-by-Step Walkthrough</u></a></li>
+<li><a href="https://extra-information.techidaily.com/6-high-definition-21-hdmi-models-analyzed/"><u>6 High-Definition 2.1 HDMI Models Analyzed</u></a></li>
+<li><a href="https://techtrends.techidaily.com/get-ahead-of-the-curve-with-samsungs-galaxy-z-flip-6-insights-on-availability-costs-and-features/"><u>Get Ahead of the Curve with Samsung's Galaxy Z Flip 6 - Insights on Availability, Costs & Features</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-zte-blade-a73-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from ZTE Blade A73 5G to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-avengers-movie-by-marvel-a-balanced-look/"><u>In-Depth Analysis of The Avengers Movie by Marvel: A Balanced Look</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-google-nest-hub-gen-2-a-missing-cameras-impact/"><u>In-Depth Analysis of the Google Nest Hub (Gen 2) - A Missing Camera's Impact</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-look-at-the-lg-um7300e-your-essential-guide-to-a-value-49-4k-smart-tv/"><u>In-Depth Look at the LG UM7300E: Your Essential Guide to a Value 49 4K Smart TV</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/iphone-showdown-a-head-to-head-comparison-of-iphone-15-plus-and-pro-max/"><u>IPhone Showdown: A Head-to-Head Comparison of iPhone 15 Plus and Pro Max</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/leading-tools-to-monitor-hashtags-on-fb-twitter-and-instagram-for-2024/"><u>Leading Tools to Monitor Hashtags on FB, Twitter & Instagram for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/master-your-voyage-top-technological-aides/"><u>Master Your Voyage: Top Technological Aides</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/masterful-photography-budget-friendly-fz80-review/"><u>Masterful Photography, Budget-Friendly - FZ80 Review</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/step-by-step-downloading-and-installing-windows-11-arm-from-iso/"><u>Step by Step: Downloading and Installing Windows 11 ARM From ISO</u></a></li>
 </ul></div>
 

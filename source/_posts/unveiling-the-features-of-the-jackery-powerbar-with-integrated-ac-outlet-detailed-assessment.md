@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Features of the Jackery PowerBar with Integrated A/C Outlet – Detailed Assessment
-date: 2025-01-28T17:37:25.776Z
-updated: 2025-01-29T20:12:23.022Z
+date: 2025-02-02T21:14:28.780Z
+updated: 2025-02-09T19:18:17.268Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Features of the Jackery PowerBar with Integrated A/C Outlet – Detailed Assessment
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/1e0cJN-BsKLogB5b5Fm0imOzPoA=/400x300/fi
 ## Logitech C615 HD Laptop Webcam
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/jgH6j34_PXXE9fO2vS4Nr4d3pSM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_HERO_3LW4065141_3_Final_Square-204b4e949e864f148cd513b3511eac69.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / James Huenink
 
@@ -36,9 +40,17 @@ Lifewire / James Huenink
 
 4.5
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Logitech C615 HD Laptop Webcam
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/9YqP4BNKZ_F27rxIYbc3f1vqzd0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_HERO_3LW4065141_3_Final_Square-204b4e949e864f148cd513b3511eac69.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / James Huenink
 
@@ -64,10 +76,6 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design:** **Flexible, foldable design**
 
  The Logitech C615 is a compact webcam. The whole device folds up into a very small package, just 2.5” wide, 1.25” tall, and 1.5” wide, so you can tuck it into a pocket. When you open it up, the flexible design is simple to position. Unfolded, the webcam has three pieces: the base, neck, and[camera](https://www.lifewire.com/best-digital-cameras-under-100-3897833) . The base is the heaviest part, which means that the camera stays upright even if you don’t perfectly balance everything. The top is made out of a soft, rubbery plastic, and the bottom has a rubbery dot that keeps the base from sliding around. The dot comes off the base to reveal a tripod post, so this camera is compatible with a standard tripod. The only problem is that the dot comes off completely when the tripod post is exposed. If you're prone to losing things, this may be an issue.
@@ -79,10 +87,6 @@ Lifewire / James Huenink
  The camera section is made of black plastic with a cropped silver plastic circle around the lens. To the left of the lens there’s an indicator light to show when the camera is on, and the microphone sits to the right of the lens. The 360 swivel not only makes the Logitech C615 easy to position, it also makes it possible to fold the camera lens in on itself to protect it on the go.
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/jgQ_lVlvzgmXFPpBg5nEd6pgV_c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_12_Final_Horiz-e97c48d3af6842eb88775a9d703ce2b6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / James Huenink
 
@@ -100,10 +104,6 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: Decent sound quality for a small mic**
 
  We used both[Photobooth](https://www.lifewire.com/how-to-turn-on-camera-on-mac-4175436) and[Skype](https://www.lifewire.com/how-to-make-hd-skype-calls-3426508) to test the performance of the C615\. It was very easy to position the camera exactly the way we wanted it, though the USB cable occasionally gave us problems. We’d swivel the camera and then the pull of the USB cable would turn the whole base so the camera pointed back at the same spot where it started.
@@ -112,15 +112,15 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/C2UBXNFmxG8nA0udy1IprMH4LBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_9_Final_Horiz-1af52951f8704af9b76d7dd1ec9744a9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / James Huenink
 
 ## **Price: Inexpensive HD camera**
 
  The Logitech C615 costs $70 MSRP, but you can find it for about half that cost. Even at full price, it's a solid value. The thoughtful design, image quality, and microphone clarity easily justify the price tag.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Acquits itself well against the competition**
 
@@ -139,7 +139,7 @@ Lifewire / James Huenink
  The Logitech C615 Webcam strikes the perfect balance between performance and affordability. The quality design, high definition video, and quality sound make this an excellent webcam for most tasks at a great price.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -174,21 +174,15 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-chart-your-course-navigating-the-waters-of-youtube-subscription-surges/"><u>[Updated] 2024 Approved Chart Your Course Navigating the Waters of YouTube Subscription Surges</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-top-10-free-stock-footage-websites-you-should-know/"><u>2024 Approved Top 10 Free Stock Footage Websites You Should Know</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/game-like-never-before-with-the-asus-rog-rapture-gt-ax11000-comprehensive-review-of-speed-and-functions/"><u>Game Like Never Before with the Asus ROG Rapture GT-AX11000: Comprehensive Review of Speed and Functions</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/garmin-vivomove-hr-evaluation-the-fashionable-activity-tracker-perfect-for-your-energetic-days/"><u>Garmin Vivomove HR Evaluation: The Fashionable Activity Tracker Perfect for Your Energetic Days</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-vivo-v29e-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Vivo V29e to iPad | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-earn-free-football-fun-learn-to-livestream-legends/"><u>In 2024, Earn-Free Football Fun Learn to Livestream Legends</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-vivo-y100-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Vivo Y100 to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-lenovo-thinkpad-x1-nano-your-next-featherlight-computing-solution/"><u>In-Depth Analysis of the Lenovo ThinkPad X1 Nano: Your Next Featherlight Computing Solution</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-tp-link-av2000-powerline-kit-impressive-performance-meets-average-design/"><u>In-Depth Analysis of TP-Link AV2000 Powerline Kit: Impressive Performance Meets Average Design</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-star-wars-squadrons-game-analysis-experience-next-level-galactic-battles/"><u>In-Depth Star Wars Squadrons Game Analysis - Experience Next-Level Galactic Battles</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/innovation-duel-how-iphone-15-plus-stacks-up-to-the-pro-max/"><u>Innovation Duel: How iPhone 15 Plus Stacks Up to the Pro Max</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/insights-on-microsoft-surface-duo-dealing-with-bugs-and-a-steep-price-tag/"><u>Insights on Microsoft Surface Duo: Dealing With Bugs & a Steep Price Tag</u></a></li>
-<li><a href="https://win-webster.techidaily.com/integrating-audio-content-into-your-language-learning-books-with-flipbuilder/"><u>Integrating Audio Content Into Your Language Learning Books with FlipBuilder</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/latest-scoop-on-touch-enabled-macbook-prospects-anticipated-cost-and-launch-timeline-unveiled/"><u>Latest Scoop on Touch-Enabled MacBook Prospects: Anticipated Cost & Launch Timeline Unveiled</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tech-meets-fashion-discovering-the-best-smart-glasses-trends-for-202-cuffs/"><u>Tech Meets Fashion: Discovering the Best Smart Glasses Trends for 202 Cuffs</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-getting-started-with-doom-eternal-amidst-launch-uncertainty/"><u>Troubleshooting: Getting Started with DOOM Eternal Amidst Launch Uncertainty</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/iming-and-regularity-key-factors-influencing-youtube-traffic-for-2024/"><u>[New] Timing and Regularity Key Factors Influencing YouTube Traffic for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-simple-strategies-for-stellar-sports-highlights/"><u>[Updated] 2024 Approved Simple Strategies for Stellar Sports Highlights</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-facebook-content-at-your-fingertips-best-downloader-apps-for-ios/"><u>[Updated] Facebook Content at Your Fingertips Best Downloader Apps for iOS</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-tips-for-finding-trending-videos-on-facebook/"><u>2024 Approved Tips for Finding Trending Videos on Facebook</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/boosting-your-wireless-reach-with-a-wallet-friendly-tp-link-range-extender-re200-ac750-reviewed/"><u>Boosting Your Wireless Reach with a Wallet-Friendly TP-Link Range Extender - RE200 AC750 Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/compare-the-best-sub-100-video-doorbells-insights-into-remobell-model-s/"><u>Compare the Best Sub-$100 Video Doorbells: Insights Into RemoBell Model S</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-gps-and-cellular-models-which-apple-watch-is-right-for-you/"><u>Comparing GPS and Cellular Models: Which Apple Watch Is Right For You?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-the-linksys-ea9500-triple-band-wifi-router-a-game-changer-in-smart-home-connectivity/"><u>Expert Insights on the Linksys EA9500 Triple Band WiFi Router – A Game Changer in Smart Home Connectivity</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-pictures-from-nokia-c12-pro-by-fonelab-android-recover-pictures/"><u>Possible solutions to restore deleted pictures from Nokia C12 Pro.</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/resolve-your-apple-iphone-8-plus-keeps-asking-for-outlook-password-by-drfone-ios/"><u>Resolve Your Apple iPhone 8 Plus Keeps Asking for Outlook Password</u></a></li>
 </ul></div>
 

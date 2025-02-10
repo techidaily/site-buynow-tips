@@ -1,7 +1,7 @@
 ---
 title: Unveiling Sony's DSC-W800 - Quality Meets Affordability
-date: 2025-01-10T06:04:57.587Z
-updated: 2025-01-16T08:22:40.760Z
+date: 2025-02-04T07:06:19.171Z
+updated: 2025-02-10T13:28:22.971Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling Sony's DSC-W800 - Quality Meets Affordability
@@ -12,10 +12,6 @@ thumbnail: https://www.lifewire.com/thmb/_hlL5P3medezRDwRdukR_00HRaI=/400x300/fi
 ## Exploring the New Horizon of Affordability with Microsoft's Surface Laptop Go Reviewed Here
 
 4.3
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Microsoft Surface Laptop Go
 
@@ -51,7 +47,7 @@ Lifewire / Andy Zahn
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/fvtiWpBnRJ1dR-89xJ_kOkkEUSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_Hero5x4-c5d70a06640a47aca3f64903cf5af851.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
@@ -93,15 +89,15 @@ Lifewire / Andy Zahn
 
  Port selection is rather limited, with a[USB-C](https://www.lifewire.com/usb-c-4149490) port, a USB-A port, a 3.5mm audio jack, and a Surface Connect port which is used for power but can also be used to connect to a Surface Dock. This is really the bare minimum for I/O, and was one of the most frustrating issues for me when using the device.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Display: Ideal for productivity**
 
  The 12.4-inch display on the Surface Laptop Go seems larger than the size would suggest, thanks to its 3:2 aspect ratio. Because of that aspect ratio, this laptop is purpose-built for productivity. In fact, it was the ideal device for typing out this article. The 1536x1024 resolution is quite sharp, and colors are sharp and accurate with great contrast. Due to the 3:2 aspect ratio, you get black bars on the top and bottom when watching movies and shows, but they still look great due to the quality of the screen.
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/kz6EW4svzivooWEtdVJ5TAnOYOs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_06-07315e6a9862481bba3820f745d49887.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -110,10 +106,6 @@ Lifewire / Andy Zahn
  The audio quality of the built-in speakers in the Surface Laptop Go is remarkably good for such a thin and light device. I always play 2Cellos cover of “Thunderstruck” to test the capabilities of speakers and was pleased with how well this laptop performed in the mids and highs.
 
  Bass was underwhelming, but that’s really to be expected in any laptop, particularly one with this form factor. It still provided a pleasant listening experience for both rock and classical music and provided excellent audio for watching movies and shows.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Camera: Low quality**
 
@@ -143,10 +135,14 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/R8WVIj9pTzxwTOIwiZpDPRc6Bws=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_03-d503f456e6df4db4a3ad76a6a9a49e72.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: A decision to make**
@@ -163,11 +159,11 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/_QEntMJEPlaXArgv2l576Qnr7MU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_04-21f4f7c4d0f54436bb1449bf36a42460.jpg)
 
- Lifewire / Andy Zahn
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Andy Zahn
 
 ## **Microsoft Surface Laptop Go vs. HP Pavilion 14 HD**
 
@@ -184,13 +180,17 @@ Lifewire / Andy Zahn
  The Microsoft Surface Laptop Go looks and feels like a much more expensive device. It’s thin and light, with a great keyboard and trackpad paired with fast and responsive components. This is an ideal option for anyone who needs an affordable ultra-portable laptop for work, school, or travel.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
 * [Microsoft Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584)
 * [Google Pixelbook Go](https://www.lifewire.com/google-pixelbook-go-review-4797012)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -222,24 +222,20 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-best-photography-enhancers-for-ios-and-android-guide/"><u>[New] 2024 Approved The Best Photography Enhancers for iOS & Android Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/elving-into-youtubes-functionality-after-upload/"><u>[New] Delving Into YouTube's Functionality After Upload</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-upgrade-your-editing-game-merging-windows-11-and-storyremix-for-video-magic-for-2024/"><u>[New] Upgrade Your Editing Game Merging Windows 11 & StoryRemix for Video Magic for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-essential-free-video-editing-apps-for-iphonesipads/"><u>[Updated] In 2024, Essential Free Video Editing Apps for iPhones/iPads</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-navigating-the-maze-of-igtv-video-downloads/"><u>[Updated] Navigating the Maze of IGTV Video Downloads</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-closer-look-at-the-sonic-mastery-of-sony-wh-1000xm4/"><u>A Closer Look at the Sonic Mastery of Sony WH-1000XM4</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/acer-aspire-e-n-analysis-exceptional-performance-at-wallet-friendly-prices/"><u>Acer Aspire E N Analysis - Exceptional Performance at Wallet-Friendly Prices</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apple-mac-mini-m1-2020-review-surpassing-competitors-in-the-arm-powered-pc-arena/"><u>Apple Mac Mini (M1, 2020) Review: Surpassing Competitors in the ARM-Powered PC Arena</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/asus-vivobook-11-reviewed-an-ideal-blend-of-miniature-design-and-cost-efficiency-for-everyday-use/"><u>ASUS VivoBook 11 Reviewed: An Ideal Blend of Miniature Design and Cost-Efficiency for Everyday Use</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/big-screen-laptop-assessment-reviewing-pros-and-cons-of-asus-x441ba/"><u>Big-Screen Laptop Assessment: Reviewing Pros and Cons of Asus X441BA</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/boost-your-computers-display-quality-with-the-right-graphics-card-upgrade-techniques/"><u>Boost Your Computer’s Display Quality with the Right Graphics Card Upgrade Techniques</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/budget-buyers-guide-to-the-fellowes-microban-corded-keyboard-experience/"><u>Budget Buyer's Guide to the Fellowes Microban Corded Keyboard Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/budget-friendly-defense-reviewed-an-expert-look-at-procases-macbook-pro-13-case/"><u>Budget-Friendly Defense Reviewed: An Expert Look at ProCase’s MacBook Pro 13 Case</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/budget-friendly-video-doorbells-why-the-iseebell-stands-out-for-less-than-50/"><u>Budget-Friendly Video Doorbells - Why the ISeeBell Stands Out for Less Than $50</u></a></li>
-<li><a href="https://solve-howtos.techidaily.com/comprehensive-guide-how-to-create-compressed-files-with-zipping-yl-computing-solutions/"><u>Comprehensive Guide: How to Create Compressed Files with Zipping - YL Computing Solutions</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-honor-x50-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Honor X50 Phones with/without a PC</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-gmail-password-on-oppo-reno-11-5g-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Oppo Reno 11 5G Devices</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/insightful-discussion-on-youtube-keyword-mastery-for-2024/"><u>Insightful Discussion on YouTube Keyword Mastery for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/understanding-kubernetes-unveiling-its-significance-in-modern-tech-zdnet/"><u>Understanding Kubernetes: Unveiling Its Significance in Modern Tech | ZDNet</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-leveraging-hashtags-and-collaborations-for-1k-insta-following/"><u>[New] 2024 Approved Leveraging Hashtags & Collaborations for 1K Insta Following</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-premium-pcandroid-mkv-player-for-2024/"><u>[New] Premium PC/Android MKV Player for 2024</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/1728497151638-iphone/"><u>如何在 iPhone 上恢復已經清空的備忘錄 - 重建功能</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/cg318-4k-unveiled-eizos-high-res-monitor-review/"><u>CG318-4K Unveiled EIZO's High-Res Monitor Review</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/exploring-splitcams-recording-capabilities-and-excellence/"><u>Exploring SplitCam's Recording Capabilities and Excellence</u></a></li>
+<li><a href="https://win-bits.techidaily.com/exploring-the-variety-of-export-options-available-in-flip-office-pro-a-comprehensive-guide/"><u>Exploring the Variety of Export Options Available in Flip Office Pro: A Comprehensive Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-pros-recommendations-for-free-and-paid-drawing-software-on-pc/"><u>In 2024, Pro's Recommendations for Free & Paid Drawing Software on PC</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/leading-speech-recognition-software-choices/"><u>Leading Speech Recognition Software Choices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/luxury-meets-practicality-in-michael-kors-access-gen-5e-review-a-comprehensive-evaluation/"><u>Luxury Meets Practicality in Michael Kors Access Gen 5E Review – A Comprehensive Evaluation</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximizing-your-network-with-the-netgear-ex3700-ac750-range-extender-a-full-review/"><u>Maximizing Your Network with the Netgear EX3700 AC750 Range Extender - A Full Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximizing-your-wireless-coverage-with-the-tp-link-re50-to-re505x-range-extender-reviewed/"><u>Maximizing Your Wireless Coverage with the TP-Link RE50 to RE505X Range Extender Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigate-through-202ebest-ergonomic-vertical-mouse-options-your-guide-to-enhanced-productivity/"><u>Navigate Through 202Ebest Ergonomic Vertical Mouse Options - Your Guide to Enhanced Productivity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-the-stars-laugh-out-loud-narrative-complements-unique-sci-fi-gaming-experience-in-the-outer-worlds/"><u>Navigating the Stars: Laugh-Out-Loud Narrative Complements Unique Sci-Fi Gaming Experience in 'The Outer Worlds'</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/never-leave-a-pet-behind-with-petcube-bites-2/"><u>Never Leave a Pet Behind with Petcube Bites 2</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-walkthrough-to-leveraging-google-gemini-tools/"><u>The Ultimate Walkthrough to Leveraging Google Gemini Tools</u></a></li>
 </ul></div>
 

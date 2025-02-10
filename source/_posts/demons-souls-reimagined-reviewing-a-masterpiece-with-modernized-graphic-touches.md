@@ -1,7 +1,7 @@
 ---
 title: Demon's Souls Reimagined - Reviewing a Masterpiece with Modernized Graphic Touches
-date: 2025-01-25T23:44:48.876Z
-updated: 2025-01-29T17:06:00.494Z
+date: 2025-02-07T11:27:36.455Z
+updated: 2025-02-10T01:15:58.164Z
 categories:
   - BestProducts
 description: This Article Describes Demon's Souls Reimagined - Reviewing a Masterpiece with Modernized Graphic Touches
@@ -16,10 +16,6 @@ thumbnail: https://www.lifewire.com/thmb/dEOCkzkzYSEO1EFWdx9dkv38Hw8=/400x300/fi
 ## LG OLED C9 65" 4K Smart TV
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/Z82osxXGuhEbZyidLLG58VdbbJ0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_HeroSquare-b4b1522941d44a18b75a586155788477.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -45,12 +41,16 @@ Lifewire / Emily Isaacs
 4.9
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## LG OLED C9 65" 4K Smart TV
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/-RQ5Ui3BjE0KxHGHYE-UjNz7EY4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_HeroSquare-b4b1522941d44a18b75a586155788477.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -76,11 +76,11 @@ Lifewire / Emily Isaacs
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/Ky7KFEDgeAy-u_D_Tv7zaOPYQMI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_03-f111424cfd584bfeac329fa2932278ca.jpg)
 
- Lifewire / Emily Isaacs
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Emily Isaacs
 
 ## **Design: Smart and sleek**
 
@@ -93,6 +93,10 @@ Lifewire / Emily Isaacs
  For customers with multiple external devices, such as Blu-ray players or gaming consoles, ports are located along the TV’s left-hand side and directly on its backside. These connection options include 4[HDMI](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) 2.1 ports, 3[USB](https://www.lifewire.com/universal-serial-bus-usb-2626039) ports, one cable/antenna input, one LAN port, and audio connections. The HDMI 2.1 ports are especially important since consoles began emerging in 2020 that rely on HDMI 2.1 such as the Playstation 5.
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/mxKfDJGuIKYcsSIQoKfzwDbYYmg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_02-3da87ff8439343f691cf02e9234d1f04.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -120,10 +124,6 @@ Lifewire / Emily Isaacs
 
  These pictures are further enhanced with LG’s α9 Gen 2 intelligent processor, new to 2019’s model. It excels at drawing out detail and correcting quality discrepancies within the picture, such as banding which creates textures and strips in areas of the screen that would otherwise be smooth. This is particularly important given the large screen size and high resolution. While it’s not as bright as an LED TV since it lacks backlighting, it doesn’t need it as the TV already possesses excellent color, a change here would risk washing out the inky blacks on the screen.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Audio: Better than expected**
 
  While OLED TVs aren’t generally known for their great sound quality, the LG C9 has a surprisingly good sound system all things considered—but a soundbar would still be recommended. Audio in TV or movies is generally good, but it struggles to regulate loud and soft noises in a scene. Streaming Lizzo’s_Cuz I Love You_ on Spotify produces a surprising depth of sound, but it’s simply not comparable to a more robust system that a soundbar or home theater system would provide.
@@ -140,15 +140,15 @@ Lifewire / Emily Isaacs
 
  In addition to the WebOS software, the LG C9 also comes with Google Assistant as well as Amazon’s Alexa. It makes it easy to search content, switch between apps and features, or check the weather, among other things.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: A premium price for a premium TV**
 
  65-inch 4K TV’s generally retail for between $800-$5,000, and this cost jumps further as screen size increases. The LG C9 is a premium 4K TV that sits at the top of this curve, offering integrated smart technologies and excellent picture with an intuitive, easy-to-use interface. As such, it comes at a premium price of $2,500 (Amazon) that exceeds the cost of many competitor models, but with so many additional features it’s worth the high price—even if it’s difficult to swallow.
 
 [How to Buy a TV For Your Home in 2024](https://www.lifewire.com/best-60-inch-tvs-4580159)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **LG OLED C9 65-inch vs. Samsung 65-inch Class Q60R**
 
@@ -211,22 +211,20 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-harnessing-online-revenue-multiplatform-studio-use/"><u>[New] 2024 Approved Harnessing Online Revenue Multiplatform Studio Use</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-in-the-era-of-streaming-find-facebooks-video-treasure/"><u>[New] 2024 Approved In the Era of Streaming, Find Facebook's Video Treasure</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-breaking-the-videography-code-download-and-preserve-media-on-fb/"><u>[Updated] 2024 Approved Breaking the Videography Code Download and Preserve Media on FB</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-cost-effective-obs-tuning-steps/"><u>[Updated] In 2024, Cost-Effective OBS Tuning Steps</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-cutting-edge-five-new-features-in-facebooks-sight-for-2024/"><u>[Updated] The Cutting-Edge Five New Features in Facebook's Sight for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/anker-super-bright-tactical-flashlight-review-durable-outdoors-lighting/"><u>Anker Super Bright Tactical Flashlight Review: Durable Outdoors Lighting</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apple-homepod-vs-google-nest-audio-a-comprehensive-smart-speaker-showdown/"><u>Apple HomePod Vs. Google Nest Audio: A Comprehensive Smart Speaker Showdown</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/beyond-belief-the-aminy-guide-to-dissecting-aliens/"><u>Beyond Belief: The Aminy Guide to Dissecting Aliens</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comparing-performance-a-guide-to-choosing-the-best-processor-based-tablets/"><u>Comparing Performance: A Guide to Choosing the Best Processor-Based Tablets</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-the-mobvoi-ticwatch-pro-navigator-enhanced-battery-performance-unveiled/"><u>Comprehensive Guide to the Mobvoi TicWatch Pro Navigator - Enhanced Battery Performance Unveiled</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/crafting-an-intergalactic-empire-an-in-depth-analysis-of-offworld-trading-companys-ruthless-economy/"><u>Crafting an Intergalactic Empire: An In-Depth Analysis of Offworld Trading Company's Ruthless Economy</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/does-bigger-mean-better-uncover-the-truth-about-apple-iphone-12-pro-max/"><u>Does Bigger Mean Better? Uncover the Truth About Apple iPhone 12 Pro Max</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/elevating-user-experience-the-case-for-spotifys-high-tier/"><u>Elevating User Experience: The Case for Spotify's High Tier</u></a></li>
-<li><a href="https://win-dash.techidaily.com/get-your-logitech-g29-racing-wheel-drivers-compatible-with-windows-10-and-above/"><u>Get Your Logitech G29 Racing Wheel Drivers - Compatible with Windows 10 and Above!</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Lava Blaze Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/unleash-the-power-of-split-window-on-netflix-platform/"><u>Unleash the Power of Split Window on Netflix Platform</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/unveiling-audio-brilliance-how-the-nest-speaker-transforms-any-room-into-a-concert-hall/"><u>Unveiling Audio Brilliance: How the Nest Speaker Transforms Any Room Into a Concert Hall</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-is-an-annual-subscription-to-youtube-premium-justifiable/"><u>[New] 2024 Approved Is an Annual Subscription to YouTube Premium Justifiable?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/hannel-boosting-mastery-unveiling-the-best-5-video-marketing-strategies/"><u>[New] Channel Boosting Mastery Unveiling the Best 5 Video Marketing Strategies</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-captivating-creations-utilizing-motion-blur-effects-in-ai/"><u>[New] In 2024, Captivating Creations Utilizing Motion Blur Effects in AI</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-50plus-youtube-channel-names-for-vloggers-100-new-filmora/"><u>[Updated] 2024 Approved 50+ Youtube Channel Names for Vloggers [100% New] - Filmora</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-iphotovidsyncer-seamless-imageplusvideo-playback/"><u>[Updated] 2024 Approved IPhotoVidSyncer Seamless Image+Video Playback</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-premium-internet-voice-pads/"><u>[Updated] In 2024, Premium Internet Voice Pads</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-byb-e430-swing-arm-led-lamp-analysis-and-features-overview/"><u>Comprehensive BYB E430 Swing Arm LED Lamp Analysis and Features Overview</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-asus-x441ba-laptop-high-resolution-screen-vs-other-factors/"><u>Comprehensive Guide to Asus X4^41BA Laptop: High-Resolution Screen vs Other Factors</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-the-hp-chromebook-11-perfect-for-schooling-office-tasks-and-leisure-activities/"><u>Comprehensive Review of the HP Chromebook 11: Perfect for Schooling, Office Tasks, and Leisure Activities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-user-guide-for-on-the-go-msis-pro-mp161-e2-display/"><u>Comprehensive User Guide for On-The-Go: MSI's Pro MP161 E2 Display</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decoding-the-power-of-intelligence-in-home-entertainment-an-exclusive-review-of-tcls-32s325-roku-led-tv-2019-edition/"><u>Decoding The Power of Intelligence in Home Entertainment - An Exclusive Review of TCL's 32S325 Roku LED TV, 2019 Edition</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/direct-insight-elevate-your-setup-using-dells-visual-projection-noise-canceling-headset-and-hd-video-camera/"><u>Direct Insight: Elevate Your Setup Using Dell's Visual Projection, Noise-Canceling Headset, & HD Video Camera</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/excellent-applications-reshaping-the-art-of-virtual-broadcasting/"><u>Excellent Applications Reshaping the Art of Virtual Broadcasting</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Nokia 105 Classic? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/intrepid-selection-best-slow-mo-cameras/"><u>Intrepid Selection Best Slow-Mo Cameras</u></a></li>
 </ul></div>
 

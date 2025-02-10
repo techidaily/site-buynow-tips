@@ -1,7 +1,7 @@
 ---
 title: "Why the Omotn T1 Tablet Holder Is Your Ideal Budget-Friendly Choice: In-Depth Analysis"
-date: 2025-01-10T02:54:45.197Z
-updated: 2025-01-15T22:30:13.180Z
+date: 2025-02-07T01:35:29.308Z
+updated: 2025-02-10T01:46:07.415Z
 categories:
   - BestProducts
 description: "This Article Describes Why the Omotn T1 Tablet Holder Is Your Ideal Budget-Friendly Choice: In-Depth Analysis"
@@ -14,12 +14,16 @@ thumbnail: https://thmb.techidaily.com/14ac9c60c0a7c6de320a160e01c4efc88f6a5375e
 3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## TP-Link Archer C9 Wireless Router
 
 ![TP-Link Archer C9 AC1900](https://www.lifewire.com/thmb/6VSQssBUxUcvd585IJcj9jrMZWE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAC1900_HeroSquare-68c63e89f59a47a2944b2a73434417e9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -78,15 +82,7 @@ Lifewire / Erika Rawes
 
 ![The TP-Link Archer C9 AC1900 is a budget-friendly router, so it doesn’t include too many of the features you see in newer, more expensive models. It doesn’t include Alexa control or MU-MIMO technology, but it’s supposed to provide a long signal range for larger homes, as well as support fast enough speeds for online gaming and 4K media. I tested the TP-Link AC1900 alongside several other long range routers to see how well it performs in the real world. Design: Fingerprints galore The Archer AC1900 definitely isn’t the most attractive router I’ve seen. The version I tested is black, but TP-Link also makes the C9 in white. The gloss finish gives the AC1900 a cheap look, and it unfortunately shows each and every smudge and fingerprint when you touch the surface. The indicator lights sit on the front face, and you can easily see the network status with a quick glance. The C9 has a slate grey plastic border, which goes around the top perimeter, angles outward, and serves as a stand for the router. The stand allows you to position the AC1900 horizontally or vertically. However, you’ll have to move your cabling under the stand to place the router in a horizontal position, so you can’t easily move it between the two orientations without disconnecting your cables. The Archer C9 has three removable antennas you can swivel and adjust. Although they’re a necessary evil, the antennas are extremely long (almost six inches), so the router looks oddly tall when in the vertical position with the antennas extended. Most of the ports are positioned on the rear, with the exception of the second USB port that sits along the side next to the Wi-Fi button. Setup: Takes less than 10 minutes Setup is simple, and you can use the Tether app or the TP-Link site. There’s a QR code in the quick setup leaflet, so you can easily find the app. As it goes with most routers, you’ll find a temporary network name, password, and login info on the label. The app walks you through the setup process step-by-step, guiding you through creating your 2.4 and 5 GHz networks. Connectivity: Decent speeds, long range The Archer C9 AC1900 is an 801.11ac router. It can reach up to 1300 Mbps on the 5 GHz band and up to 600 Mbps on the 2.4 GHz band for a total of 1900 Mbps. The C9 has beamforming, which promotes a more concentrated signal and a longer range. It has four separate gigabit LAN ports for hardwiring devices. In my test home, my ISP speeds are 500 Mbps. On the 5 GHz band, my laptop’s Wi-Fi speed clocked in at 290 Mbps when sitting in the same room as the router. In the back corner of my office, which is often a dead zone, my laptop clocked 66 Mbps on the 2.4 GHz band. As I traveled far away from the router, I was able to maintain a signal, but the speed slowed down quite a bit. In the backyard, another area where I often experience drop offs, the speed came in at 39 Mbps. I repeated the Ookla speed test numerous times, and the results remained around the same in each room. I was able to get slightly higher speeds on an iPhone 11, but overall the router performed extremely well at close proximity, but not so well at a distance. Key features: Guest network and parental controls The C9 has two USB ports (one USB 2.0 and one USB 3.0), so you can share printers or storage over the network. Although this is somewhat of a basic router, it has some modern perks. It supports the most recent Internet Protocol version, IPv6. You can also create a guest network, so you don’t have to share your main network credentials with visitors. The C9 does feature parental controls, but they aren’t exactly comprehensive. Software: TP-Link Tether app You can control the router’s functions from the companion app, Tether. In the app, you can do things like set parental time limits on devices, create a guest network, block devices from the network, and perform basic network maintenance. I also recently tested the TP-Link Archer AX6000, which uses the Tether app as well. The app interface changes based on which router you’re using. With the Archer AX6000, I had more options visible because it’s a more feature-rich unit. I was impressed with the app’s ability to remove those features from the interface with the C9, instead of leaving them in place for me to click on and get that “not available with this model” message. The TP-Link site gives you access to more advanced features, like USB settings for file and printer sharing, more advanced parental controls (blocking sites), access control, DHCP settings, and forwarding and security features. Price: A budget router The Archer C9 AC1900 is an older model, so it’s not as readily available as it was a couple of years back. You can typically find it for around $120, which is a good price for a long range router with its feature set. TP-Link Archer C9 AC1900 vs. ASUS RT-AC1900 The ASUS RT-AC1900 typically sells for closer to $150, but you can find it refurbished or on sale for around the same price as the Archer AC1900. The two routers look similar at first glance—they both have three very long antennas protruding from the top. They have similar specifications, including a dual-core processor, AC1900 speed, and dual-bands, and a long range. But, the ASUS RT-AC1900 offers a few perks, like TrendMicro security and NVIDIA GameStream technology.](https://www.lifewire.com/thmb/lnvkIHT0SDb7l6N8SdfkidojMNI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAC1900_04-67240ed8e8824506bd5eb91281027e03.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup: Takes less than 10 minutes**
 
@@ -104,6 +100,10 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Key features: Guest network and parental controls**
 
  The C9 has two USB ports (one USB 2.0 and one USB 3.0), so you can share printers or storage over the network.
@@ -113,10 +113,6 @@ Lifewire / Erika Rawes
  Although this is somewhat of a basic router, it has some modern perks. It supports the most recent Internet Protocol version, IPv6\. You can also create a guest network, so you don’t have to share your main network credentials with visitors. The C9 does feature parental controls, but they aren’t exactly comprehensive.
 
  The router performed extremely well at close proximity, but not so well at a distance.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Software: TP-Link Tether app**
 
@@ -128,15 +124,19 @@ Lifewire / Erika Rawes
 
 ![The TP-Link Archer C9 AC1900 is a budget-friendly router, so it doesn’t include too many of the features you see in newer, more expensive models. It doesn’t include Alexa control or MU-MIMO technology, but it’s supposed to provide a long signal range for larger homes, as well as support fast enough speeds for online gaming and 4K media. I tested the TP-Link AC1900 alongside several other long range routers to see how well it performs in the real world. Design: Fingerprints galore The Archer AC1900 definitely isn’t the most attractive router I’ve seen. The version I tested is black, but TP-Link also makes the C9 in white. The gloss finish gives the AC1900 a cheap look, and it unfortunately shows each and every smudge and fingerprint when you touch the surface. The indicator lights sit on the front face, and you can easily see the network status with a quick glance. The C9 has a slate grey plastic border, which goes around the top perimeter, angles outward, and serves as a stand for the router. The stand allows you to position the AC1900 horizontally or vertically. However, you’ll have to move your cabling under the stand to place the router in a horizontal position, so you can’t easily move it between the two orientations without disconnecting your cables. The Archer C9 has three removable antennas you can swivel and adjust. Although they’re a necessary evil, the antennas are extremely long (almost six inches), so the router looks oddly tall when in the vertical position with the antennas extended. Most of the ports are positioned on the rear, with the exception of the second USB port that sits along the side next to the Wi-Fi button. Setup: Takes less than 10 minutes Setup is simple, and you can use the Tether app or the TP-Link site. There’s a QR code in the quick setup leaflet, so you can easily find the app. As it goes with most routers, you’ll find a temporary network name, password, and login info on the label. The app walks you through the setup process step-by-step, guiding you through creating your 2.4 and 5 GHz networks. Connectivity: Decent speeds, long range The Archer C9 AC1900 is an 801.11ac router. It can reach up to 1300 Mbps on the 5 GHz band and up to 600 Mbps on the 2.4 GHz band for a total of 1900 Mbps. The C9 has beamforming, which promotes a more concentrated signal and a longer range. It has four separate gigabit LAN ports for hardwiring devices. In my test home, my ISP speeds are 500 Mbps. On the 5 GHz band, my laptop’s Wi-Fi speed clocked in at 290 Mbps when sitting in the same room as the router. In the back corner of my office, which is often a dead zone, my laptop clocked 66 Mbps on the 2.4 GHz band. As I traveled far away from the router, I was able to maintain a signal, but the speed slowed down quite a bit. In the backyard, another area where I often experience drop offs, the speed came in at 39 Mbps. I repeated the Ookla speed test numerous times, and the results remained around the same in each room. I was able to get slightly higher speeds on an iPhone 11, but overall the router performed extremely well at close proximity, but not so well at a distance. Key features: Guest network and parental controls The C9 has two USB ports (one USB 2.0 and one USB 3.0), so you can share printers or storage over the network. Although this is somewhat of a basic router, it has some modern perks. It supports the most recent Internet Protocol version, IPv6. You can also create a guest network, so you don’t have to share your main network credentials with visitors. The C9 does feature parental controls, but they aren’t exactly comprehensive. Software: TP-Link Tether app You can control the router’s functions from the companion app, Tether. In the app, you can do things like set parental time limits on devices, create a guest network, block devices from the network, and perform basic network maintenance. I also recently tested the TP-Link Archer AX6000, which uses the Tether app as well. The app interface changes based on which router you’re using. With the Archer AX6000, I had more options visible because it’s a more feature-rich unit. I was impressed with the app’s ability to remove those features from the interface with the C9, instead of leaving them in place for me to click on and get that “not available with this model” message. The TP-Link site gives you access to more advanced features, like USB settings for file and printer sharing, more advanced parental controls (blocking sites), access control, DHCP settings, and forwarding and security features. Price: A budget router The Archer C9 AC1900 is an older model, so it’s not as readily available as it was a couple of years back. You can typically find it for around $120, which is a good price for a long range router with its feature set. TP-Link Archer C9 AC1900 vs. ASUS RT-AC1900 The ASUS RT-AC1900 typically sells for closer to $150, but you can find it refurbished or on sale for around the same price as the Archer AC1900. The two routers look similar at first glance—they both have three very long antennas protruding from the top. They have similar specifications, including a dual-core processor, AC1900 speed, and dual-bands, and a long range. But, the ASUS RT-AC1900 offers a few perks, like TrendMicro security and NVIDIA GameStream technology.](https://www.lifewire.com/thmb/m3x5QNiGd-1noZGGAsTWcydG09U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAC1900_03-3c172ddeb5b34d9a98b7ac1e91b9c73f.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: A budget router**
 
  The Archer C9 AC1900 is an older model, so it’s not as readily available as it was a couple of years back. You can typically find it for around $120, which is a good price for a long-range router with its feature set.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **TP-Link Archer C9 AC1900 vs. ASUS RT-AC1900**
 
@@ -184,22 +184,22 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-timing-duration-for-a-20mb-high-definition-video/"><u>[Updated] 2024 Approved Timing Duration for a 20Mb High-Definition Video</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/free-gigabyte-gc-wb867d-motherboard-utility-software-and-drivers/"><u>Free Gigabyte GC-WB867D Motherboard Utility Software & Drivers</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-motorola-g54-5g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Motorola G54 5G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-motorola-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Motorola Phone Without Password?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/is-it-worth-it-a-deep-dive-into-the-cost-vs-performance-of-alienware-aurora-r7/"><u>Is It Worth It? A Deep Dive Into the Cost vs Performance of Alienware Aurora R7</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/leading-voice-assistants-and-smart-speaker-picks-for-the-year-2ebrity-2024/"><u>Leading Voice Assistants and Smart Speaker Picks for the Year 2Ebrity 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lgs-latest-gem-the-stylo-6-smartphone-where-aesthetics-meet-usability/"><u>LG's Latest Gem: The Stylo 6 Smartphone – Where Aesthetics Meet Usability</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lgs-newest-addition-a-comprehensive-guide-to-the-updated-classic-in-wear-os-20-the-stylish-timepiece/"><u>LG's Newest Addition: A Comprehensive Guide to the Updated Classic in Wear OS 2.0 - The Stylish Timepiece</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lightlux-kit-zx93-ultra-affordable-design/"><u>LightLux Kit ZX93 - Ultra Affordable Design</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/los-reproductores-mp4-4k-ultra-hd-mas-eficaces-guia-completa-para-pcmac-usuarios/"><u>Los Reproductores MP4 4K Ultra HD Más Eficaces: Guía Completa Para PC/Mac Usuarios</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/m3-macbook-air-a-smart-tech-spending-decision/"><u>M3 MacBook Air: A Smart Tech Spending Decision</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-device-charging-expert-insights-on-the-anker-superspeed-usb-30-hub/"><u>Mastering Device Charging: Expert Insights on the Anker SuperSpeed USB 3.0 Hub</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-virtual-football-in-depth-insights-into-fifa-19s-greatness/"><u>Mastering Virtual Football: In-Depth Insights Into FIFA 19'S Greatness</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/quintessential-underwater-accessories-for-gopro/"><u>Quintessential Underwater Accessories for Gopro</u></a></li>
-<li><a href="https://win11.techidaily.com/regaining-functionality-of-your-windows-headset-mic/"><u>Regaining Functionality of Your Windows Headset Mic</u></a></li>
-<li><a href="https://os-tips.techidaily.com/ultimate-tutorial-safely-migrate-existing-passwords-onto-your-latest-apple-device/"><u>Ultimate Tutorial: Safely Migrate Existing Passwords Onto Your Latest Apple Device</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-enhancing-tiktok-video-viewership-through-zoom/"><u>[New] 2024 Approved Enhancing TikTok Video Viewership Through Zoom</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-decoding-instagram-the-technique-for-video-downloads-on-pcmac-devices/"><u>[New] In 2024, Decoding Instagram The Technique for Video Downloads on PC/Mac Devices</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-enhancing-your-aesthetic-vision-for-2024/"><u>[Updated] Enhancing Your Aesthetic Vision for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/a-comprehensive-insight-into-benqs-bl2711u-pioneering-the-4k-standard/"><u>A Comprehensive Insight Into BenQ’s BL2711U - Pioneering the 4K Standard</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/dbpowers-reliable-jump-starter-and-portable-charger-a-comprehensive-look-at-the-peak-1800ab-battery/"><u>DBPOWER's Reliable Jump Starter & Portable Charger: A Comprehensive Look at the Peak 18,00Ab Battery!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-sleek-sony-lx310bt-bluetooth-player/"><u>Discover the Sleek Sony LX310BT Bluetooth Player</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-power-of-the-raspberry-pi-400-compact-computing-fused-with-keyboard-convenience/"><u>Discovering the Power of the Raspberry Pi 400: Compact Computing Fused with Keyboard Convenience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-value-in-tech-how-the-affordable-apple-ipad-air-stands-up-to-the-ipad-pro/"><u>Discovering Value in Tech: How the Affordable Apple iPad Air Stands Up to the iPad Pro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-the-agile-and-budget-friendly-propella-7s-40-top-performance-on-a-shoestring/"><u>Experience the Agile and Budget-Friendly Propella 7S 4.0 – Top Performance on a Shoestring!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-lightzone-software-exceptional-free-photography-processor-on-multiple-oses/"><u>Exploring LightZone Software: Exceptional Free Photography Processor on Multiple OSes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/facebooks-2023-video-innovations-embracing-the-short-form-approach/"><u>Facebook’s 2023 Video Innovations Embracing the Short-Form Approach</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/galaxy-s10plus-vs-s20-comparison-in-depth-review-and-head-to-head-analysis/"><u>Galaxy S10+ Vs. S20 Comparison: In-Depth Review and Head-to-Head Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/google-pixel-6-breakdown-from-design-to-functionality-an-expert-review/"><u>Google Pixel 6 Breakdown: From Design to Functionality – An Expert Review</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/innovative-techniques-in-picking-the-best-fpv-drone-propellers/"><u>Innovative Techniques in Picking the Best FPV Drone Propellers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-art-of-playback-anarchy-youtube-playlists-unordered-again/"><u>The Art of Playback Anarchy YouTube Playlists Unordered Again</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/ultimate-online-seminar-creation-assistant/"><u>Ultimate Online Seminar Creation Assistant</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/windows-11-rollback-tutorial-effortlessly-restore-stable-system-status/"><u>Windows 11 Rollback Tutorial: Effortlessly Restore Stable System Status</u></a></li>
 </ul></div>
 

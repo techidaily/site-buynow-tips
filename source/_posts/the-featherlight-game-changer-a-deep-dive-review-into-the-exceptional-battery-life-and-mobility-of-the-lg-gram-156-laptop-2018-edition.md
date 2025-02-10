@@ -1,7 +1,7 @@
 ---
 title: "The Featherlight Game Changer: A Deep Dive Review Into the Exceptional Battery Life & Mobility of the LG Gram 15.6 Laptop (2018 Edition)"
-date: 2025-01-10T04:15:40.755Z
-updated: 2025-01-16T00:41:47.102Z
+date: 2025-02-06T07:22:23.588Z
+updated: 2025-02-09T16:25:01.198Z
 categories:
   - BestProducts
 description: "This Article Describes The Featherlight Game Changer: A Deep Dive Review Into the Exceptional Battery Life & Mobility of the LG Gram 15.6 Laptop (2018 Edition)"
@@ -37,12 +37,16 @@ Lifewire / Zach Sweat
 
 3.3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Alienware Aurora R9
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/BiBvvSXCg5l15o1T-fJmijAM9PQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
@@ -77,10 +81,6 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wRBNGBQw39Gc3PVZ6i0PJB4LuWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-08-406d659ae21641d2b9df53303e8f6d76.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
 ## **Design: Polarizing sci-fi aesthetics**
@@ -104,7 +104,7 @@ Lifewire / Zach Sweat
  Inside the case, Alienware has made the new R9 quite upgradeable, allowing owners to easily pull things apart for access to various components. Though it’s a bit cramped inside, the genius ability to swing the PSU (power supply unit) out to the side when the case is removed provides easier access to the motherboard and all its parts. While we’re a bit concerned with the airflow due to this tight fit inside the case, it does allow you to upgrade hardware down the line if you want.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Plug and play**
@@ -137,10 +137,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Gaming: From ok to amazing, if you have the cash**
 
  Much like performance in everyday tasks, your performance in gaming is based on what hardware your Aurora features. You can go all the way up to a monsterous gaming rig with a GTX 2080, or all the way down to our little base model with a GTX 1650, so it’s up to you how much performance you’re willing to pay for.
@@ -157,10 +153,6 @@ Lifewire / Zach Sweat
 
  Your gaming performance in relation to the Aurora is subject to your hardware, peripherals and network speeds if playing an online game, so choose the best model you can afford within your budgetary restrictions and keep in mind how you plan to use your PC.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Audio: Decent prebuilt performance and surround sound**
 
  A quality audio setup is something often overlooked when it comes to computers, but it’s something that can really add to the overall enjoyment of your PC. Immersive soundscapes in games and movies, astounding dynamic range in music and crisp, clear dialogue combine to separate the mediocre computers from the great.
@@ -172,6 +164,10 @@ Lifewire / Zach Sweat
  If you’ve got a beefy external audio setup with lots of speakers, you’re in luck, as the R9 features tons of ports for your equipment. Ports on the back include a center/subwoofer output, rear surround output, side surround output and two coaxial S/PDIF ports for connecting an amplifier, speakers or a TV for digital audio output through a coaxial cable.
 
  Although true audiophiles will still want to stick with a DAC, or digital-to-analog converter, the Aurora R9 packs in pretty decent audio options for most users.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Network: Solid Ethernet, average Wi-Fi**
 
@@ -190,7 +186,7 @@ Lifewire / Zach Sweat
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wMnVqt6RV24C1Vfncnf2J3E0fAg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-15-fe70fca5ffd04da6abd8c0ef8f026eef-f6d5eaf9efcb461a902fc750a192dd0c.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -206,6 +202,10 @@ Lifewire / Zach Sweat
  With thermal control, you can monitor internal temperatures and adjust fans to their ideal ranges to help remove excess heat from the system while keeping fan volume down. If you’re someone who’s into overclocking, the Alienware Command Center also has an intuitive overclocking control module for squeezing extra performance from your system. Users can create their own profiles here and activate them on the fly.
 
  For RGB fans, the AlienFX hardware and software provides tons of potential combinations with up to 16.8 million color options. Users can take full control of the external RGB along the front and sides of the tower in addition to supported peripherals. Themes you create can also be saved and assigned to specific games, which is a pretty sweet perk.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Not the best bang for your buck**
 
@@ -265,18 +265,21 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-hds-radiance-reviewed-does-it-merit-the-hdr-label/"><u>[New] 2024 Approved HD's Radiance Reviewed Does It Merit the HDR Label?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/rolific-mobile-video-makers-iphone-and-android-for-2024/"><u>[New] Prolific Mobile Video Makers (iPhone & Android) for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-triller-demystified-a-comparative-look-at-unique-online-platforms/"><u>[New] Triller Demystified A Comparative Look at Unique Online Platforms</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-all-inclusive-list-of-prime-no-money-streaming-applications-and-software/"><u>2024 Approved All-Inclusive List of Prime No-Money Streaming Applications & Software</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/compact-disc-audio-excellence-reviews/"><u>Compact Disc Audio Excellence Reviews</u></a></li>
-<li><a href="https://driver-download.techidaily.com/find-and-install-compatible-mouse-drivers-for-windows-7-systems/"><u>Find and Install Compatible Mouse Drivers for Windows 7 Systems</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/navigating-the-pros-and-cons-of-an-amazon-prime-membership/"><u>Navigating the Pros and Cons of an Amazon Prime Membership</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/netgears-enhanced-range-wifi-solution-the-powerful-nighthawk-x6s-extender/"><u>Netgear's Enhanced Range WiFi Solution - The Powerful Nighthawk X6S Extender</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/next-level-audio-logitech-g-pro-x-experience/"><u>Next Level Audio: Logitech G Pro X Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/stellaris-analysis-mastering-space-odyssey-dominion-and-strategy/"><u>Stellaris Analysis: Mastering Space Odyssey, Dominion & Strategy</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/swiftswirl-momentmirror-recording/"><u>SwiftSwirl MomentMirror Recording</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-perfect-blend-of-exercise-tracking-and-music-streaming-discover-the-garmin-vivoactive-3/"><u>The Perfect Blend of Exercise Tracking & Music Streaming: Discover the Garmin Vivoactive 3</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-perfect-partner-for-247-health-and-activity-tracking-exploring-the-fitbit-inspire-hr-review/"><u>The Perfect Partner for 24/7 Health and Activity Tracking: Exploring the Fitbit Inspire HR Review</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-battle-of-the-capture-tools-obs-studio-against-bandicam/"><u>[Updated] In 2024, Battle of the Capture Tools OBS Studio Against Bandicam</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-conquer-kinemaster-rule-the-meme-world/"><u>2024 Approved Conquer KineMaster, Rule the Meme World</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-step-by-step-guide-to-seamlessly-downloading-and-modifying-tamil-ringtones/"><u>2024 Approved Step-by-Step Guide to Seamlessly Downloading and Modifying Tamil Ringtones</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95696045-9780857012654-calculating-the-bazi/"><u>Calculating the BaZi | Free Book</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Tecno Spark 10C? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on OnePlus Ace 2V? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exclusive-insights-the-highest-rated-vr-games/"><u>In 2024, Exclusive Insights The Highest-Rated VR Games</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/online-ogm-mkv-movavi/"><u>Online OGM MKV 무료 변환 서비스 - Movavi</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/talk-turned-type-essential-apps-for-offline-speech-recognition-for-2024/"><u>Talk Turned Type Essential Apps for Offline Speech Recognition for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-choosing-an-antenna-features-and-performance-of-the-antop-at-127-for-free-tv/"><u>The Ultimate Guide to Choosing an Antenna: Features and Performance of the Antop AT-127 for Free TV</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-verdict-on-the-dell-inspiron-3671-desktop-insights-into-a-competent-mid-tier-machine/"><u>The Verdict on the Dell Inspiron 3671 Desktop: Insights Into a Competent Mid-Tier Machine</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-mohu-blade-television-antenna-analysis-trendsetting-design-and-remarkable-interior-signal-strength/"><u>Top Mohu Blade Television Antenna Analysis: Trendsetting Design and Remarkable Interior Signal Strength</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-wi-fi-travel-routers-a-comprehensive-guide/"><u>Top Rated Wi-Fi Travel Routers : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/uniqueness/"><u>Uniqueness</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-features-of-kobo-clara-colour-the-ultimate-e-reader-assessment/"><u>Unveiling the Features of Kobo Clara Colour - The Ultimate E-Reader Assessment</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-google-nest-doorbell-with-battery-backup-a-detailed-review/"><u>Unveiling the Google Nest Doorbell with Battery Backup - A Detailed Review</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Runner's Choice? - A Critical Review of the Garmin Forerunner 265
-date: 2025-01-25T21:04:28.714Z
-updated: 2025-01-29T19:24:37.566Z
+date: 2025-02-07T17:58:42.526Z
+updated: 2025-02-10T11:14:06.754Z
 categories:
   - BestProducts
 description: This Article Describes The Runner's Choice? - A Critical Review of the Garmin Forerunner 265
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/cqe4AOlmHazUKa_4vZ1ipCp_YuQ=/400x300/fi
 ## Delivering Premium TV Reception at a Great Value - In-Depth Review of the 30 Mohu Leaf Antenna
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Mohu Leaf 30
 
@@ -38,12 +42,16 @@ Lifewire / Jonno Hill
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -69,7 +77,7 @@ Lifewire / Jonno Hill
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Basic but effective**
@@ -78,23 +86,19 @@ Lifewire / Jonno Hill
 
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup: Dead simple**
 
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Acceptable but not incredible**
 
  The Mohu Leaf 30 TV Antenna wasn’t the highest performing antenna that I tested, even among similar unpowered antennas. In my channel acquisition test, the Leaf picked up 56 channels on average across all the iterations performed.
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Range: Fairly limited**
 
@@ -105,10 +109,6 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
 
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
 
@@ -146,18 +146,24 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-immersive-chronicles-virtual-realitys-history/"><u>[New] 2024 Approved Immersive Chronicles Virtual Reality's History</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-essential-nintendo-switch-brawlers-guidebook-max-156-for-2024/"><u>[New] Essential Nintendo Switch Brawlers Guidebook (Max 156) for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-a-beginners-guide-to-instagram-story-feature/"><u>[New] In 2024, A Beginner's Guide to Instagram Story Feature</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-can-you-receive-a-monthly-check-from-youtube/"><u>2024 Approved Can You Receive a Monthly Check From YouTube?</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/ces-2023-highlights-htc-and-google-unveil-new-innovations-on-the-third-day-plus-exploring-additional-breakthroughs/"><u>CES 2023 Highlights: HTC & Google Unveil New Innovations on the Third Day + Exploring Additional Breakthroughs</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/examining-the-range-of-responses-from-pc-brands-to-intels-extended-processor-warranty-consumer-survey-insights/"><u>Examining the Range of Responses From PC Brands to Intel's Extended Processor Warranty – Consumer Survey Insights</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/functional-lamicall-s-tablet-stand-explored-a-comprehensive-product-review/"><u>Functional Lamicall S Tablet Stand Explored: A Comprehensive Product Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-buyselladscom-elevates-blog-monetization-and-growth-opportunnities/"><u>How buySellAds.com Elevates Blog Monetization and Growth Opportunnities</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-to-upgrade-the-ps3-hard-drive-to-create-more-space/"><u>How to Upgrade the PS3 Hard Drive to Create More Space</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ideal-55-inch-tv-toshiba-lf711u2-fire-edition-for-prime-members/"><u>Ideal 55-Inch TV: Toshiba LF711U2 Fire Edition for Prime Members</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-fujitsu-scansnap-ix1400-perfect-selection-for-small-business-and-personal-office-environments/"><u>In-Depth Look at the Fujitsu ScanSnap iX1400: Perfect Selection for Small Business and Personal Office Environments</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/maximize-your-meeting-recordings-skype-on-any-operating-system-for-2024/"><u>Maximize Your Meeting Recordings Skype on Any Operating System for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-unlocking-apple-watch-or-iphone-13-from-icloud-by-drfone-ios/"><u>The Ultimate Guide to Unlocking Apple Watch Or iPhone 13 from iCloud</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-art-of-solo-audio-stardom-stepwise-creation/"><u>[Updated] In 2024, The Art of Solo Audio Stardom Stepwise Creation</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/beyond-illusion-vr-timeline-explored/"><u>Beyond Illusion VR Timeline Explored</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-the-oneplus-nord-n1e-5g-not-to-be-overlooked/"><u>Comprehensive Analysis of the OnePlus Nord N1e 5G: Not to Be Overlooked!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-the-apple-tv-4k-third-gen-a-full-reveal/"><u>Comprehensive Analysis: The Apple TV 4K (Third Gen) - A Full Reveal</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-nulaxy-km18-fm-transmission-unit-evaluation-an-excellent-pick-from-legacy-models/"><u>Comprehensive Nulaxy KM18 FM Transmission Unit Evaluation - An Excellent Pick From Legacy Models</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-best-value-pc-for-gamers-with-our-expert-review-of-the-versatile-customizable-dell-g5-5090/"><u>Discovering the Best Value PC for Gamers with Our Expert Review of the Versatile, Customizable Dell G5 5090</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/electronic-readers-faceoff-comparing-the-pros-and-cons-of-ipads-kindles-and-nooks/"><u>Electronic Readers Faceoff: Comparing the Pros and Cons of iPads, Kindles, and Nooks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-quality-on-a-budget-in-depth-lenovo-tab-m10-fhd-plus-2020-review-with-eye-catching-screen/"><u>Experience Quality on a Budget: In-Depth Lenovo Tab M10 FHD Plus 2020 Review with Eye-Catching Screen</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-analysis-of-microsoft-surface-pro-7-enhanced-efficiency-in-latest-update/"><u>Expert Analysis of Microsoft Surface Pro 7: Enhanced Efficiency in Latest Update</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-of-the-blade-e-flite-mcx3-rtf-helicopter-a-revolutionary-addition-to-your-hobby-collection/"><u>Expert Review of the Blade E-Flite mCX^3 RTF Helicopter - A Revolutionary Addition to Your Hobby Collection</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-on-stanleys-j5c09-big-machine-with-surprising-abilities/"><u>Expert Review on Stanley's J5C09 - Big Machine with Surprising Abilities</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/from-screenplays-to-screens-youtubes-filmmaker-training-for-2024/"><u>From Screenplays to Screens YouTube's Filmmaker Training for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtubes-high-stakes-hardware-showdown/"><u>In 2024, YouTube’s High-Stakes Hardware Showdown</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-keyboard-accessibility-turning-off-sticky-keys-on-your-pc/"><u>Mastering Keyboard Accessibility: Turning Off Sticky Keys on Your PC</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-cant-watch-mlb-matches-get-free-mlb-streaming-options-now/"><u>New Cant Watch MLB Matches? Get Free MLB Streaming Options Now</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-era-vr-game-engines-whats-revolutionary/"><u>New Era VR Game Engines What's Revolutionary ?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-xiaomi-redmi-12-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Xiaomi Redmi 12 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/train-collisions-decoded-insights-after-the-barrier-breach/"><u>Train Collisions Decoded: Insights After the Barrier Breach</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-dell-audio-issues-on-windows-7-a-step-by-step-guide/"><u>Troubleshooting Dell Audio Issues on Windows 7: A Step-by-Step Guide</u></a></li>
 </ul></div>
 

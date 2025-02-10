@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Review: Why the Flexispot Theodore Is Setting New Standards for Chic Office Workstations"
-date: 2025-01-15T04:00:11.146Z
-updated: 2025-01-15T23:05:33.525Z
+date: 2025-02-05T09:56:40.433Z
+updated: 2025-02-10T09:32:00.056Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Review: Why the Flexispot Theodore Is Setting New Standards for Chic Office Workstations"
@@ -14,12 +14,16 @@ thumbnail: https://thmb.techidaily.com/c6429f73427910ad10427b45e11889d34e56d443e
 3.8
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -66,10 +70,6 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -79,10 +79,6 @@ Lifewire / Todd Braylor
  The speaker on this radar detector is very small, about a quarter-inch square, but the audio alerts are high volume. You can select between standard and loud tones. The SmartCord power cable for the S55 has a handy mute button on it so you don't have to reach over the dash.
 
  Lifewire / Todd Braylor
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Easy installation**
 
@@ -96,6 +92,10 @@ Lifewire / Todd Braylor
 
  It reliably delivers on its promise of long-distance sensitivity.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Not exactly enhanced**
 
  The S55 has different modes designed to adjust to specific frequency bands and sensitivity levels for city or highway driving. You can quickly customize the settings by using the included quick reference guide. You can also turn off specific frequency bands if they tend to give a lot of false alerts.
@@ -105,7 +105,7 @@ Lifewire / Todd Braylor
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: You get what you pay for**
@@ -113,6 +113,10 @@ Lifewire / Todd Braylor
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
@@ -125,10 +129,6 @@ Lifewire / Todd Braylor
  **A basic radar detector that's ideal for beginners or anyone on a budget.**
 
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -159,24 +159,24 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-tips.techidaily.com/skylines-over-cities-diving-deep-into-the-urban-planning-adventure-of-cities-skylines/"><u>'Skylines Over Cities': Diving Deep Into the Urban Planning Adventure of Cities Skylines</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-engineering-video-excerpts-for-online-platforms/"><u>[New] Engineering Video Excerpts for Online Platforms</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-how-to-view-old-stories-on-facebook-find-story-archive-easily/"><u>[New] In 2024, How to View Old Stories on Facebook Find Story Archive Easily</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-no-screen-only-silence-a6400-dilemma/"><u>[New] No Screen, Only Silence A6400 Dilemma</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-mirthful-melodies-top-downloads-for-tones/"><u>2024 Approved Mirthful Melodies Top Downloads for Tones</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-total-byte-requirement-for-24-hours-of-movie-viewing/"><u>2024 Approved Total Byte Requirement for 24 Hours of Movie Viewing</u></a></li>
-<li><a href="https://win11.techidaily.com/chrome-notification-banishment-for-windows-users/"><u>Chrome Notification Banishment for Windows Users</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-picks-the-ultimate-list-of-premier-mac-monitors-for-the-year-2tallage/"><u>Expert Picks: The Ultimate List of Premier Mac Monitors for the Year 2Tallage</u></a></li>
-<li><a href="https://win-alternatives.techidaily.com/how-to-swiftly-move-information-from-an-old-to-a-new-iphone-discover-four-effective-techniques/"><u>How to Swiftly Move Information From an Old to a New iPhone - Discover Four Effective Techniques</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-disabled-iphone-xipad-without-computer-by-drfone-ios/"><u>In 2024, How to Unlock Disabled iPhone X/iPad Without Computer</u></a></li>
-<li><a href="https://video-capture.techidaily.com/proven-6-best-video-grabbers-for-your-mac-for-2024/"><u>Proven 6 Best Video Grabbers for Your Mac for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-of-the-blue-freestyle2-mouse-the-ideal-choice-for-apple-device-owners/"><u>Review of the Blue Freestyle2 Mouse: The Ideal Choice for Apple Device Owners</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/revolutionize-your-internet-experience-the-ultimate-guide-to-google-nest-wi-fi-mesh-networking-excellence/"><u>Revolutionize Your Internet Experience - The Ultimate Guide to Google Nest Wi-Fi Mesh Networking Excellence</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/streamline-gameplay-by-boosting-ps3-memory/"><u>Streamline Gameplay by Boosting PS3 Memory</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/testing-the-lenovo-nook-a-detailed-look-at-its-9-inch-display/"><u>Testing the Lenovo Nook - A Detailed Look at Its 9-Inch Display</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-thermopro-tp6/"><u>The ThermoPro TP6</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-parents-guide-to-using-mirari-kid-alarm-clock-successfully-is-it-worth-the-investment/"><u>The Ultimate Parent’s Guide to Using Mirari Kid-Alarm Clock Successfully - Is It Worth the Investment?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-pick-durability-meets-affordability-in-asus-chromebook-c202sa-for-young-learners/"><u>Top Pick: Durability Meets Affordability in Asus Chromebook C202SA for Young Learners</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-ranked-gaming-systems-in-2/"><u>Top-Ranked Gaming Systems in 2</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-tune-tracker-top-picks-for-android-6-free-music-downloader-apps-from-youtube/"><u>[New] 2024 Approved Tune Tracker Top Picks for Android - 6 Free Music Downloader Apps From YouTube</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-securesave-specialists-judgment/"><u>[New] In 2024, SecureSave Specialists Judgment</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-premier-8k-capture-the-ultimate-camera-guide/"><u>[New] Premier 8K Capture The Ultimate Camera Guide</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-the-art-of-greenscreen-in-kinemaster/"><u>[Updated] Mastering the Art of Greenscreen in KineMaster</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-sorcerers-syllables-is-this-voice-changer-software-legitimate-learn-about-others/"><u>[Updated] Sorcerer's Syllables Is This Voice Changer Software Legitimate? Learn About Others</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-perfecting-your-pics-for-maximum-youtube-views/"><u>In 2024, Perfecting Your Pics for Maximum YouTube Views</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/mastering-full-view-fb-movie-magic-for-2024/"><u>Mastering Full-View Fb Movie Magic for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/navigating-through-the-essentials-of-streaming-tools/"><u>Navigating Through the Essentials of Streaming Tools</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-through-value-and-quality-with-the-lg-um7300-a-detailed-budget-4k-smart-tv-review/"><u>Navigating Through Value and Quality with The LG UM7300 - A Detailed Budget 4K Smart TV Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/nintendo-face-off-assessing-features-performance-and-value-between-switch-lite-and-oled/"><u>Nintendo Face-Off: Assessing Features, Performance & Value Between Switch Lite and OLED</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/nokia-lumia-7-plus-evaluation-an-exceptional-contender-among-affordable-smartphones/"><u>Nokia Lumia 7 Plus Evaluation: An Exceptional Contender Among Affordable Smartphones</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/oodle-unveiled-the-ultimate-zero-cost-local-marketplace-portal/"><u>Oodle Unveiled: The Ultimate Zero-Cost Local Marketplace Portal</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/reviewing-tcls-budget-friendly-giant-the-50s425-50-4k-tv-with-built-in-roku-is-it-worth-it-in-2019/"><u>Reviewing TCL’s Budget-Friendly Giant: The 50S425 50 4K TV with Built-In Roku - Is It Worth It in 2019?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-fit2-the-ideal-companion-for-everyday-fitness-tracking/"><u>Samsung Galaxy Fit2: The Ideal Companion for Everyday Fitness Tracking</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/simple-troubleshooting-steps-to-fix-your-youtube-videos-when-faced-with-a-pure-black-display/"><u>Simple Troubleshooting Steps to Fix Your YouTube Videos When Faced With a Pure Black Display</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/staphylococcus-aureus/"><u>Staphylococcus Aureus</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/supreme-softbox-selection-photographys-best-tools/"><u>Supreme Softbox Selection: Photography's Best Tools</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-best-value-for-money-discover-the-reliability-of-lg-24lh4830-smart-television/"><u>The Best Value for Money - Discover the Reliability of LG 24LH4830 Smart Television</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/unlocking-access-to-android-device-contact-information/"><u>Unlocking Access to Android Device Contact Information</u></a></li>
 </ul></div>
 

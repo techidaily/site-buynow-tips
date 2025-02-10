@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Review: How Does AmazonBasics's 12-Sheet High Security Shredder Stack Up?"
-date: 2025-01-14T03:58:08.843Z
-updated: 2025-01-15T22:53:36.894Z
+date: 2025-02-05T17:09:35.629Z
+updated: 2025-02-09T22:53:15.906Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate Review: How Does AmazonBasics's 12-Sheet High Security Shredder Stack Up?"
@@ -16,10 +16,6 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/GshnCnk_G-hNSwDTRjGVB28Nl-o=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -45,10 +41,6 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/AfRhNgqeOD7JfcVqpjzm5LwPSB4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -82,10 +74,6 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 
  It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Avoid the app**
 
  The setup options for the Netgear Nighthawk AX8 are the same as with Netgear’s other extenders—even those without Wi-Fi 6 support. You’ll begin with the extender plugged in near your router. If your router supports[WPS](https://www.lifewire.com/what-is-wps-4842308) , then you can pair the extender with it easily by following the process listed in the included booklet, which is as simple as pressing a button on the router and then doing the same on the extender.
@@ -99,13 +87,13 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Connectivity: Smooth sailing**
@@ -124,6 +112,10 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -132,11 +124,19 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: More than most**
 
  The Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender is listed at $250, although it’s being sold for $220 at multiple retailers as of this writing. That’s definitely on the higher end for an extender.
 
  Should you really spend that much on an extender? If you don’t already have a new Wi-Fi 6 router, then probably not. You might see higher peaks of speed as I did, but rather than trying to mix and match old and new tech, you’re probably better off investing in a new Wi-Fi mesh system that can cover the entire house. Netgear’s Orbi is a favorite, as is Google’s similar Nest Wi-Fi system.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Netgear Nighthawk AX8 vs. Netgear Nighthawk X6S (EX8000)**
 
@@ -174,16 +174,16 @@ thumbnail: https://thmb.techidaily.com/e6d099750c73059d854ce64a05b1f14144b4ddd8a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-forge-strong-content-partnerships-on-youtube/"><u>[New] 2024 Approved How to Forge Strong Content Partnerships on YouTube</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-maximizing-remote-team-dynamics-with-skypes-screen-sharing-technology/"><u>[New] In 2024, Maximizing Remote Team Dynamics with Skype’s Screen Sharing Technology</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-the-most-extensive-selection-of-free-illustrator-portals/"><u>[New] In 2024, The Most Extensive Selection of Free Illustrator Portals</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-fps-fanatics-compendium-selecting-superior-extensions/"><u>[Updated] FPS Fanatics' Compendium Selecting Superior Extensions</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/chatgpt-plus-reviewed-is-it-a-smart-choice-for-enhanced-ai-experience/"><u>ChatGPT Plus Reviewed: Is It a Smart Choice for Enhanced AI Experience?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/deciding-between-ipad-pro-and-surface-pro-key-differences-explored/"><u>Deciding Between iPad Pro and Surface Pro – Key Differences Explored</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-essential-reviews-for-a-child-safe-screen-experience-amazing-kids-fire-hd-10-tablet-insights-and-controls/"><u>Discover Essential Reviews for a Child-Safe Screen Experience: Amazing Kid’s Fire HD 10 Tablet Insights & Controls</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discover-the-leading-asus-wi-fi-routers-for-202-cuyano-the-ultimate-list/"><u>Discover the Leading ASUS Wi-Fi Routers for 202 Cuyano - The Ultimate List</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discovering-the-strengths-and-weaknesses-of-fongo-a-canadian-based-voip-platform/"><u>Discovering the Strengths and Weaknesses of Fongo - A Canadian-Based VOIP Platform</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/universal-unlock-pattern-for-vivo-y36i-by-drfone-android/"><u>Universal Unlock Pattern for Vivo Y36i</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unveiling-chatgpt-enterprise-potential/"><u>Unveiling ChatGPT Enterprise Potential</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-capturing-gotomeet-pc-and-mobile-recording-tutorial-for-2024/"><u>[New] Capturing GoToMeet PC & Mobile Recording Tutorial for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/10-best-online-video-call-free-to-use/"><u>10 Best Online Video Call (Free to Use)</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effective-strategies-for-dealing-with-hang-ups-in-windows-10/"><u>Effective Strategies for Dealing with Hang-Ups in Windows 10</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-enhancing-your-tiktok-videos-with-easeful-text-integration/"><u>In 2024, Enhancing Your TikTok Videos With Easeful Text Integration</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/solving-the-problem-of-youtube-video-unavailability-in-vlc-player-a-comprehensive-guide/"><u>Solving the Problem of YouTube Video Unavailability in VLC Player: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-wireless-broadband-adapters/"><u>Top Rated Wireless Broadband Adapters</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rating-amazon-fire-hd-8-affordable-tablet-with-premium-performance/"><u>Top Rating Amazon Fire HD 8 : Affordable Tablet with Premium Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-choosing-the-perfect-large-mouse-pad-in-2er/"><u>Ultimate Guide: Choosing the Perfect Large Mouse Pad in 2Er</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unmatched-sleep-technology-your-key-to-perfect-slumber/"><u>Unmatched Sleep Technology: Your Key to Perfect Slumber</u></a></li>
+<li><a href="https://driver-download.techidaily.com/updated-drivers-and-downloads-for-canoscan-lide-220-scan-device/"><u>Updated Drivers & Downloads for Canoscan LiDE 220 Scan Device</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-honor-90-gt-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Honor 90 GT | Dr.fone</u></a></li>
 </ul></div>
 
