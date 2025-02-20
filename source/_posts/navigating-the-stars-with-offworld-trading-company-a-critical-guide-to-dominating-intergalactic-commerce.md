@@ -1,7 +1,7 @@
 ---
 title: "Navigating the Stars with Offworld Trading Company: A Critical Guide to Dominating Intergalactic Commerce"
-date: 2025-02-08T20:54:30.570Z
-updated: 2025-02-10T02:19:45.673Z
+date: 2025-02-16T04:02:23.218Z
+updated: 2025-02-20T12:10:08.595Z
 categories:
   - BestProducts
 description: "This Article Describes Navigating the Stars with Offworld Trading Company: A Critical Guide to Dominating Intergalactic Commerce"
@@ -16,10 +16,6 @@ thumbnail: https://thmb.techidaily.com/b9ef13db0d4015b8f432338d38cc3c79dffc2187f
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/HYgHMUDMFh7JI98Hj0JMbI2wcpw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -40,12 +36,16 @@ Lifewire / Kelsey Simon
 
 2.7
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
@@ -65,6 +65,10 @@ Lifewire / Kelsey Simon
 * [Specs](https://www.lifewire.com/#toc-full-spec)
 
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
@@ -100,6 +104,10 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -107,10 +115,6 @@ Lifewire / Kelsey Simon
  The one positive is the originality in the world the developers have created. The setting feels unique―a mix of strange alien tech within a fantasy city. A wide range of characters will fill the game, and they respond and react in creative ways. It’s also a fun experience to run around and talk to these various characters and explore the game’s world and the lore of Numenera.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -121,10 +125,6 @@ Lifewire / Kelsey Simon
  That said, if role-playing games with a text-heavy focus are of interest to you, then the game does have a lot to offer for the cost. The world of Numenera is vast, and considering all the prompts that alter the story, the game also has a lot of replayability. While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else, and for those players, the $50 cost will be worth it.
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Other story focused RPGs**
 
@@ -139,7 +139,7 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -165,24 +165,15 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/updated-best-free-call-apps-on-android-ranks-them-in-2024/"><u>[Updated] Best Free Call Apps on Android, Ranks Them, In 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-essential-mobile-games-for-leisurely-indulgence/"><u>[Updated] Essential Mobile Games for Leisurely Indulgence</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-leveraging-youtube-trailers-for-optimal-revenue-generation/"><u>[Updated] Leveraging YouTube Trailers for Optimal Revenue Generation</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-xiaomi-13t-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Xiaomi 13T Phones? | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-quick-fixes-addressing-top-youtube-short-challenges/"><u>In 2024, Quick Fixes Addressing Top YouTube Short Challenges</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-itel-p55-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Itel P55 | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/latest-nickwatch-launch-a-spectacle-at-the-kids-choice-gala/"><u>Latest NickWatch Launch: A Spectacle at the Kids' Choice Gala</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/master-gamers-unite-harness-the-power-of-a-philips-49-curved-oled-monitor/"><u>Master Gamers Unite - Harness the Power of a Philips 49 Curved OLED Monitor</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-galactic-domination-the-ultimate-stellaris-review/"><u>Mastering Galactic Domination - The Ultimate Stellaris Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastery-with-touch-the-ultimate-walkthrough-for-lenovos-9-inch-nook-tablet/"><u>Mastery with Touch: The Ultimate Walkthrough for Lenovo's 9-Inch Nook Tablet</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/oculus-quest-2-elite-strap-with-battery-and-carrying-case-review-elite-and-essential/"><u>Oculus Quest 2 Elite Strap With Battery and Carrying Case Review: Elite and Essential</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/portable-frozen-fun-how-to-legally-acquire-stream-and-watch-disneys-ice-queen-adventure-on-the-move/"><u>Portable Frozen Fun: How to Legally Acquire, Stream, and Watch Disney’s Ice Queen Adventure On-the-Move</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ranking-the-xbox-one-elite-series-2-controller-a-legacy-in-electronic-sports-equipment/"><u>Ranking the Xbox One Elite Series 2 Controller: A Legacy in Electronic Sports Equipment</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/reviews-and-insights-on-the-gotrax-gxl-v2-the-ideal-urban-e-scooter-for-speed-and-convenience/"><u>Reviews & Insights on the Gotrax GXL V2: The Ideal Urban E-Scooter for Speed and Convenience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/samsung-galaxy-watch-active2-evaluation-timeless-design-meets-contemporary-enhancements/"><u>Samsung Galaxy Watch Active2 Evaluation: Timeless Design Meets Contemporary Enhancements</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/smart-savings-with-style-second-generation-totobay-luminous-alarm-clock-unveiled/"><u>Smart Savings with Style: Second Generation Totobay Luminous Alarm Clock Unveiled</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/solving-problems-with-android-media-files-not-working-properly-in-windows/"><u>Solving Problems with Android Media Files Not Working Properly in Windows</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transforma-tus-archivos-mod-en-mpeg-sin-costo-alguno-utilizando-el-servicio-en-linea-de-movavi/"><u>Transforma Tus Archivos MOD en MPEG Sin Costo Alguno Utilizando El Servicio en Línea De Movavi</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/unlocking-the-potential-ps4-recording-techniques-in-obs/"><u>Unlocking the Potential PS4 Recording Techniques in OBS</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-best-practices-for-mobile-snapchat-recording-techniques/"><u>[New] In 2024, Best Practices for Mobile Snapchat Recording Techniques</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-advanced-hd-screen-capture-gadgets/"><u>[Updated] 2024 Approved Advanced HD Screen Capture Gadgets</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-20-high-end-editors-for-dji-drone-footage/"><u>2024 Approved 20 High-End Editors for DJi Drone Footage</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/clearstream-2v-indooroutdoor-hdtv-antenna-review-great-performance-in-an-unsightly-package/"><u>ClearStream 2V Indoor/Outdoor HDTV Antenna Review: Great Performance In An Unsightly Package</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-value-in-large-screens-caixuns-75-4k-smart-tv-a-cost-efficient-choice/"><u>Discover the Value in Large Screens: Caixun's 75'' 4K Smart TV - A Cost-Efficient Choice</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-sb210-by-soundbot-stellar-sound-performance-with-a-few-fixable-issues/"><u>Exploring the SB210 by SoundBot - Stellar Sound Performance with a Few Fixable Issues</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/from-standard-home-to-elite-windows-pro-systems/"><u>From Standard Home to Elite Windows Pro Systems</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/r-your-youtube-thumbnail-size-and-ratio/"><u>Master Your YouTube Thumbnail Size & Ratio</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/spotting-gone-from-your-friend-list-for-2024/"><u>Spotting Gone From Your Friend List for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/understanding-cable-and-streaming-services-key-distinctions-explored/"><u>Understanding Cable and Streaming Services: Key Distinctions Explored</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Evaluating Mirari Kids' Alarm Clock - An In-Depth Product Review
-date: 2025-02-08T09:21:43.538Z
-updated: 2025-02-10T09:29:52.269Z
+date: 2025-02-18T02:28:52.467Z
+updated: 2025-02-20T11:36:19.705Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating Mirari Kids' Alarm Clock - An In-Depth Product Review
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/QjJGvlIwjSg9Xi4WBoKpTlPb0lA=/400x300/fi
 ## Delivering Premium TV Reception at a Great Value - In-Depth Review of the 30 Mohu Leaf Antenna
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Mohu Leaf 30
 
@@ -38,7 +42,7 @@ Lifewire / Jonno Hill
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Mohu Leaf 30
@@ -68,19 +72,11 @@ Lifewire / Jonno Hill
 
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Basic but effective**
 
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
 
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup: Dead simple**
 
@@ -97,7 +93,7 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Excellent for the performance**
@@ -105,6 +101,10 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
 
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
 
@@ -116,7 +116,7 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -146,20 +146,18 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-functionality-of-unmanned-aerial-vehicles-explored/"><u>[Updated] 2024 Approved The Functionality of Unmanned Aerial Vehicles Explored</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-mastering-yourwebcamrecordingbasics/"><u>[Updated] Mastering YourWebcam RecordingBasics</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-streamlining-your-process-tools-and-tricks-for-smooth-broadcasting/"><u>2024 Approved Streamlining Your Process Tools and Tricks for Smooth Broadcasting</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/essential-steps-for-picking-the-right-motherboard/"><u>Essential Steps for Picking the Right Motherboard</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exceptional-handheld-technology-assessed-a-thorough-critique-of-the-elite-samsung-galaxy-s10/"><u>Exceptional Handheld Technology Assessed: A Thorough Critique of the Elite Samsung Galaxy S10</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-analysis-genius-widecam-f100-a-look-at-image-quality-and-acoustic-issues/"><u>Expert Analysis: Genius WideCam F100 - A Look at Image Quality & Acoustic Issues</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-insights-on-netgears-new-router-unveiling-the-power-of-wi-c-ran-and-wi-fi-6-in-the-stylish-rax80-model/"><u>Expert Insights on Netgear's New Router - Unveiling the Power of Wi-C RAN and Wi-Fi 6 in the Stylish RAX80 Model</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expertly-curated-list-of-superior-tracking-gear-for-runners/"><u>Expertly Curated List of Superior Tracking Gear for Runners</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-capabilities-of-the-budget-friendly-tp-link-archer-c80-a-comprehensive-review/"><u>Exploring the Capabilities of the Budget-Friendly TP-Link Archer C80: A Comprehensive Review</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-change-your-infinix-smart-7-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Infinix Smart 7 Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-realme-c55-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Realme C55 | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-forgotten-the-voicemail-password-of-vivo-g2-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Vivo G2? Try These Fixes</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-auto-lock-greyed-out-on-apple-iphone-14-pro-max-by-drfone-ios/"><u>In 2024, How To Fix Auto Lock Greyed Out on Apple iPhone 14 Pro Max</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solve-your-back-4-blood-voice-chat-problems-with-these-easy-steps/"><u>Solve Your 'Back # 4 Blood' Voice Chat Problems with These Easy Steps</u></a></li>
-<li><a href="https://discover-guides.techidaily.com/step-by-step-tutorial-enable-and-stream-flv-files-on-iphoneipad-easily/"><u>Step-by-Step Tutorial: Enable and Stream FLV Files on iPhone/iPad Easily</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-achieving-accuracy-and-artistry-in-altered-image-tones/"><u>[New] In 2024, Achieving Accuracy and Artistry in Altered Image Tones</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-mastering-youtube-shorts-key-facts/"><u>[New] Mastering YouTube Shorts Key Facts</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-cross-play-away-in-apex-legends-optimal-platform-selection-and-disabling/"><u>[Updated] 2024 Approved Cross-Play Away in Apex Legends Optimal Platform Selection & Disabling</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-full-picture-the-essence-of-google-podcasts-app/"><u>[Updated] Full Picture The Essence of Google Podcasts App</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-ultimate-guide-to-choosing-a-cable-modem-with-integrated-wifi-router/"><u>2024'S Ultimate Guide to Choosing a Cable Modem with Integrated WiFi Router</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/apple-iphone-6-plus-screen-mirroring-you-must-know-drfone-by-drfone-ios/"><u>Apple iPhone 6 Plus Screen Mirroring You Must Know | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/arfs-smart-autofeeder-the-ultimate-hassle-free-meal-plan-for-your-four-legged-companer/"><u>Arf's Smart AutoFeeder: The Ultimate Hassle-Free Meal Plan for Your Four-Legged Companer</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-sophistication-with-skagen-falster-2-an-upscale-rival-to-iphones/"><u>Experience Sophistication with Skagen Falster 2: An Upscale Rival to iPhones</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-samsung-galaxy-f14-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Samsung Galaxy F14 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/stunning-picture-collections-for-desktop-themes-premium-photo-wallpapers-by-yl-software/"><u>Stunning Picture Collections for Desktop Themes: Premium Photo Wallpapers by YL Software</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/things-you-should-know-when-unlocking-total-wireless-of-apple-iphone-x-by-drfone-ios/"><u>Things You Should Know When Unlocking Total Wireless Of Apple iPhone X</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/tp-link-av2000-powerline-adapter-review-excellent-speeds-but-subpar-design/"><u>TP-Link AV2000 Powerline Adapter Review: Excellent Speeds, But Subpar Design</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/transform-your-gatherings-with-premium-karaoke-kits-top-selections/"><u>Transform Your Gatherings with Premium Karaoke Kits - Top Selections</u></a></li>
 </ul></div>
 

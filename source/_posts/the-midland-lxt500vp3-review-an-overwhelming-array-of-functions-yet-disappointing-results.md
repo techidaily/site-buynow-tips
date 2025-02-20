@@ -1,7 +1,7 @@
 ---
 title: The Midland LXT500VP3 Review – An Overwhelming Array of Functions Yet Disappointing Results
-date: 2025-02-06T07:32:59.382Z
-updated: 2025-02-09T18:00:44.329Z
+date: 2025-02-18T18:57:37.436Z
+updated: 2025-02-20T03:59:03.335Z
 categories:
   - BestProducts
 description: This Article Describes The Midland LXT500VP3 Review – An Overwhelming Array of Functions Yet Disappointing Results
@@ -18,7 +18,7 @@ thumbnail: https://www.lifewire.com/thmb/liJwE98Sv8EgOXIWVzrkFGGXxEo=/400x300/fi
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/aiCouzmBGM4njr9Ovpa0MfLae4E=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
@@ -40,6 +40,10 @@ Lifewire / Andrew Hayward
 [View On Amazon $17](https://www.amazon.com/dp/B01L8M215A?tag=lifewire-onsite-prod-20&ascsubtag=5193471%7Cn3d06d6a443e14152b7728753066731b712%7CB01L8M215A)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## TopMate C302 Laptop Cooling Pad
 
@@ -67,10 +71,6 @@ Lifewire / Andrew Hayward
 
  The TopMate C302 is a strong example of the latter. It’s affordable and solidly effective, but the plastic design feels a bit flimsy. I wouldn’t bet on it lasting for the long haul without gentle handling, but given the price, you might not worry about it too much.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Design: Light and a little flimsy
 
  The C302 measures just over 14 inches wide and is designed for laptops with screens up to 15.6 inches diagonal. It’s primarily made of lightweight plastic, with a thin metal grate on the top above the two 4.9-inch fans to help dissipate heat.
@@ -95,6 +95,10 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
 ## Performance: It makes a difference
@@ -117,10 +121,6 @@ Lifewire / Andrew Hayward
 
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Price: It’s very affordable
 
  At $30, this is one of the most affordable laptop cooling pads on the market right now. While results varied across multiple tests and games/apps, the C302 was pretty well in line with some of the pricier options I tested. It feels a little flimsy and doesn’t have any premium features, but the C302 is a very good entry-level option.
@@ -128,10 +128,14 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## TopMate C302 vs. Kootek Laptop Cooling Pad
 
@@ -148,10 +152,6 @@ Lifewire / Andrew Hayward
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 * [North Face Pivoter Backpack](https://www.lifewire.com/north-face-pivoter-backpack-review-4690198)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -181,19 +181,22 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-powerful-cinema-titles-that-bring-you-joy-and-strength/"><u>[Updated] 2024 Approved Powerful Cinema Titles That Bring You Joy & Strength</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-enhance-video-popularity-with-strategic-timestamps/"><u>[Updated] In 2024, Enhance Video Popularity with Strategic Timestamps</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/50-monthly-price-drop-t-mobiles-5g-home-broadband-now-more-affordable/"><u>$50 Monthly Price Drop: T-Mobile's 5G Home Broadband Now More Affordable</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-insta-story-hack-for-stealthy-tech-users/"><u>2024 Approved Insta Story Hack for Stealthy Tech Users</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/achieve-stunning-visuals-the-ultimate-guide-to-setting-up-your-samsung-4k-tv/"><u>Achieve Stunning Visuals: The Ultimate Guide to Setting Up Your Samsung 4K TV</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-flashlight-from-apple-iphone-12-lock-screen-drfone-by-drfone-ios/"><u>How To Remove Flashlight From Apple iPhone 12 Lock Screen | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-high-quality-screen-recording-with-tunefab/"><u>In 2024, High-Quality Screen Recording with Tunefab</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-mac-aesthetics-an-in-depth-review-of-freestyle2-blue/"><u>Mastering Mac Aesthetics: An In-Depth Review of Freestyle2 Blue</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maximizing-linkedin-potential-through-a-premium-subscription/"><u>Maximizing LinkedIn Potential Through a Premium Subscription</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/michael-kors-access-gen-5e-mkgo-evaluation-where-luxury-meets-functionality/"><u>Michael Kors Access Gen 5E MKGO Evaluation - Where Luxury Meets Functionality</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/most-efficient-usb-power-banks-and-chargers-expert-picks-and-reviews/"><u>Most Efficient USB Power Banks & Chargers : Expert Picks and Reviews</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/pet-palooza-an-interactive-adventure/"><u>Pet Palooza: An Interactive Adventure</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Reasons why Pokémon GPS does not Work On Apple iPhone 15? | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtube-cash-flow-8-simple-money-making-tips-for-2024/"><u>YouTube Cash Flow 8 Simple Money-Making Tips for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-gameplay-reel-how-to-reviewed/"><u>[New] Gameplay Reel How-To Reviewed</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-harnessing-hashtags-for-hitting-video-hotspots-on-fb/"><u>[Updated] 2024 Approved Harnessing Hashtags for Hitting Video Hotspots on FB</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-exploring-screen-recording-with-zdsoft/"><u>[Updated] In 2024, Exploring Screen Recording with ZDSoft</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-ultimate-selection-for-premium-residential-weather-systems/"><u>2024'S Ultimate Selection for Premium Residential Weather Systems</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/boost-efficiency-discover-10-essential-chatgpt-compatible-pdf-plugins/"><u>Boost Efficiency: Discover 10 Essential ChatGPT Compatible PDF Plugins</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-hearing-tech-for-drivers-an-affordable-bluetooth-headset-unpacked/"><u>Budget Hearing Tech for Drivers: An Affordable Bluetooth Headset Unpacked</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/compact-convenience-meets-reliability-with-the-kensun-portable-air-compressor-unveiled/"><u>Compact Convenience Meets Reliability with the Kensun Portable Air Compressor Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-netgear-orbi-rbs50y-assessment-for-enhanced-backyard-connectivity/"><u>Comprehensive Netgear Orbi RBS50Y Assessment for Enhanced Backyard Connectivity</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/detailed-assessment-and-review-of-the-high-definition-logitech-c92n-camera-for-video-conferencing/"><u>Detailed Assessment and Review of the High-Definition Logitech C92n Camera for Video Conferencing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-innovative-design-and-capabilities-of-the-apple-iphone-15-pro-through-our-live-demo/"><u>Discover the Innovative Design and Capabilities of the Apple iPhone 15 Pro Through Our Live Demo</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-guide-to-unlock-your-xiaomi-redmi-note-13-proplus-5g-by-drfone-android/"><u>Full Guide to Unlock Your Xiaomi Redmi Note 13 Pro+ 5G</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-watch-hulu-outside-us-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Tecno Pop 8 | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-meizu-21-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Meizu 21 To Phone | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/powershot-g9xii-review-the-new-classic-travel-companion/"><u>PowerShot G9XII Review: The New Classic Travel Companion</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/resolved-unreal-engine-process-failure-in-outriders-a-comprehensive-guide/"><u>Resolved: Unreal Engine Process Failure in Outriders - A Comprehensive Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-essential-blueprint-for-configuring-a-zoom-space/"><u>The Essential Blueprint for Configuring a Zoom Space</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unraveling-the-battle-of-wireless-routers-is-tp-links-archer-ax6000-faster-than-nighthawk-ax12/"><u>Unraveling The Battle of Wireless Routers: Is TP-Link's Archer AX6000 Faster than Nighthawk AX12?</u></a></li>
 </ul></div>
 
